@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1zGTR6MEjp"
 rank: 7
-updated_at: "2026-07-11T20:50:44+08:00"
-content_fingerprint: "b5915ee05ce9857b0de6"
+updated_at: "2026-07-11T20:51:28+08:00"
+content_fingerprint: "06c4b7111c8840b5b5b1"
 ---
 
 [热点索引](README.md) / 风声鹤唳 / PC今日公测！《遗忘之海》PV「初航乐章」
 
 # PC今日公测！《遗忘之海》PV「初航乐章」
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 7 位 · 更新时间：2026-07-11T20:50:44+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 7 位 · 更新时间：2026-07-11T20:51:28+08:00
 
 ## 事件概览
 

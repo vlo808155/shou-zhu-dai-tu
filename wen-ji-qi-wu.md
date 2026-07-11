@@ -8,17 +8,17 @@ tags:
   - "热点资讯"
   - "热门事件"
 source: "今日头条热榜"
-source_url: "https://www.toutiao.com/trending/7661244766385950258/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227661244766385950258%22%2C%22hot_board_impr_id%22%3A%2220260711205044831CA01D53C566CF8376%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n"
+source_url: "https://www.toutiao.com/trending/7661244766385950258/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227661244766385950258%22%2C%22hot_board_impr_id%22%3A%22202607112051286624386A0546968CA354%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n"
 rank: 5
-updated_at: "2026-07-11T20:50:44+08:00"
-content_fingerprint: "08bdb523dd9280e2d19d"
+updated_at: "2026-07-11T20:51:28+08:00"
+content_fingerprint: "15f227b6bed8405d7872"
 ---
 
 [热点索引](README.md) / 闻鸡起舞 / 25岁南非国脚亚当斯自杀离世
 
 # 25岁南非国脚亚当斯自杀离世
 
-> 来源：今日头条热榜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:50:44+08:00
+> 来源：今日头条热榜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:51:28+08:00
 
 ## 事件概览
 
@@ -26,7 +26,7 @@ content_fingerprint: "08bdb523dd9280e2d19d"
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“25岁南非国脚亚当斯自杀离世”位列第 5 位，公开热度指标为 63022266，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“25岁南非国脚亚当斯自杀离世”位列第 5 位，公开热度指标为 63093980，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -36,7 +36,7 @@ content_fingerprint: "08bdb523dd9280e2d19d"
 
 - 来源平台：今日头条热榜
 - 当前排名：第 5 位
-- 热度：63022266
+- 热度：63093980
 - 分类：热门事件
 - 固定索引：闻鸡起舞（wen-ji-qi-wu）
 
@@ -55,11 +55,11 @@ content_fingerprint: "08bdb523dd9280e2d19d"
 - [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](wo-xin-chang-dan.md)（卧薪尝胆）
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](po-fu-chen-zhou.md)（破釜沉舟）
 - [曝余承东内部群发飙](bei-shui-yi-zhan.md)（背水一战）
-- [迪丽热巴工作室发的live图](zhi-shang-tan-bing.md)（纸上谈兵）
+- [长沙市体育局干部彭某某被停职](zhi-shang-tan-bing.md)（纸上谈兵）
 
 ## 前后篇导航
 
-- 上一篇：[杭州 台风](wang-mei-zhi-ke.md)（望梅止渴）
+- 上一篇：[迪丽热巴工作室发的live图](wang-mei-zhi-ke.md)（望梅止渴）
 - 下一篇：[为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](wo-xin-chang-dan.md)（卧薪尝胆）
 
 ## 热点仓库导航
@@ -132,6 +132,6 @@ content_fingerprint: "08bdb523dd9280e2d19d"
 
 ## 来源与延伸阅读
 
-- [25岁南非国脚亚当斯自杀离世](https://www.toutiao.com/trending/7661244766385950258/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227661244766385950258%22%2C%22hot_board_impr_id%22%3A%2220260711205044831CA01D53C566CF8376%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [25岁南非国脚亚当斯自杀离世](https://www.toutiao.com/trending/7661244766385950258/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227661244766385950258%22%2C%22hot_board_impr_id%22%3A%22202607112051286624386A0546968CA354%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
