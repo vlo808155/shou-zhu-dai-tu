@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E5%B7%B4%E5%A8%81%E8%BF%87%E5%A2%83%E6%97%A5%E6%9C%AC+%E5%A4%A7%E6%A0%91%E8%BF%9E%E6%A0%B9%E6%8B%94%E8%B5%B7%E9%9B%A8%E6%A8%AA%E9%A3%9E&sa=fyb_news&rsv_dl=fyb_news"
 rank: 7
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "6b4774b33ec813fb38b1"
+updated_at: "2026-07-11T20:30:08+08:00"
+content_fingerprint: "9e8677c470d6bbe9954a"
 ---
 
 [热点索引](README.md) / 如火如荼 / 巴威过境日本 大树连根拔起雨横飞
 
 # 巴威过境日本 大树连根拔起雨横飞
 
-> 来源：百度热搜 · 榜单排名：第 7 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：百度热搜 · 榜单排名：第 7 位 · 更新时间：2026-07-11T20:30:08+08:00
 
 ## 事件概览
 
@@ -27,7 +27,7 @@ content_fingerprint: "6b4774b33ec813fb38b1"
 
 - 来源平台：百度热搜
 - 当前排名：第 7 位
-- 热度：7136301
+- 热度：7141695
 - 固定索引：如火如荼（ru-huo-ru-tu）
 
 ## 阅读关注点

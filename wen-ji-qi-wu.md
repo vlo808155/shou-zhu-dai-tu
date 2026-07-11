@@ -10,15 +10,15 @@ tags:
 source: "今日头条热榜"
 source_url: "https://webcast-open.douyin.com/open/media_live/282773369501"
 rank: 5
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "a4e395b185a8e080a6cd"
+updated_at: "2026-07-11T20:30:08+08:00"
+content_fingerprint: "c063bd6f0e3e6979db0d"
 ---
 
 [热点索引](README.md) / 闻鸡起舞 / 巴威路线东移
 
 # 巴威路线东移
 
-> 来源：今日头条热榜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：今日头条热榜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:30:08+08:00
 
 ## 事件概览
 

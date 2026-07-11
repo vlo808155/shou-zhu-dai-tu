@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1beM76pEBL"
 rank: 7
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "5e8e8ea474343ae3558a"
+updated_at: "2026-07-11T20:30:08+08:00"
+content_fingerprint: "eee9b255ad181a7e1aec"
 ---
 
 [热点索引](README.md) / 风声鹤唳 / 这才是《The Other Side Of Paradise》原版MV！
 
 # 这才是《The Other Side Of Paradise》原版MV！
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 7 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 7 位 · 更新时间：2026-07-11T20:30:08+08:00
 
 ## 事件概览
 

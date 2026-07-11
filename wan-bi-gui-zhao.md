@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1zGTR6MEjp"
 rank: 6
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "c0973ebd626abb173b23"
+updated_at: "2026-07-11T20:30:08+08:00"
+content_fingerprint: "4d0c2cb838a287204a86"
 ---
 
 [热点索引](README.md) / 完璧归赵 / PC今日公测！《遗忘之海》PV「初航乐章」
 
 # PC今日公测！《遗忘之海》PV「初航乐章」
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 6 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 6 位 · 更新时间：2026-07-11T20:30:08+08:00
 
 ## 事件概览
 

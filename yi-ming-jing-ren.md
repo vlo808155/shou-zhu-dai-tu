@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1UjMn6hEXQ"
 rank: 8
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "5adccda8102d7a5ac209"
+updated_at: "2026-07-11T20:30:08+08:00"
+content_fingerprint: "bad05839bb863b9ac07f"
 ---
 
 [热点索引](README.md) / 一鸣惊人 / 《下一个是谁》第七季（1）
 
 # 《下一个是谁》第七季（1）
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 8 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 8 位 · 更新时间：2026-07-11T20:30:08+08:00
 
 ## 事件概览
 
@@ -28,7 +28,7 @@ content_fingerprint: "5adccda8102d7a5ac209"
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 8 位
-- 热度：2710735
+- 热度：2711818
 - 分类：日常
 - 固定索引：一鸣惊人（yi-ming-jing-ren）
 

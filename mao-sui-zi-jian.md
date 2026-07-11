@@ -10,15 +10,15 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%8F%91%E7%9A%84live%E5%9B%BE"
 rank: 7
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "8d34a59251efacf57522"
+updated_at: "2026-07-11T20:30:08+08:00"
+content_fingerprint: "8a287e86593b1fe4ba26"
 ---
 
 [热点索引](README.md) / 毛遂自荐 / 迪丽热巴工作室发的live图
 
 # 迪丽热巴工作室发的live图
 
-> 来源：微博热搜 · 榜单排名：第 7 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：微博热搜 · 榜单排名：第 7 位 · 更新时间：2026-07-11T20:30:08+08:00
 
 ## 事件概览
 
@@ -28,7 +28,7 @@ content_fingerprint: "8d34a59251efacf57522"
 
 - 来源平台：微博热搜
 - 当前排名：第 7 位
-- 热度：742132
+- 热度：896946
 - 分类：电影
 - 固定索引：毛遂自荐（mao-sui-zi-jian）
 

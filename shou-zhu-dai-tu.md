@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E6%B5%99%E6%B1%9F%E6%B9%96%E5%B7%9E%E5%B8%82%E9%95%BF%EF%BC%9A%E5%85%A8%E9%9D%A2%E8%BF%9B%E5%85%A5%E6%88%98%E6%97%B6%E7%8A%B6%E6%80%81&sa=fyb_news&rsv_dl=fyb_news"
 rank: 4
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "6dfc92d42dc6ee98cfbf"
+updated_at: "2026-07-11T20:30:08+08:00"
+content_fingerprint: "6c04bf02e79fbbeb678a"
 ---
 
 [热点索引](README.md) / 守株待兔 / 浙江湖州市长：全面进入战时状态
 
 # 浙江湖州市长：全面进入战时状态
 
-> 来源：百度热搜 · 榜单排名：第 4 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：百度热搜 · 榜单排名：第 4 位 · 更新时间：2026-07-11T20:30:08+08:00
 
 ## 事件概览
 
@@ -27,7 +27,7 @@ content_fingerprint: "6dfc92d42dc6ee98cfbf"
 
 - 来源平台：百度热搜
 - 当前排名：第 4 位
-- 热度：7424012
+- 热度：7423794
 - 固定索引：守株待兔（shou-zhu-dai-tu）
 
 ## 阅读关注点

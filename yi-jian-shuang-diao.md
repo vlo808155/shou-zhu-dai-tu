@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E6%97%A5%E6%9C%AC%E5%8F%AF%E5%9B%9E%E6%94%B6%E7%81%AB%E7%AE%AD%E7%9D%80%E9%99%86%E6%88%90%E5%8A%9F+%E4%BB%85%E9%A3%9E11%E7%B1%B3&sa=fyb_news&rsv_dl=fyb_news"
 rank: 8
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "0f31892e37b44b8f59db"
+updated_at: "2026-07-11T20:30:08+08:00"
+content_fingerprint: "2c188af797fdb5a4dba8"
 ---
 
 [热点索引](README.md) / 一箭双雕 / 日本可回收火箭着陆成功 仅飞11米
 
 # 日本可回收火箭着陆成功 仅飞11米
 
-> 来源：百度热搜 · 榜单排名：第 8 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：百度热搜 · 榜单排名：第 8 位 · 更新时间：2026-07-11T20:30:08+08:00
 
 ## 事件概览
 
@@ -27,7 +27,7 @@ content_fingerprint: "0f31892e37b44b8f59db"
 
 - 来源平台：百度热搜
 - 当前排名：第 8 位
-- 热度：7044519
+- 热度：7041816
 - 固定索引：一箭双雕（yi-jian-shuang-diao）
 
 ## 阅读关注点
