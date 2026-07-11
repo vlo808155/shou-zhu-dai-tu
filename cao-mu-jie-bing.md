@@ -1,20 +1,20 @@
 [热点索引](README.md)
 
-# 这才是《The Other Side Of Paradise》原版MV！
+# 《功夫女足》猫眼开分9.4
 
-> 来源：哔哩哔哩热门 · 排名：第 7 位 · 热度：1910521 · 分类：MV · 更新：2026-07-12T04:27:05+08:00
+> 来源：百度热搜 · 排名：第 7 位 · 热度：7137148 · 更新：2026-07-12T04:28:40+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“这才是《The Other Side Of Paradise》原版MV！”位列第 7 位，公开热度指标为 1910521，榜单分类为“MV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“《功夫女足》猫眼开分9.4”位列第 7 位，公开热度指标为 7137148。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：做了很久，但最后还是没达到预期效果。
+来源公开摘要显示：据猫眼专业版数据，电影《功夫女足》上映首日，总票房已破2亿，猫眼开画评分9.4分。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `MV`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
@@ -27,8 +27,8 @@
 
 - [台风“巴威”在浙江乐清二次登陆](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [“两倍的价格 我买100吨西瓜”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [救援期间冒雨吃饭的消防员找到了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [曝25岁南非国脚自杀离世](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [北京暴雨红色预警](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
 - [巴威逼近 上海已紧急撤离3.4万人](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
@@ -41,14 +41,14 @@
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.play.hengshemaoyi.cn/kongbu/0028042.htm)
 - [挪威主厨没想到会进8强](http://www.play.hengshemaoyi.cn/xiju/3193472.htm)
 - [世界杯半决赛，法国将对阵西班牙，强强对抗，谁会更胜一筹?](http://www.movie.hkepx.cn/xiju/5695874.htm)
-- [救援期间冒雨吃饭的消防员找到了](http://www.play.hengshemaoyi.cn/kongbu/9716007.htm)
+- [北京暴雨红色预警](http://www.play.hengshemaoyi.cn/kongbu/9716007.htm)
 - [妈妈去世4个月 女儿同样确诊红斑狼疮](http://www.play.hengshemaoyi.cn/kongbu/6976710.htm)
 - [《和最讨厌的人灵魂互换了》完整版](http://www.daogukj.com/6389351)
 - [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](http://www.movie.hkepx.cn/xiju/4891708.htm)
 - [日本可回收火箭小型实验机 RV-X「着陆成功」，日媒报道只飞了11米，这是什么水平？对其有何意义？](http://www.movie.hkepx.cn/xiju/9183020.htm)
-- [桃黑黑直播回应](http://www.daogukj.com/mgeudand/)
+- [南非25岁世界杯参赛球员去世](http://www.daogukj.com/mgeudand/)
 - [锐评100部恋爱番（求保护）](http://www.daogukj.com/thgbmsar/)
-- [浙江惊现“台风霞”粉紫色天空](http://www.movie.hkepx.cn/movie/7141685.htm)
+- [救援期间冒雨吃饭的消防员找到了](http://www.movie.hkepx.cn/movie/7141685.htm)
 - [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](http://www.movie.hkepx.cn/movie/8285250.htm)
 - [哈兰德PK凯恩 世一锋终极对决](http://www.play.hengshemaoyi.cn/kongbu/8845063.htm)
 - [你们觉得哪个菜系是八大菜系之首？](http://www.play.hengshemaoyi.cn/xiju/1186264.htm)
@@ -64,12 +64,12 @@
 - [上海中心千吨阻尼器开始摆动](http://www.movie.hkepx.cn/movie/4527568.htm)
 - [知名主持人喷周星驰新电影：好难看](http://www.play.hengshemaoyi.cn/xiju/6189163.htm)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.daogukj.com/0521779)
-- [丁程鑫说王俊凯太能存钱了](http://www.daogukj.com/5716979)
+- [广西洪水](http://www.daogukj.com/5716979)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.movie.hkepx.cn/movie/6813612.htm)
-- [为什么不能用炸弹摧毁台风](http://www.play.hengshemaoyi.cn/kongbu/0013525.htm)
+- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.play.hengshemaoyi.cn/kongbu/0013525.htm)
 - [梅里诺绝杀完葡萄牙又绝杀比利时](http://www.daogukj.com/sijbwiiz/)
 - [全国电力应急支援能力大幅提升](http://www.movie.hkepx.cn/xiju/5793926.htm)
-- [《功夫女足》猫眼开分9.4](http://www.movie.hkepx.cn/movie/5566595.htm)
+- [手麻脚麻真的要赶紧进医院](http://www.movie.hkepx.cn/movie/5566595.htm)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.movie.hkepx.cn/movie/7078471.htm)
 - [完整版 NIGHT DANCER 翻唱 【给爱豆做抽象MV】](http://www.play.hengshemaoyi.cn/kongbu/3140322.htm)
 - [好震撼的一句话瞬间醍醐灌顶](http://www.play.hengshemaoyi.cn/kongbu/9870126.htm)
@@ -80,7 +80,7 @@
 - [挪威VS英格兰：凯恩PK哈兰德](http://www.play.hengshemaoyi.cn/xiju/2382409.htm)
 - [镇干部接受采访全程挡脸：太像作秀了](http://www.daogukj.com/9886230)
 - [朝鲜通报特大腐败犯罪](http://www.play.hengshemaoyi.cn/kongbu/5207966.htm)
-- [广西洪水](http://www.movie.hkepx.cn/movie/7743518.htm)
+- [丁程鑫说王俊凯太能存钱了](http://www.movie.hkepx.cn/movie/7743518.htm)
 - [长征十号乙回收时为什么会冒出大量黑烟？](http://www.daogukj.com/dzqtqzgj/)
 - [【老番茄/某幻】你毕业啦！](http://www.play.hengshemaoyi.cn/kongbu/2288019.htm)
 - [中国癌症谱50年：“富癌”上升](http://www.play.hengshemaoyi.cn/xiju/9678725.htm)
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [这才是《The Other Side Of Paradise》原版MV！](https://b23.tv/BV1beM76pEBL)
+- [《功夫女足》猫眼开分9.4](https://www.baidu.com/s?wd=%E3%80%8A%E5%8A%9F%E5%A4%AB%E5%A5%B3%E8%B6%B3%E3%80%8B%E7%8C%AB%E7%9C%BC%E5%BC%80%E5%88%869.4&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9f89243c20d2fc0b18d3 -->
+<!-- content-fingerprint: 7f49c9565e48147b73bd -->

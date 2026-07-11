@@ -2,11 +2,11 @@
 
 # 《潜伏》里的李涯很能干，但是站长为什么更喜欢余则成？
 
-> 来源：知乎热榜 · 排名：第 6 位 · 热度：143 万热度 · 分类：问答 · 更新：2026-07-12T04:27:05+08:00
+> 来源：知乎热榜 · 排名：第 6 位 · 热度：142 万热度 · 分类：问答 · 更新：2026-07-12T04:28:40+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“《潜伏》里的李涯很能干，但是站长为什么更喜欢余则成？”位列第 6 位，公开热度指标为 143 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“《潜伏》里的李涯很能干，但是站长为什么更喜欢余则成？”位列第 6 位，公开热度指标为 142 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -19,9 +19,9 @@
 ## 相关热点
 
 - [《下一个是谁》第七季（1）](wei-wei-jiu-zhao.md)
-- [《功夫女足》猫眼开分9.4](wan-bi-gui-zhao.md)
-- [手麻脚麻真的要赶紧进医院](fu-jing-qing-zui.md)
-- [为什么不能用炸弹摧毁台风](mao-sui-zi-jian.md)
+- [手麻脚麻真的要赶紧进医院](wan-bi-gui-zhao.md)
+- [为什么不能用炸弹摧毁台风](fu-jing-qing-zui.md)
+- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](mao-sui-zi-jian.md)
 
 ## 站内推荐
 
@@ -61,11 +61,11 @@
 - [台风巴威已登陆](http://www.daogukj.com/2710404)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.play.hengshemaoyi.cn/kongbu/9250075.htm)
 - [女孩遭前男友杀害被逼每日视频8次](http://www.daogukj.com/nicuyzrv/)
-- [《功夫女足》猫眼开分9.4](http://www.movie.hkepx.cn/xiju/4031070.htm)
-- [桃黑黑直播回应](http://www.movie.hkepx.cn/movie/5688904.htm)
+- [手麻脚麻真的要赶紧进医院](http://www.movie.hkepx.cn/xiju/4031070.htm)
+- [南非25岁世界杯参赛球员去世](http://www.movie.hkepx.cn/movie/5688904.htm)
 - [霸占车位女干部已停职](http://www.play.hengshemaoyi.cn/xiju/3278531.htm)
 - [全国电力应急支援能力大幅提升](http://www.play.hengshemaoyi.cn/xiju/4379435.htm)
-- [广西洪水](http://www.play.hengshemaoyi.cn/xiju/1426673.htm)
+- [丁程鑫说王俊凯太能存钱了](http://www.play.hengshemaoyi.cn/xiju/1426673.htm)
 - [妈妈去世4个月 女儿同样确诊红斑狼疮](http://www.play.hengshemaoyi.cn/kongbu/7958910.htm)
 - [杭州20分钟变了4个色](http://www.play.hengshemaoyi.cn/xiju/4271068.htm)
 - [《功夫女足》票房突破 2 亿，你觉得最终票房能到多少？](http://www.play.hengshemaoyi.cn/kongbu/6292535.htm)
@@ -81,8 +81,8 @@
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.play.hengshemaoyi.cn/kongbu/6481359.htm)
 - [朝鲜通报特大腐败犯罪](http://www.play.hengshemaoyi.cn/kongbu/8096623.htm)
 - [浙江海边掀起10多米巨浪](http://www.play.hengshemaoyi.cn/kongbu/3203910.htm)
-- [为什么不能用炸弹摧毁台风](http://www.play.hengshemaoyi.cn/kongbu/0688447.htm)
-- [曝25岁南非国脚自杀离世](http://www.movie.hkepx.cn/xiju/9131499.htm)
+- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.play.hengshemaoyi.cn/kongbu/0688447.htm)
+- [“两倍的价格 我买100吨西瓜”](http://www.movie.hkepx.cn/xiju/9131499.htm)
 - [“我不在的日子里，你们很嚣张啊”](http://www.daogukj.com/7162593)
 - [功夫女足票房已破2亿](http://www.movie.hkepx.cn/xiju/3395220.htm)
 - [张辽为何没有成为曹魏军事集团的核心？](http://www.daogukj.com/5265166)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 82bb382f3a6fe39753e6 -->
+<!-- content-fingerprint: 8e9fb007708c1ae9764b -->

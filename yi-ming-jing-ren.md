@@ -2,11 +2,11 @@
 
 # 巴威最新位置
 
-> 来源：微博热搜 · 排名：第 9 位 · 热度：104668 · 分类：民生新闻 · 更新：2026-07-12T04:27:05+08:00
+> 来源：微博热搜 · 排名：第 9 位 · 热度：104618 · 分类：民生新闻 · 更新：2026-07-12T04:28:40+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“巴威最新位置”位列第 9 位，公开热度指标为 104668，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“巴威最新位置”位列第 9 位，公开热度指标为 104618，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -26,10 +26,10 @@
 ## 站内推荐
 
 - [台风巴威在浙江台州玉环登陆，中心附近最大风力 13 级，你家那里怎么样？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [《功夫女足》猫眼开分9.4](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [手麻脚麻真的要赶紧进医院](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
 - [女孩遭前男友杀害被逼每日视频8次](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [丁程鑫说王俊凯太能存钱了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [杭州 台风](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [广西洪水](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [诺斯科娃温网女单冠军](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
@@ -50,16 +50,16 @@
 - [万物都能撞脸哈兰德](http://www.play.hengshemaoyi.cn/xiju/8320007.htm)
 - [为什么西班牙蓝鳍金枪鱼被公认为高端食材？有什么方法让普通人也能平价吃到正宗蓝鳍金枪鱼？](http://www.play.hengshemaoyi.cn/kongbu/8567673.htm)
 - [锐评100部恋爱番（求保护）](http://www.movie.hkepx.cn/xiju/6034585.htm)
-- [曝25岁南非国脚自杀离世](http://www.movie.hkepx.cn/xiju/6364290.htm)
+- [“两倍的价格 我买100吨西瓜”](http://www.movie.hkepx.cn/xiju/6364290.htm)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/0846089.htm)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.daogukj.com/1651835)
-- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.daogukj.com/amghneqm/)
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.movie.hkepx.cn/xiju/4371729.htm)
+- [这才是《The Other Side Of Paradise》原版MV！](http://www.daogukj.com/amghneqm/)
+- [《功夫女足》猫眼开分9.4](http://www.movie.hkepx.cn/xiju/4371729.htm)
 - [周星驰林子聪“callback”少林足球](http://www.daogukj.com/gzlhbupb/)
-- [手麻脚麻真的要赶紧进医院](http://www.daogukj.com/dhxrjyno/)
-- [为什么不能用炸弹摧毁台风](http://www.play.hengshemaoyi.cn/kongbu/0642618.htm)
+- [为什么不能用炸弹摧毁台风](http://www.daogukj.com/dhxrjyno/)
+- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.play.hengshemaoyi.cn/kongbu/0642618.htm)
 - [《潜伏》里的李涯很能干，但是站长为什么更喜欢余则成？](http://www.play.hengshemaoyi.cn/xiju/9001524.htm)
-- [丁程鑫说王俊凯太能存钱了](http://www.movie.hkepx.cn/xiju/9522798.htm)
+- [广西洪水](http://www.movie.hkepx.cn/xiju/9522798.htm)
 - [原来疯狂吃零食的日子只有十年](http://www.play.hengshemaoyi.cn/xiju/7270146.htm)
 - [时隔三十年周星驰刘嘉玲再度合作](http://www.movie.hkepx.cn/xiju/6713581.htm)
 - [台风巴威二次登陆](http://www.movie.hkepx.cn/xiju/1107922.htm)
@@ -71,12 +71,12 @@
 - [上海中心1000吨阻尼器开始摆动](http://www.daogukj.com/5649815)
 - [无人机吊起2人神图系AI合成](http://www.movie.hkepx.cn/movie/6082292.htm)
 - [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](http://www.daogukj.com/7096702)
-- [《功夫女足》猫眼开分9.4](http://www.movie.hkepx.cn/xiju/6645727.htm)
+- [手麻脚麻真的要赶紧进医院](http://www.movie.hkepx.cn/xiju/6645727.htm)
 - [中国癌症谱50年：“富癌”上升](http://www.play.hengshemaoyi.cn/xiju/6625835.htm)
 - [福袋不发飙升10万人+！今天这局偷家卡牌，大司马人气彻底重回巅峰](http://www.daogukj.com/qkznereg/)
 - [台风](http://www.movie.hkepx.cn/xiju/8695048.htm)
-- [“两倍的价格 我买100吨西瓜”](http://www.play.hengshemaoyi.cn/xiju/6994271.htm)
-- [广西洪水](http://www.play.hengshemaoyi.cn/kongbu/9150882.htm)
+- [曝25岁南非国脚自杀离世](http://www.play.hengshemaoyi.cn/xiju/6994271.htm)
+- [丁程鑫说王俊凯太能存钱了](http://www.play.hengshemaoyi.cn/kongbu/9150882.htm)
 - [你觉得孩子住校好还是走读好？](http://www.movie.hkepx.cn/xiju/4430995.htm)
 - [挪威主厨没想到会进8强](http://www.play.hengshemaoyi.cn/xiju/0984127.htm)
 - [日本可回收火箭小型实验机 RV-X「着陆成功」，日媒报道只飞了11米，这是什么水平？对其有何意义？](http://www.play.hengshemaoyi.cn/kongbu/0936148.htm)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: cf86e5fb57f78a0310af -->
+<!-- content-fingerprint: 07b2c15f01e5a96a60f9 -->

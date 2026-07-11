@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 曝25岁南非国脚自杀离世
+# “两倍的价格 我买100吨西瓜”
 
-> 来源：百度热搜 · 排名：第 8 位 · 热度：7047796 · 更新：2026-07-12T04:27:05+08:00
+> 来源：百度热搜 · 排名：第 8 位 · 热度：7040971 · 更新：2026-07-12T04:28:40+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“曝25岁南非国脚自杀离世”位列第 8 位，公开热度指标为 7047796。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，““两倍的价格 我买100吨西瓜””位列第 8 位，公开热度指标为 7040971。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：北京时间7月11日晚，一则令人遗憾的噩耗传来。来自多家非洲媒体报道，效力于马梅洛迪日落的25岁南非国脚杰登·亚当斯不幸离世，年仅25岁。本届世界杯上，亚当斯为南非队出战3场比赛。据非洲记者报道，杰登·亚当斯死因是上吊自杀。
+百度热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -44,7 +44,7 @@
 - [完整版 NIGHT DANCER 翻唱 【给爱豆做抽象MV】](http://www.movie.hkepx.cn/movie/5771230.htm)
 - [你们觉得哪个菜系是八大菜系之首？](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
 - [《下一个是谁》第七季（1）](http://www.daogukj.com/0519981)
-- [救援期间冒雨吃饭的消防员找到了](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
+- [北京暴雨红色预警](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
 - [25岁南非国脚亚当斯自杀离世](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
 - [冉莹颖邹市明这段看窒息了](http://www.movie.hkepx.cn/movie/5740018.htm)
 - [上海台风](http://www.movie.hkepx.cn/movie/2758437.htm)
@@ -69,21 +69,21 @@
 - [吾从人族来，自当为人族竭尽全力！](http://www.movie.hkepx.cn/xiju/9277141.htm)
 - [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](http://www.movie.hkepx.cn/xiju/9995911.htm)
 - [特大暴雨来了：台风巴威登陆浙江玉环，危险的暴雨才刚刚开始](http://www.movie.hkepx.cn/xiju/4442165.htm)
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
+- [《功夫女足》猫眼开分9.4](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
 - [温州台风](http://www.daogukj.com/sowbdmby/)
-- [广西洪水](http://www.daogukj.com/cfqiduxu/)
+- [丁程鑫说王俊凯太能存钱了](http://www.daogukj.com/cfqiduxu/)
 - [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/4880279.htm)
 - [《功夫女足》票房突破 2 亿，你觉得最终票房能到多少？](http://www.play.hengshemaoyi.cn/xiju/4009878.htm)
 - [《和最讨厌的人灵魂互换了》完整版](http://www.play.hengshemaoyi.cn/kongbu/3318753.htm)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.movie.hkepx.cn/movie/5360276.htm)
-- [手麻脚麻真的要赶紧进医院](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
+- [为什么不能用炸弹摧毁台风](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
 - [台风巴威在浙江玉环登陆](http://www.movie.hkepx.cn/movie/8146575.htm)
 - [哈兰德PK凯恩 世一锋终极对决](http://www.movie.hkepx.cn/xiju/8000972.htm)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.movie.hkepx.cn/xiju/2505032.htm)
-- [为什么不能用炸弹摧毁台风](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
+- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.daogukj.com/maldgqjz/)
 - [女孩遭前男友杀害被逼每日视频8次](http://www.daogukj.com/ulnghjws/)
-- [“两倍的价格 我买100吨西瓜”](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
+- [曝25岁南非国脚自杀离世](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
 - [巴威最新位置](http://www.movie.hkepx.cn/movie/7753114.htm)
 - [原来疯狂吃零食的日子只有十年](http://www.play.hengshemaoyi.cn/xiju/2822041.htm)
 
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [曝25岁南非国脚自杀离世](https://www.baidu.com/s?wd=%E6%9B%9D25%E5%B2%81%E5%8D%97%E9%9D%9E%E5%9B%BD%E8%84%9A%E8%87%AA%E6%9D%80%E7%A6%BB%E4%B8%96&sa=fyb_news&rsv_dl=fyb_news)
+- [“两倍的价格 我买100吨西瓜”](https://www.baidu.com/s?wd=%E2%80%9C%E4%B8%A4%E5%80%8D%E7%9A%84%E4%BB%B7%E6%A0%BC+%E6%88%91%E4%B9%B0100%E5%90%A8%E8%A5%BF%E7%93%9C%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 148e5d7539a6ae8a668b -->
+<!-- content-fingerprint: 06064676d066102466be -->
