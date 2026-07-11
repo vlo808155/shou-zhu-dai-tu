@@ -9,13 +9,13 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E5%8C%97%E4%BA%AC%E6%9A%B4%E9%9B%A8%E7%BA%A2%E8%89%B2%E9%A2%84%E8%AD%A6&sa=fyb_news&rsv_dl=fyb_news"
 rank: 6
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "f36ec181defe469b08cd"
+updated_at: "2026-07-11T20:17:57+08:00"
+content_fingerprint: "2bd2400ab205f92c11b8"
 ---
 
 # 北京暴雨红色预警
 
-> 来源：百度热搜 · 榜单排名：第 6 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：百度热搜 · 榜单排名：第 6 位 · 更新时间：2026-07-11T20:17:57+08:00
 
 ## 热点正文
 
@@ -25,7 +25,7 @@ content_fingerprint: "f36ec181defe469b08cd"
 
 - 来源平台：百度热搜
 - 当前排名：第 6 位
-- 热度：7234086
+- 热度：7236448
 - 固定索引：负荆请罪（fu-jing-qing-zui）
 
 ## 相关标签

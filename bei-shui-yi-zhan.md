@@ -9,13 +9,13 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E6%9B%9D%E4%BD%99%E6%89%BF%E4%B8%9C%E5%86%85%E9%83%A8%E7%BE%A4%E5%8F%91%E9%A3%99&sa=fyb_news&rsv_dl=fyb_news"
 rank: 5
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "911979c663c3922a8a50"
+updated_at: "2026-07-11T20:17:57+08:00"
+content_fingerprint: "e8e6c94e36b389da7c14"
 ---
 
 # 曝余承东内部群发飙
 
-> 来源：百度热搜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：百度热搜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:17:57+08:00
 
 ## 热点正文
 
@@ -25,7 +25,7 @@ content_fingerprint: "911979c663c3922a8a50"
 
 - 来源平台：百度热搜
 - 当前排名：第 5 位
-- 热度：7329446
+- 热度：7333250
 - 固定索引：背水一战（bei-shui-yi-zhan）
 
 ## 相关标签

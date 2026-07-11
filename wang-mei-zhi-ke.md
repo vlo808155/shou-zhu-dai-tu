@@ -10,13 +10,13 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=%E6%9D%AD%E5%B7%9E%20%E5%8F%B0%E9%A3%8E"
 rank: 5
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "fd2a4aac433e68c03905"
+updated_at: "2026-07-11T20:17:57+08:00"
+content_fingerprint: "fa4a4bcfd047a83b4043"
 ---
 
 # 杭州 台风
 
-> 来源：微博热搜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：微博热搜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:17:57+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@ content_fingerprint: "fd2a4aac433e68c03905"
 
 - 来源平台：微博热搜
 - 当前排名：第 5 位
-- 热度：1285042
+- 热度：1293342
 - 分类：民生新闻
 - 固定索引：望梅止渴（wang-mei-zhi-ke）
 

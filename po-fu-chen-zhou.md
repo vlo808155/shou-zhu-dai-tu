@@ -10,13 +10,13 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1LoN76dEmF"
 rank: 5
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "8b07ef578ee160d5b24e"
+updated_at: "2026-07-11T20:17:57+08:00"
+content_fingerprint: "b6ecedca17786eb1e870"
 ---
 
 # 去了一趟得克萨斯州。
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:17:57+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@ content_fingerprint: "8b07ef578ee160d5b24e"
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 5 位
-- 热度：2017527
+- 热度：2034209
 - 分类：数码
 - 固定索引：破釜沉舟（po-fu-chen-zhou）
 

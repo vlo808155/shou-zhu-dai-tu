@@ -10,13 +10,13 @@ tags:
 source: "今日头条热榜"
 source_url: "https://webcast-open.douyin.com/open/media_live/282773369501"
 rank: 5
-updated_at: "2026-07-11T20:11:28+08:00"
-content_fingerprint: "594b75de1401943c9c5a"
+updated_at: "2026-07-11T20:17:57+08:00"
+content_fingerprint: "9f2ad768907fa6ca2b9f"
 ---
 
 # 巴威路线东移
 
-> 来源：今日头条热榜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:11:28+08:00
+> 来源：今日头条热榜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:17:57+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@ content_fingerprint: "594b75de1401943c9c5a"
 
 - 来源平台：今日头条热榜
 - 当前排名：第 5 位
-- 热度：60162476
+- 热度：60587794
 - 分类：热门事件
 - 固定索引：闻鸡起舞（wen-ji-qi-wu）
 
