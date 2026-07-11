@@ -2,11 +2,11 @@
 
 # PC今日公测！《遗忘之海》PV「初航乐章」
 
-> 来源：哔哩哔哩热门 · 排名：第 7 位 · 热度：10511299 · 分类：GMV · 更新：2026-07-11T21:13:48+08:00
+> 来源：哔哩哔哩热门 · 排名：第 7 位 · 热度：10513210 · 分类：GMV · 更新：2026-07-11T21:14:32+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“PC今日公测！《遗忘之海》PV「初航乐章」”位列第 7 位，公开热度指标为 10511299，榜单分类为“GMV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“PC今日公测！《遗忘之海》PV「初航乐章」”位列第 7 位，公开热度指标为 10513210，榜单分类为“GMV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：PC今日公测，移动端定档7月23日，船长海上见！ 听，海风在今日也格外喧嚣—— 是重逢的人们在呼喊吗？ 还是启航的鸣笛交织过境？ 整个奥托皮亚港口上，鲜有人分得清，但更少有人在意。 他们的注意力，被崖边的蓝波乐队吸引： 这首「初航乐章」，见证我们的初次重逢。 ——公测已开启，移动端7月23日见—— 参与公测活动，免费获取100抽。
 
@@ -38,12 +38,12 @@
 
 - [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](http://www.abc.com/dxeovghl.html)
 - [15岁男生因女同桌送画遭围殴](http://www.abc.com/bngatiaa.html)
-- [巴威路线东移](http://www.abc.com/wfufhzyt.html)
+- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/wfufhzyt.html)
 - [去了一趟得克萨斯州。](http://www.abc.com/agtixtao.html)
 - [150斤男记者在浙江沿海被吹到变形](http://www.abc.com/7074846.html)
 - [TF四代考核人气分](http://www.abc.com/txnyhhfa.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/inyzqhhu.html)
-- [应对台风上海转移3.4万人](http://www.abc.com/lxfcoobj.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/inyzqhhu.html)
+- [南非25岁世界杯参赛球员去世](http://www.abc.com/lxfcoobj.html)
 - [前瞻：三狮军团能否锁死哈兰德](http://www.abc.com/yapavusf.html)
 - [暑期防汛科普小知识请查收](http://www.abc.com/dasuxbzd.html)
 - [巴威最新位置](http://www.abc.com/zfysykzv.html)
@@ -65,13 +65,13 @@
 - [教育部：“教师全面硕士化”系谣言](http://www.abc.com/0373277.html)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.abc.com/9559866.html)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.abc.com/foqykstn.html)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/ecynbiup.html)
+- [巴威路线东移](http://www.abc.com/ecynbiup.html)
 - [浙江湖州市长：全面进入战时状态](http://www.abc.com/nujvioso.html)
 - [朝鲜通报特大腐败犯罪](http://www.abc.com/3170530.html)
 - [金鳞岂是池中物，哄好岳母便化龙](http://www.abc.com/edgjdisy.html)
 - [各地全力以赴防范台风巴威](http://www.abc.com/9801141.html)
 - [最新研判！台风巴威登陆时间或提前](http://www.abc.com/nmidmuny.html)
-- [“26版西游记”团队回应爆火出圈](http://www.abc.com/0074170.html)
+- [博主：泽连斯基避谈乌国内战损情况](http://www.abc.com/0074170.html)
 - [杭州 台风](http://www.abc.com/2134868.html)
 - [霸占车位女干部已停职](http://www.abc.com/cpsrmdkp.html)
 - [《大扫除是你的谎言》](http://www.abc.com/uubooelq.html)
@@ -81,7 +81,7 @@
 - [杭州：台风影响期间非必要不外出](http://www.abc.com/wnkaqujv.html)
 - [直击东北超：沈阳vs哈尔滨](http://www.abc.com/1157519.html)
 - [巴威过境日本 大树连根拔起雨横飞](http://www.abc.com/3468376.html)
-- [长沙霸占车位公职人员被停职](http://www.abc.com/xirwqolu.html)
+- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/xirwqolu.html)
 - [台风巴威1小时走30到50公里](http://www.abc.com/9142569.html)
 - [《下一个是谁》第七季（1）](http://www.abc.com/svccpfjc.html)
 - [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](http://www.abc.com/7805667.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 12cc4243bbadff134b8f -->
+<!-- content-fingerprint: 31b509210c8fd5867fa8 -->

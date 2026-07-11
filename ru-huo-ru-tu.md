@@ -2,7 +2,7 @@
 
 # 巴威过境日本 大树连根拔起雨横飞
 
-> 来源：百度热搜 · 排名：第 7 位 · 热度：7140273 · 更新：2026-07-11T21:13:48+08:00
+> 来源：百度热搜 · 排名：第 7 位 · 热度：7140273 · 更新：2026-07-11T21:14:32+08:00
 
 ## 热点正文
 
@@ -43,11 +43,11 @@
 - [美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？](http://www.abc.com/1537608.html)
 - [【TF家族练习生】《突围II破局》EP03：来自舞台的邀请函（上）](http://www.abc.com/traddqfj.html)
 - [迪丽热巴工作室发的live图](http://www.abc.com/jsdrwnzg.html)
-- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/8676999.html)
+- [应对台风上海转移3.4万人](http://www.abc.com/8676999.html)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.abc.com/mvizxzvf.html)
 - [北京9区市民非必要不外出](http://www.abc.com/2602284.html)
 - [台风来袭科学避险完整指南](http://www.abc.com/aoeqybia.html)
-- [应对台风上海转移3.4万人](http://www.abc.com/otiltcgf.html)
+- [南非25岁世界杯参赛球员去世](http://www.abc.com/otiltcgf.html)
 - [16岁高中生踢门玩闹后被捅杀](http://www.abc.com/5219002.html)
 - [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](http://www.abc.com/1533579.html)
 - [路怒症被反杀，真的很解气](http://www.abc.com/znshawwq.html)
@@ -59,7 +59,7 @@
 - [朝鲜通报特大腐败犯罪](http://www.abc.com/9902088.html)
 - [曝25岁南非国脚自杀离世](http://www.abc.com/6783274.html)
 - [功夫女足票房已破2亿](http://www.abc.com/ypkyoqwy.html)
-- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/heuhwhix.html)
+- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/heuhwhix.html)
 - [直击东北超：沈阳vs哈尔滨](http://www.abc.com/6200840.html)
 - [巴威发威了暴雨狂风高温一起来](http://www.abc.com/oiwrczth.html)
 - [暑期防汛科普小知识请查收](http://www.abc.com/yiazqzap.html)
@@ -69,7 +69,7 @@
 - [长沙市体育局干部彭某某被停职](http://www.abc.com/7702428.html)
 - [日本可回收火箭着陆成功 仅飞11米](http://www.abc.com/ngglgpvw.html)
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](http://www.abc.com/0013895.html)
-- [“26版西游记”团队回应爆火出圈](http://www.abc.com/ymhnpxmq.html)
+- [博主：泽连斯基避谈乌国内战损情况](http://www.abc.com/ymhnpxmq.html)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.abc.com/5105527.html)
 - [浙江惊现“台风霞”粉紫色天空](http://www.abc.com/7324229.html)
 - [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](http://www.abc.com/7134926.html)
@@ -77,7 +77,7 @@
 - [台风巴威1小时走30到50公里](http://www.abc.com/fldrbqla.html)
 - [哈兰德PK凯恩 世一锋终极对决](http://www.abc.com/2634833.html)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.abc.com/sheudkxo.html)
-- [长沙霸占车位公职人员被停职](http://www.abc.com/ggrzkkrh.html)
+- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/ggrzkkrh.html)
 - [没有人！比我！更懂！重庆！](http://www.abc.com/9092599.html)
 - [小米澎程起售价预测](http://www.abc.com/pvjbfxdf.html)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.abc.com/mjcbcyzo.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: da910c230df9063b3e09 -->
+<!-- content-fingerprint: 31f9c192f54e2f19246c -->
