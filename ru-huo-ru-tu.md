@@ -1,48 +1,16 @@
----
-title: "巴威过境日本 大树连根拔起雨横飞"
-description: "超强台风“巴威”7月11日过境日本冲绳先岛群岛，大树被连根拔起，暴雨导致雨水横飞，6米高巨浪冲毁防波堤。"
-keywords: "百度热搜, 实时热搜, 热点资讯, 如火如荼, ru-huo-ru-tu"
-tags:
-  - "百度热搜"
-  - "实时热搜"
-  - "热点资讯"
-source: "百度热搜"
-source_url: "https://www.baidu.com/s?wd=%E5%B7%B4%E5%A8%81%E8%BF%87%E5%A2%83%E6%97%A5%E6%9C%AC+%E5%A4%A7%E6%A0%91%E8%BF%9E%E6%A0%B9%E6%8B%94%E8%B5%B7%E9%9B%A8%E6%A8%AA%E9%A3%9E&sa=fyb_news&rsv_dl=fyb_news"
-rank: 7
-updated_at: "2026-07-11T20:51:28+08:00"
-content_fingerprint: "968418884854cf307882"
----
-
-[热点索引](README.md) / 如火如荼 / 巴威过境日本 大树连根拔起雨横飞
+[热点索引](README.md)
 
 # 巴威过境日本 大树连根拔起雨横飞
 
-> 来源：百度热搜 · 榜单排名：第 7 位 · 更新时间：2026-07-11T20:51:28+08:00
-
-## 事件概览
-
-超强台风“巴威”7月11日过境日本冲绳先岛群岛，大树被连根拔起，暴雨导致雨水横飞，6米高巨浪冲毁防波堤。
+> 来源：百度热搜 · 排名：第 7 位 · 热度：7137526 · 更新：2026-07-11T20:56:41+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“巴威过境日本 大树连根拔起雨横飞”位列第 7 位，公开热度指标为 7140712。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“巴威过境日本 大树连根拔起雨横飞”位列第 7 位，公开热度指标为 7137526。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：超强台风“巴威”7月11日过境日本冲绳先岛群岛，大树被连根拔起，暴雨导致雨水横飞，6米高巨浪冲毁防波堤。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
-
-## 当前榜单信息
-
-- 来源平台：百度热搜
-- 当前排名：第 7 位
-- 热度：7140712
-- 固定索引：如火如荼（ru-huo-ru-tu）
-
-## 阅读关注点
-
-- 该话题当前位于百度热搜第 7 位，排名会随实时热度变化。
-- 阅读时应区分榜单热度与事实结论，重要信息以原始来源和权威发布为准。
-- 后续进展可能改变现有信息，页面会在下一次榜单采集时更新。
 
 ## 相关标签
 
@@ -50,30 +18,23 @@ content_fingerprint: "968418884854cf307882"
 
 ## 相关热点
 
-- [功夫女足票房已破2亿](yi-gu-zuo-qi.md)（一鼓作气）
-- [哈兰德能率挪威淘汰英格兰吗](yi-zi-qian-jin.md)（一字千金）
-- [如何评价周星驰执导、编剧的电影《功夫女足》？](yi-fan-feng-shun.md)（一帆风顺）
-- [这才是《The Other Side Of Paradise》原版MV！](yi-ming-jing-ren.md)（一鸣惊人）
+- [南非25岁世界杯参赛球员去世](yi-gu-zuo-qi.md)
+- [哈兰德能率挪威淘汰英格兰吗](yi-zi-qian-jin.md)
+- [长征十号乙回收时为什么会冒出大量黑烟？](yi-fan-feng-shun.md)
+- [这才是《The Other Side Of Paradise》原版MV！](yi-ming-jing-ren.md)
 
-## 前后篇导航
+## 站内推荐
 
-- 上一篇：[PC今日公测！《遗忘之海》PV「初航乐章」](feng-sheng-he-li.md)（风声鹤唳）
-- 下一篇：[功夫女足票房已破2亿](yi-gu-zuo-qi.md)（一鼓作气）
+- [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [日本可回收火箭着陆成功 仅飞11米](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [最新研判！台风巴威登陆时间或提前](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [小米澎程起售价预测](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
-## 热点仓库导航
-
-- [shan-qing-shui-xiu.md](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)（山清水秀）
-- [ru-huo-ru-tu.md](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)（如火如荼）
-- [chao-san-mu-si.md](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)（朝三暮四）
-- [jiao-ta-shi-di.md](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)（脚踏实地）
-- [miao-bi-sheng-hua.md](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)（妙笔生花）
-
-## 标签扩展阅读
-
-以下链接按照本页标签从 `url.txt` 模板生成，共 50 条。
+## 相关资讯
 
 <details>
-<summary>查看 50 条标签相关链接</summary>
+<summary>展开更多相关内容</summary>
 
 - [巴威过境日本 大树连根拔起雨横飞](https://www.abc.com/4824219.html)
 - [巴威过境日本 大树连根拔起雨横飞](https://www.abc.com/jrkgtzly.html)
@@ -128,8 +89,10 @@ content_fingerprint: "968418884854cf307882"
 
 </details>
 
-## 来源与延伸阅读
+## 原始来源
 
 - [巴威过境日本 大树连根拔起雨横飞](https://www.baidu.com/s?wd=%E5%B7%B4%E5%A8%81%E8%BF%87%E5%A2%83%E6%97%A5%E6%9C%AC+%E5%A4%A7%E6%A0%91%E8%BF%9E%E6%A0%B9%E6%8B%94%E8%B5%B7%E9%9B%A8%E6%A8%AA%E9%A3%9E&sa=fyb_news&rsv_dl=fyb_news)
 
-本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
+完整信息及后续变化请以原始来源为准。
+
+<!-- content-fingerprint: 63dea41a1a147d085da0 -->

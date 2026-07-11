@@ -1,50 +1,16 @@
----
-title: "为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？"
-description: "“为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？”目前位于知乎热榜热门榜单第 5 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。"
-keywords: "知乎热榜, 实时热搜, 热点资讯, 问答, 卧薪尝胆, wo-xin-chang-dan"
-tags:
-  - "知乎热榜"
-  - "实时热搜"
-  - "热点资讯"
-  - "问答"
-source: "知乎热榜"
-source_url: "https://www.zhihu.com/question/2055338128379007237"
-rank: 5
-updated_at: "2026-07-11T20:51:28+08:00"
-content_fingerprint: "401ad0b19ba4672b222a"
----
+[热点索引](README.md)
 
-[热点索引](README.md) / 卧薪尝胆 / 为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？
+# 如何评价周星驰执导、编剧的电影《功夫女足》？
 
-# 为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？
-
-> 来源：知乎热榜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:51:28+08:00
-
-## 事件概览
-
-“为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？”目前位于知乎热榜热门榜单第 5 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。
+> 来源：知乎热榜 · 排名：第 5 位 · 热度：430 万热度 · 分类：问答 · 更新：2026-07-11T20:56:41+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？”位列第 5 位，公开热度指标为 446 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何评价周星驰执导、编剧的电影《功夫女足》？”位列第 5 位，公开热度指标为 430 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
-
-## 当前榜单信息
-
-- 来源平台：知乎热榜
-- 当前排名：第 5 位
-- 热度：446 万热度
-- 分类：问答
-- 固定索引：卧薪尝胆（wo-xin-chang-dan）
-
-## 阅读关注点
-
-- 该话题当前位于知乎热榜第 5 位，排名会随实时热度变化。
-- 阅读时应区分榜单热度与事实结论，重要信息以原始来源和权威发布为准。
-- 后续进展可能改变现有信息，页面会在下一次榜单采集时更新。
 
 ## 相关标签
 
@@ -52,86 +18,81 @@ content_fingerprint: "401ad0b19ba4672b222a"
 
 ## 相关热点
 
-- [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](po-fu-chen-zhou.md)（破釜沉舟）
-- [曝余承东内部群发飙](bei-shui-yi-zhan.md)（背水一战）
-- [长沙市体育局干部彭某某被停职](zhi-shang-tan-bing.md)（纸上谈兵）
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](wei-wei-jiu-zhao.md)（围魏救赵）
+- [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](po-fu-chen-zhou.md)
+- [曝余承东内部群发飙](bei-shui-yi-zhan.md)
+- [长沙市体育局干部彭某某被停职](zhi-shang-tan-bing.md)
+- [巴威路线东移](wei-wei-jiu-zhao.md)
 
-## 前后篇导航
+## 站内推荐
 
-- 上一篇：[25岁南非国脚亚当斯自杀离世](wen-ji-qi-wu.md)（闻鸡起舞）
-- 下一篇：[当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](po-fu-chen-zhou.md)（破釜沉舟）
+- [浙江福建的朋友们，等待台风来临是一种什么心情？它一拖再拖都还没来，是不是有点烦？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [PC今日公测！《遗忘之海》PV「初航乐章」](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [去了一趟得克萨斯州。](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [北京9区市民非必要不外出](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
-## 热点仓库导航
-
-- [si-hai-wei-jia.md](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)（四海为家）
-- [wo-xin-chang-dan.md](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)（卧薪尝胆）
-- [mai-du-huan-zhu.md](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)（买椟还珠）
-- [nang-ying-ying-xue.md](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)（囊萤映雪）
-- [xiong-you-cheng-zhu.md](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)（胸有成竹）
-
-## 标签扩展阅读
-
-以下链接按照本页标签从 `url.txt` 模板生成，共 50 条。
+## 相关资讯
 
 <details>
-<summary>查看 50 条标签相关链接</summary>
+<summary>展开更多相关内容</summary>
 
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/7028878.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/zqveysbs.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/nhjztkbt.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/8343306.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/hvznaqci.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/0592008.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/turvmruw.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/guncligv.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/1167182.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/inhtcomx.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/qbpnubtc.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/1717612.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/5075095.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/2595423.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/ayyqznht.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/ksktesyh.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/pekgnrss.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/1320124.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/3815458.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/bbqxsamp.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/wdxqiocu.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/lprgijme.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/ptjguezu.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/5549067.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/4833521.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/9612232.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/3737828.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/przenscu.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/ozwrlqer.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/zywduvmv.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/2745096.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/erpboeyy.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/nzdrpawy.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/2482394.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/gkjgdtji.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/4953530.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/8482492.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/mjytydhh.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/cxwpsjtw.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/rrimfwaj.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/qxrwtcxg.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/oaqhifmu.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/yjstpuzf.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/1497019.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/afdidden.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/2056271.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/vjzciwot.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/1593140.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/zlqvxecj.html)
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/7251887.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/7028878.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/zqveysbs.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/nhjztkbt.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/8343306.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/hvznaqci.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/0592008.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/turvmruw.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/guncligv.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/1167182.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/inhtcomx.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/qbpnubtc.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/1717612.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/5075095.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/2595423.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/ayyqznht.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/ksktesyh.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/pekgnrss.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/1320124.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/3815458.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/bbqxsamp.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/wdxqiocu.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/lprgijme.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/ptjguezu.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/5549067.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/4833521.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/9612232.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/3737828.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/przenscu.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/ozwrlqer.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/zywduvmv.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/2745096.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/erpboeyy.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/nzdrpawy.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/2482394.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/gkjgdtji.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/4953530.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/8482492.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/mjytydhh.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/cxwpsjtw.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/rrimfwaj.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/qxrwtcxg.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/oaqhifmu.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/yjstpuzf.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/1497019.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/afdidden.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/2056271.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/vjzciwot.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/1593140.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/zlqvxecj.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/7251887.html)
 
 </details>
 
-## 来源与延伸阅读
+## 原始来源
 
-- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.zhihu.com/question/2055338128379007237)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.zhihu.com/question/2058553085396620762)
 
-本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
+完整信息及后续变化请以原始来源为准。
+
+<!-- content-fingerprint: ad6e5c237ee2cbbeec33 -->

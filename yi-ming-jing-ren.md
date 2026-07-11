@@ -1,50 +1,16 @@
----
-title: "这才是《The Other Side Of Paradise》原版MV！"
-description: "做了很久，但最后还是没达到预期效果。"
-keywords: "哔哩哔哩热门, 实时热搜, 热点资讯, MV, 一鸣惊人, yi-ming-jing-ren"
-tags:
-  - "哔哩哔哩热门"
-  - "实时热搜"
-  - "热点资讯"
-  - "MV"
-source: "哔哩哔哩热门"
-source_url: "https://b23.tv/BV1beM76pEBL"
-rank: 8
-updated_at: "2026-07-11T20:51:28+08:00"
-content_fingerprint: "da0bb8a3645eed951416"
----
-
-[热点索引](README.md) / 一鸣惊人 / 这才是《The Other Side Of Paradise》原版MV！
+[热点索引](README.md)
 
 # 这才是《The Other Side Of Paradise》原版MV！
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 8 位 · 更新时间：2026-07-11T20:51:28+08:00
-
-## 事件概览
-
-做了很久，但最后还是没达到预期效果。
+> 来源：哔哩哔哩热门 · 排名：第 8 位 · 热度：1547184 · 分类：MV · 更新：2026-07-11T20:56:41+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“这才是《The Other Side Of Paradise》原版MV！”位列第 8 位，公开热度指标为 1529758，榜单分类为“MV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“这才是《The Other Side Of Paradise》原版MV！”位列第 8 位，公开热度指标为 1547184，榜单分类为“MV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：做了很久，但最后还是没达到预期效果。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
-
-## 当前榜单信息
-
-- 来源平台：哔哩哔哩热门
-- 当前排名：第 8 位
-- 热度：1529758
-- 分类：MV
-- 固定索引：一鸣惊人（yi-ming-jing-ren）
-
-## 阅读关注点
-
-- 该话题当前位于哔哩哔哩热门第 8 位，排名会随实时热度变化。
-- 阅读时应区分榜单热度与事实结论，重要信息以原始来源和权威发布为准。
-- 后续进展可能改变现有信息，页面会在下一次榜单采集时更新。
 
 ## 相关标签
 
@@ -52,30 +18,23 @@ content_fingerprint: "da0bb8a3645eed951416"
 
 ## 相关热点
 
-- [日本可回收火箭着陆成功 仅飞11米](yi-jian-shuang-diao.md)（一箭双雕）
-- [台风巴威实时路径](shou-zhu-dai-tu.md)（守株待兔）
-- [迪丽热巴工作室发的live图](wang-mei-zhi-ke.md)（望梅止渴）
-- [25岁南非国脚亚当斯自杀离世](wen-ji-qi-wu.md)（闻鸡起舞）
+- [知名主持人喷周星驰新电影：好难看](yi-jian-shuang-diao.md)
+- [巴威逼近 上海已紧急撤离3.4万人](shou-zhu-dai-tu.md)
+- [杭州 台风](wang-mei-zhi-ke.md)
+- [25岁南非国脚亚当斯自杀离世](wen-ji-qi-wu.md)
 
-## 前后篇导航
+## 站内推荐
 
-- 上一篇：[如何评价周星驰执导、编剧的电影《功夫女足》？](yi-fan-feng-shun.md)（一帆风顺）
-- 下一篇：[日本可回收火箭着陆成功 仅飞11米](yi-jian-shuang-diao.md)（一箭双雕）
+- [你会去看周星驰的新电影《功夫女足》吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [金鳞岂是池中物，哄好岳母便化龙](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [150斤男记者在浙江沿海被吹到变形](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
-## 热点仓库导航
-
-- [bing-tian-xue-di.md](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)（冰天雪地）
-- [yi-ming-jing-ren.md](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)（一鸣惊人）
-- [sha-ji-qu-luan.md](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)（杀鸡取卵）
-- [zi-qiang-bu-xi.md](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)（自强不息）
-- [you-sheng-you-se.md](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)（有声有色）
-
-## 标签扩展阅读
-
-以下链接按照本页标签从 `url.txt` 模板生成，共 50 条。
+## 相关资讯
 
 <details>
-<summary>查看 50 条标签相关链接</summary>
+<summary>展开更多相关内容</summary>
 
 - [这才是《The Other Side Of Paradise》原版MV！](https://www.abc.com/3019154.html)
 - [这才是《The Other Side Of Paradise》原版MV！](https://www.abc.com/bwobmunv.html)
@@ -130,8 +89,10 @@ content_fingerprint: "da0bb8a3645eed951416"
 
 </details>
 
-## 来源与延伸阅读
+## 原始来源
 
 - [这才是《The Other Side Of Paradise》原版MV！](https://b23.tv/BV1beM76pEBL)
 
-本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
+完整信息及后续变化请以原始来源为准。
+
+<!-- content-fingerprint: cb4de21b8a5874293466 -->
