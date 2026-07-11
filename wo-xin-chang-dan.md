@@ -10,25 +10,33 @@ tags:
 source: "知乎热榜"
 source_url: "https://www.zhihu.com/question/2055338128379007237"
 rank: 5
-updated_at: "2026-07-11T20:30:08+08:00"
-content_fingerprint: "fba2f66a29824320b2d9"
+updated_at: "2026-07-11T20:42:49+08:00"
+content_fingerprint: "3af332eb3b9ee312b176"
 ---
 
 [热点索引](README.md) / 卧薪尝胆 / 为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？
 
 # 为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？
 
-> 来源：知乎热榜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:30:08+08:00
+> 来源：知乎热榜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:42:49+08:00
 
 ## 事件概览
 
 “为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？”目前位于知乎热榜热门榜单第 5 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。
 
+## 热点正文
+
+根据知乎热榜当前公开榜单，“为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？”位列第 5 位，公开热度指标为 459 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+
+知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+
+阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
+
 ## 当前榜单信息
 
 - 来源平台：知乎热榜
 - 当前排名：第 5 位
-- 热度：479 万热度
+- 热度：459 万热度
 - 分类：问答
 - 固定索引：卧薪尝胆（wo-xin-chang-dan）
 
@@ -44,23 +52,83 @@ content_fingerprint: "fba2f66a29824320b2d9"
 
 ## 相关热点
 
-- [吾从人族来，自当为人族竭尽全力！](po-fu-chen-zhou.md)（破釜沉舟）
+- [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](po-fu-chen-zhou.md)（破釜沉舟）
 - [曝余承东内部群发飙](bei-shui-yi-zhan.md)（背水一战）
-- [当我问我妈不结婚可以吗](zhi-shang-tan-bing.md)（纸上谈兵）
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](wei-wei-jiu-zhao.md)（围魏救赵）
+- [迪丽热巴工作室发的live图](zhi-shang-tan-bing.md)（纸上谈兵）
+- [25岁南非国脚亚当斯自杀离世](wei-wei-jiu-zhao.md)（围魏救赵）
 
 ## 前后篇导航
 
 - 上一篇：[巴威路线东移](wen-ji-qi-wu.md)（闻鸡起舞）
-- 下一篇：[吾从人族来，自当为人族竭尽全力！](po-fu-chen-zhou.md)（破釜沉舟）
+- 下一篇：[当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](po-fu-chen-zhou.md)（破釜沉舟）
 
 ## 热点仓库导航
 
-- [hua-she-tian-zu](https://github.com/vlo808155/hua-she-tian-zu)
-- [shou-zhu-dai-tu](https://github.com/vlo808155/shou-zhu-dai-tu)
-- [ke-zhou-qiu-jian](https://github.com/vlo808155/ke-zhou-qiu-jian)
-- [wang-yang-bu-lao](https://github.com/vlo808155/wang-yang-bu-lao)
-- [jing-di-zhi-wa](https://github.com/vlo808155/jing-di-zhi-wa)
+- [si-hai-wei-jia.md](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)（四海为家）
+- [wo-xin-chang-dan.md](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)（卧薪尝胆）
+- [mai-du-huan-zhu.md](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)（买椟还珠）
+- [nang-ying-ying-xue.md](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)（囊萤映雪）
+- [xiong-you-cheng-zhu.md](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)（胸有成竹）
+
+## 标签扩展阅读
+
+以下链接按照本页标签从 `url.txt` 模板生成，共 50 条。
+
+<details>
+<summary>查看 50 条标签相关链接</summary>
+
+- [知乎热榜延伸阅读 1](https://www.abc.com/7028878.html)
+- [实时热搜延伸阅读 2](https://www.abc.com/zqveysbs.html)
+- [热点资讯延伸阅读 3](https://www.abc.com/nhjztkbt.html)
+- [问答延伸阅读 4](https://www.abc.com/8343306.html)
+- [知乎热榜延伸阅读 5](https://www.abc.com/hvznaqci.html)
+- [实时热搜延伸阅读 6](https://www.abc.com/0592008.html)
+- [热点资讯延伸阅读 7](https://www.abc.com/turvmruw.html)
+- [问答延伸阅读 8](https://www.abc.com/guncligv.html)
+- [知乎热榜延伸阅读 9](https://www.abc.com/1167182.html)
+- [实时热搜延伸阅读 10](https://www.abc.com/inhtcomx.html)
+- [热点资讯延伸阅读 11](https://www.abc.com/qbpnubtc.html)
+- [问答延伸阅读 12](https://www.abc.com/1717612.html)
+- [知乎热榜延伸阅读 13](https://www.abc.com/5075095.html)
+- [实时热搜延伸阅读 14](https://www.abc.com/2595423.html)
+- [热点资讯延伸阅读 15](https://www.abc.com/ayyqznht.html)
+- [问答延伸阅读 16](https://www.abc.com/ksktesyh.html)
+- [知乎热榜延伸阅读 17](https://www.abc.com/pekgnrss.html)
+- [实时热搜延伸阅读 18](https://www.abc.com/1320124.html)
+- [热点资讯延伸阅读 19](https://www.abc.com/3815458.html)
+- [问答延伸阅读 20](https://www.abc.com/bbqxsamp.html)
+- [知乎热榜延伸阅读 21](https://www.abc.com/wdxqiocu.html)
+- [实时热搜延伸阅读 22](https://www.abc.com/lprgijme.html)
+- [热点资讯延伸阅读 23](https://www.abc.com/ptjguezu.html)
+- [问答延伸阅读 24](https://www.abc.com/5549067.html)
+- [知乎热榜延伸阅读 25](https://www.abc.com/4833521.html)
+- [实时热搜延伸阅读 26](https://www.abc.com/9612232.html)
+- [热点资讯延伸阅读 27](https://www.abc.com/3737828.html)
+- [问答延伸阅读 28](https://www.abc.com/przenscu.html)
+- [知乎热榜延伸阅读 29](https://www.abc.com/ozwrlqer.html)
+- [实时热搜延伸阅读 30](https://www.abc.com/zywduvmv.html)
+- [热点资讯延伸阅读 31](https://www.abc.com/2745096.html)
+- [问答延伸阅读 32](https://www.abc.com/erpboeyy.html)
+- [知乎热榜延伸阅读 33](https://www.abc.com/nzdrpawy.html)
+- [实时热搜延伸阅读 34](https://www.abc.com/2482394.html)
+- [热点资讯延伸阅读 35](https://www.abc.com/gkjgdtji.html)
+- [问答延伸阅读 36](https://www.abc.com/4953530.html)
+- [知乎热榜延伸阅读 37](https://www.abc.com/8482492.html)
+- [实时热搜延伸阅读 38](https://www.abc.com/mjytydhh.html)
+- [热点资讯延伸阅读 39](https://www.abc.com/cxwpsjtw.html)
+- [问答延伸阅读 40](https://www.abc.com/rrimfwaj.html)
+- [知乎热榜延伸阅读 41](https://www.abc.com/qxrwtcxg.html)
+- [实时热搜延伸阅读 42](https://www.abc.com/oaqhifmu.html)
+- [热点资讯延伸阅读 43](https://www.abc.com/yjstpuzf.html)
+- [问答延伸阅读 44](https://www.abc.com/1497019.html)
+- [知乎热榜延伸阅读 45](https://www.abc.com/afdidden.html)
+- [实时热搜延伸阅读 46](https://www.abc.com/2056271.html)
+- [热点资讯延伸阅读 47](https://www.abc.com/vjzciwot.html)
+- [问答延伸阅读 48](https://www.abc.com/1593140.html)
+- [知乎热榜延伸阅读 49](https://www.abc.com/zlqvxecj.html)
+- [实时热搜延伸阅读 50](https://www.abc.com/7251887.html)
+
+</details>
 
 ## 来源与延伸阅读
 

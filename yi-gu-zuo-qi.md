@@ -1,35 +1,43 @@
 ---
-title: "孩子发烧邹市明在房间里打游戏"
-description: "“孩子发烧邹市明在房间里打游戏”目前位于微博热搜热门榜单第 8 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。"
-keywords: "微博热搜, 实时热搜, 热点资讯, 综艺, 一鼓作气, yi-gu-zuo-qi"
+title: "功夫女足票房已破2亿"
+description: "“功夫女足票房已破2亿”目前位于微博热搜热门榜单第 8 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。"
+keywords: "微博热搜, 实时热搜, 热点资讯, 电影, 一鼓作气, yi-gu-zuo-qi"
 tags:
   - "微博热搜"
   - "实时热搜"
   - "热点资讯"
-  - "综艺"
+  - "电影"
 source: "微博热搜"
-source_url: "https://s.weibo.com/weibo?q=%E5%AD%A9%E5%AD%90%E5%8F%91%E7%83%A7%E9%82%B9%E5%B8%82%E6%98%8E%E5%9C%A8%E6%88%BF%E9%97%B4%E9%87%8C%E6%89%93%E6%B8%B8%E6%88%8F"
+source_url: "https://s.weibo.com/weibo?q=%E5%8A%9F%E5%A4%AB%E5%A5%B3%E8%B6%B3%E7%A5%A8%E6%88%BF%E5%B7%B2%E7%A0%B42%E4%BA%BF"
 rank: 8
-updated_at: "2026-07-11T20:30:08+08:00"
-content_fingerprint: "15c5aa79302236d8e29f"
+updated_at: "2026-07-11T20:42:49+08:00"
+content_fingerprint: "8ef03a6d2de284919314"
 ---
 
-[热点索引](README.md) / 一鼓作气 / 孩子发烧邹市明在房间里打游戏
+[热点索引](README.md) / 一鼓作气 / 功夫女足票房已破2亿
 
-# 孩子发烧邹市明在房间里打游戏
+# 功夫女足票房已破2亿
 
-> 来源：微博热搜 · 榜单排名：第 8 位 · 更新时间：2026-07-11T20:30:08+08:00
+> 来源：微博热搜 · 榜单排名：第 8 位 · 更新时间：2026-07-11T20:42:49+08:00
 
 ## 事件概览
 
-“孩子发烧邹市明在房间里打游戏”目前位于微博热搜热门榜单第 8 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。
+“功夫女足票房已破2亿”目前位于微博热搜热门榜单第 8 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。
+
+## 热点正文
+
+根据微博热搜当前公开榜单，“功夫女足票房已破2亿”位列第 8 位，公开热度指标为 720576，榜单分类为“电影”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+
+阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 当前榜单信息
 
 - 来源平台：微博热搜
 - 当前排名：第 8 位
-- 热度：624870
-- 分类：综艺
+- 热度：720576
+- 分类：电影
 - 固定索引：一鼓作气（yi-gu-zuo-qi）
 
 ## 阅读关注点
@@ -40,14 +48,14 @@ content_fingerprint: "15c5aa79302236d8e29f"
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `综艺`
+`微博热搜` `实时热搜` `热点资讯` `电影`
 
 ## 相关热点
 
 - [朝鲜通报特大腐败犯罪](yi-zi-qian-jin.md)（一字千金）
 - [如何评价周星驰执导、编剧的电影《功夫女足》？](yi-fan-feng-shun.md)（一帆风顺）
-- [《下一个是谁》第七季（1）](yi-ming-jing-ren.md)（一鸣惊人）
-- [日本可回收火箭着陆成功 仅飞11米](yi-jian-shuang-diao.md)（一箭双雕）
+- [这才是《The Other Side Of Paradise》原版MV！](yi-ming-jing-ren.md)（一鸣惊人）
+- [浙江湖州市长：全面进入战时状态](yi-jian-shuang-diao.md)（一箭双雕）
 
 ## 前后篇导航
 
@@ -56,14 +64,74 @@ content_fingerprint: "15c5aa79302236d8e29f"
 
 ## 热点仓库导航
 
-- [hua-she-tian-zu](https://github.com/vlo808155/hua-she-tian-zu)
-- [shou-zhu-dai-tu](https://github.com/vlo808155/shou-zhu-dai-tu)
-- [ke-zhou-qiu-jian](https://github.com/vlo808155/ke-zhou-qiu-jian)
-- [wang-yang-bu-lao](https://github.com/vlo808155/wang-yang-bu-lao)
-- [jing-di-zhi-wa](https://github.com/vlo808155/jing-di-zhi-wa)
+- [feng-he-ri-li.md](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)（风和日丽）
+- [yi-gu-zuo-qi.md](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)（一鼓作气）
+- [dui-niu-tan-qin.md](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)（对牛弹琴）
+- [shi-shi-qiu-shi.md](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)（实事求是）
+- [sheng-dong-huo-po.md](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)（生动活泼）
+
+## 标签扩展阅读
+
+以下链接按照本页标签从 `url.txt` 模板生成，共 50 条。
+
+<details>
+<summary>查看 50 条标签相关链接</summary>
+
+- [微博热搜延伸阅读 1](https://www.abc.com/3341412.html)
+- [实时热搜延伸阅读 2](https://www.abc.com/1303424.html)
+- [热点资讯延伸阅读 3](https://www.abc.com/wxwjuguu.html)
+- [电影延伸阅读 4](https://www.abc.com/rnsuifoa.html)
+- [微博热搜延伸阅读 5](https://www.abc.com/ulsgovij.html)
+- [实时热搜延伸阅读 6](https://www.abc.com/7543111.html)
+- [热点资讯延伸阅读 7](https://www.abc.com/6818945.html)
+- [电影延伸阅读 8](https://www.abc.com/6932274.html)
+- [微博热搜延伸阅读 9](https://www.abc.com/goumssdn.html)
+- [实时热搜延伸阅读 10](https://www.abc.com/4021364.html)
+- [热点资讯延伸阅读 11](https://www.abc.com/siekvjpk.html)
+- [电影延伸阅读 12](https://www.abc.com/0096626.html)
+- [微博热搜延伸阅读 13](https://www.abc.com/nzutvcfa.html)
+- [实时热搜延伸阅读 14](https://www.abc.com/3389171.html)
+- [热点资讯延伸阅读 15](https://www.abc.com/8374531.html)
+- [电影延伸阅读 16](https://www.abc.com/9097494.html)
+- [微博热搜延伸阅读 17](https://www.abc.com/udhoabhh.html)
+- [实时热搜延伸阅读 18](https://www.abc.com/bmuehnwa.html)
+- [热点资讯延伸阅读 19](https://www.abc.com/7146182.html)
+- [电影延伸阅读 20](https://www.abc.com/1740128.html)
+- [微博热搜延伸阅读 21](https://www.abc.com/9094279.html)
+- [实时热搜延伸阅读 22](https://www.abc.com/7685221.html)
+- [热点资讯延伸阅读 23](https://www.abc.com/znukdejh.html)
+- [电影延伸阅读 24](https://www.abc.com/9130426.html)
+- [微博热搜延伸阅读 25](https://www.abc.com/8245385.html)
+- [实时热搜延伸阅读 26](https://www.abc.com/0837302.html)
+- [热点资讯延伸阅读 27](https://www.abc.com/cifxqtbm.html)
+- [电影延伸阅读 28](https://www.abc.com/nhdpsyzq.html)
+- [微博热搜延伸阅读 29](https://www.abc.com/5707927.html)
+- [实时热搜延伸阅读 30](https://www.abc.com/gtxvhhvo.html)
+- [热点资讯延伸阅读 31](https://www.abc.com/wkgsyvbh.html)
+- [电影延伸阅读 32](https://www.abc.com/1824318.html)
+- [微博热搜延伸阅读 33](https://www.abc.com/yisewqcv.html)
+- [实时热搜延伸阅读 34](https://www.abc.com/jrfpsuzg.html)
+- [热点资讯延伸阅读 35](https://www.abc.com/grfpusjt.html)
+- [电影延伸阅读 36](https://www.abc.com/brfcasdb.html)
+- [微博热搜延伸阅读 37](https://www.abc.com/jynwqcbz.html)
+- [实时热搜延伸阅读 38](https://www.abc.com/3748959.html)
+- [热点资讯延伸阅读 39](https://www.abc.com/3641009.html)
+- [电影延伸阅读 40](https://www.abc.com/2141383.html)
+- [微博热搜延伸阅读 41](https://www.abc.com/gadcxmob.html)
+- [实时热搜延伸阅读 42](https://www.abc.com/dasouksz.html)
+- [热点资讯延伸阅读 43](https://www.abc.com/iclkyauh.html)
+- [电影延伸阅读 44](https://www.abc.com/0693774.html)
+- [微博热搜延伸阅读 45](https://www.abc.com/5299038.html)
+- [实时热搜延伸阅读 46](https://www.abc.com/1837002.html)
+- [热点资讯延伸阅读 47](https://www.abc.com/6242238.html)
+- [电影延伸阅读 48](https://www.abc.com/1476229.html)
+- [微博热搜延伸阅读 49](https://www.abc.com/pmdautpd.html)
+- [实时热搜延伸阅读 50](https://www.abc.com/0464373.html)
+
+</details>
 
 ## 来源与延伸阅读
 
-- [孩子发烧邹市明在房间里打游戏](https://s.weibo.com/weibo?q=%E5%AD%A9%E5%AD%90%E5%8F%91%E7%83%A7%E9%82%B9%E5%B8%82%E6%98%8E%E5%9C%A8%E6%88%BF%E9%97%B4%E9%87%8C%E6%89%93%E6%B8%B8%E6%88%8F)
+- [功夫女足票房已破2亿](https://s.weibo.com/weibo?q=%E5%8A%9F%E5%A4%AB%E5%A5%B3%E8%B6%B3%E7%A5%A8%E6%88%BF%E5%B7%B2%E7%A0%B42%E4%BA%BF)
 
 本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
