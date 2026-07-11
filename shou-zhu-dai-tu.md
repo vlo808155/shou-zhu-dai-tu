@@ -2,11 +2,11 @@
 
 # 曝25岁南非国脚自杀离世
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7427152 · 更新：2026-07-11T21:07:39+08:00
+> 来源：百度热搜 · 排名：第 4 位 · 热度：7428400 · 更新：2026-07-11T21:08:18+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“曝25岁南非国脚自杀离世”位列第 4 位，公开热度指标为 7427152。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“曝25岁南非国脚自杀离世”位列第 4 位，公开热度指标为 7428400。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：北京时间7月11日晚，一则令人遗憾的噩耗传来。来自多家非洲媒体报道，效力于马梅洛迪日落的25岁南非国脚杰登·亚当斯不幸离世，年仅25岁。据非洲记者报道，杰登·亚当斯死因是上吊自杀。
 
@@ -39,7 +39,7 @@
 - [暑期防汛科普小知识请查收](https://www.abc.com/4891511.html)
 - [北京暴雨红色预警](https://www.abc.com/9942996.html)
 - [巴威实时路径](https://www.abc.com/9050082.html)
-- [巴威发威了暴雨狂风高温一起来](https://www.abc.com/lkvzktlo.html)
+- [发现中指的握笔茧消失了](https://www.abc.com/lkvzktlo.html)
 - [长沙市体育局干部彭某某被停职](https://www.abc.com/ourzsgxt.html)
 - [路怒症被反杀，真的很解气](https://www.abc.com/iiorkwmn.html)
 - [上海台风](https://www.abc.com/7373216.html)
@@ -58,7 +58,7 @@
 - [15岁男生因女同桌送画遭围殴](https://www.abc.com/lbbwwvtd.html)
 - [Jennie神图诞生了](https://www.abc.com/7902180.html)
 - [这才是《The Other Side Of Paradise》原版MV！](https://www.abc.com/3829414.html)
-- [《和最讨厌的人灵魂互换了》完整版](https://www.abc.com/9526443.html)
+- [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](https://www.abc.com/9526443.html)
 - [金鳞岂是池中物，哄好岳母便化龙](https://www.abc.com/7878222.html)
 - [如何评价凡人修仙传182集，慕兰之战第六集？](https://www.abc.com/8048054.html)
 - [段奥娟这么瘦了](https://www.abc.com/qqdvxzam.html)
@@ -67,8 +67,8 @@
 - [台风巴威实时路径](https://www.abc.com/2661552.html)
 - [功夫女足票房已破2亿](https://www.abc.com/8676356.html)
 - [女儿女婿自杀后妈妈投身防性侵宣传](https://www.abc.com/erfmcuhj.html)
-- [浙江惊现“台风霞”粉紫色天空](https://www.abc.com/gbvzyhnm.html)
-- [150斤男记者在浙江沿海被吹到变形](https://www.abc.com/7898675.html)
+- [知名主持人喷周星驰新电影：好难看](https://www.abc.com/gbvzyhnm.html)
+- [大雨中吃盒饭的消防员找到了](https://www.abc.com/7898675.html)
 - [PC今日公测！《遗忘之海》PV「初航乐章」](https://www.abc.com/jtvwemnu.html)
 - [你会去看周星驰的新电影《功夫女足》吗？](https://www.abc.com/jcjgysoa.html)
 - [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](https://www.abc.com/wkyviguj.html)
@@ -78,12 +78,12 @@
 - [海水倒灌](https://www.abc.com/zlqflhcy.html)
 - [无人机吊起2人神图系AI合成](https://www.abc.com/qjyytqdl.html)
 - [巴威最新位置](https://www.abc.com/mknryxwm.html)
-- [巴威路线东移](https://www.abc.com/3622035.html)
-- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/ubaxclyh.html)
+- [应对台风上海转移3.4万人](https://www.abc.com/3622035.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/ubaxclyh.html)
 - [巴威即将登陆](https://www.abc.com/6192534.html)
 - [哈兰德PK凯恩 世一锋终极对决](https://www.abc.com/8200899.html)
-- [广西贵港原副市长潘汉胜被双开](https://www.abc.com/4845341.html)
-- [应对台风上海转移3.4万人](https://www.abc.com/4691297.html)
+- [朝鲜通报特大腐败犯罪](https://www.abc.com/4845341.html)
+- [巴威路线东移](https://www.abc.com/4691297.html)
 - [没有人！比我！更懂！重庆！](https://www.abc.com/nhzalozq.html)
 - [日媒拆台日本火箭只飞了11米](https://www.abc.com/0860344.html)
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8d50d392f948f18f2d50 -->
+<!-- content-fingerprint: 309c4789f6f2d8da9378 -->

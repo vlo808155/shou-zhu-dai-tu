@@ -2,11 +2,11 @@
 
 # 如何评价周星驰执导、编剧的电影《功夫女足》？
 
-> 来源：知乎热榜 · 排名：第 5 位 · 热度：419 万热度 · 分类：问答 · 更新：2026-07-11T21:07:39+08:00
+> 来源：知乎热榜 · 排名：第 5 位 · 热度：417 万热度 · 分类：问答 · 更新：2026-07-11T21:08:18+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何评价周星驰执导、编剧的电影《功夫女足》？”位列第 5 位，公开热度指标为 419 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何评价周星驰执导、编剧的电影《功夫女足》？”位列第 5 位，公开热度指标为 417 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -38,7 +38,7 @@
 
 - [哈兰德PK凯恩 世一锋终极对决](https://www.abc.com/deswakwa.html)
 - [周星驰官宣星女郎雪野](https://www.abc.com/lbwslxvr.html)
-- [广西贵港原副市长潘汉胜被双开](https://www.abc.com/2595423.html)
+- [朝鲜通报特大腐败犯罪](https://www.abc.com/2595423.html)
 - [教育部：“教师全面硕士化”系谣言](https://www.abc.com/ayyqznht.html)
 - [四川再发山洪灾害蓝色预警](https://www.abc.com/ksktesyh.html)
 - [各地全力以赴防范台风巴威](https://www.abc.com/pekgnrss.html)
@@ -62,24 +62,24 @@
 - [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](https://www.abc.com/gkjgdtji.html)
 - [女儿女婿自杀后妈妈投身防性侵宣传](https://www.abc.com/4953530.html)
 - [南非25岁世界杯参赛球员去世](https://www.abc.com/8482492.html)
-- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/mjytydhh.html)
+- [浙江惊现“台风霞”粉紫色天空](https://www.abc.com/mjytydhh.html)
 - [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](https://www.abc.com/cxwpsjtw.html)
 - [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](https://www.abc.com/rrimfwaj.html)
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/qxrwtcxg.html)
-- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/oaqhifmu.html)
-- [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](https://www.abc.com/yjstpuzf.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/oaqhifmu.html)
+- [新兵清淤任务中受伤心里又愧又急](https://www.abc.com/yjstpuzf.html)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](https://www.abc.com/1497019.html)
-- [杭州地铁停运](https://www.abc.com/afdidden.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/afdidden.html)
 - [当我问我妈不结婚可以吗](https://www.abc.com/2056271.html)
 - [美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？](https://www.abc.com/vjzciwot.html)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](https://www.abc.com/1593140.html)
-- [哈兰德被评“世界第一玩得起的人”](https://www.abc.com/zlqvxecj.html)
+- [广西贵港原副市长潘汉胜被双开](https://www.abc.com/zlqvxecj.html)
 - [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](https://www.abc.com/7251887.html)
-- [前瞻：三狮军团能否锁死哈兰德](https://www.abc.com/pynwajha.html)
+- [“26版西游记”团队回应爆火出圈](https://www.abc.com/pynwajha.html)
 - [《下一个是谁》第七季（1）](https://www.abc.com/jxuqooqc.html)
-- [应对台风上海转移3.4万人](https://www.abc.com/6522307.html)
+- [巴威路线东移](https://www.abc.com/6522307.html)
 - [海水倒灌](https://www.abc.com/0181177.html)
-- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/3839738.html)
+- [《和最讨厌的人灵魂互换了》完整版](https://www.abc.com/3839738.html)
 - [功夫女足票房已破2亿](https://www.abc.com/prrdjzvz.html)
 - [杭州 台风](https://www.abc.com/evviacuu.html)
 - [长沙霸占车位公职人员被停职](https://www.abc.com/2749724.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8187ecaaa0e825acec1e -->
+<!-- content-fingerprint: ebdcddb1933fddf900d5 -->

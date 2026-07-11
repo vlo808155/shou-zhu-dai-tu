@@ -2,11 +2,11 @@
 
 # 巴威过境日本 大树连根拔起雨横飞
 
-> 来源：百度热搜 · 排名：第 8 位 · 热度：7047118 · 更新：2026-07-11T21:07:39+08:00
+> 来源：百度热搜 · 排名：第 8 位 · 热度：7040241 · 更新：2026-07-11T21:08:18+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“巴威过境日本 大树连根拔起雨横飞”位列第 8 位，公开热度指标为 7047118。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“巴威过境日本 大树连根拔起雨横飞”位列第 8 位，公开热度指标为 7040241。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：超强台风“巴威”7月11日过境日本冲绳先岛群岛，大树被连根拔起，暴雨导致雨水横飞，6米高巨浪冲毁防波堤。
 
@@ -41,7 +41,7 @@
 - [台风巴威实时路径](https://www.abc.com/6348198.html)
 - [路怒症被反杀，真的很解气](https://www.abc.com/pvulgljv.html)
 - [《下一个是谁》第七季（1）](https://www.abc.com/bwvwkhol.html)
-- [浙江惊现“台风霞”粉紫色天空](https://www.abc.com/1883802.html)
+- [知名主持人喷周星驰新电影：好难看](https://www.abc.com/1883802.html)
 - [16岁高中生踢门玩闹后被捅杀](https://www.abc.com/4901644.html)
 - [金鳞岂是池中物，哄好岳母便化龙](https://www.abc.com/owhexdma.html)
 - [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](https://www.abc.com/4043740.html)
@@ -66,26 +66,26 @@
 - [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/dsrhnovs.html)
 - [上海台风](https://www.abc.com/1383985.html)
 - [当我问我妈不结婚可以吗](https://www.abc.com/4548616.html)
-- [杭州地铁停运](https://www.abc.com/gwhcekbu.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/gwhcekbu.html)
 - [杭州 台风](https://www.abc.com/3588427.html)
-- [朝鲜通报特大腐败犯罪](https://www.abc.com/3843046.html)
+- [哈兰德被评“世界第一玩得起的人”](https://www.abc.com/3843046.html)
 - [教育部：“教师全面硕士化”系谣言](https://www.abc.com/gvldzodl.html)
-- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/jrxppyym.html)
-- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/npvluhij.html)
-- [哈兰德被评“世界第一玩得起的人”](https://www.abc.com/7991111.html)
-- [前瞻：三狮军团能否锁死哈兰德](https://www.abc.com/kxystxgj.html)
-- [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](https://www.abc.com/vbdpymyb.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/jrxppyym.html)
+- [浙江惊现“台风霞”粉紫色天空](https://www.abc.com/npvluhij.html)
+- [广西贵港原副市长潘汉胜被双开](https://www.abc.com/7991111.html)
+- [“26版西游记”团队回应爆火出圈](https://www.abc.com/kxystxgj.html)
+- [新兵清淤任务中受伤心里又愧又急](https://www.abc.com/vbdpymyb.html)
 - [南非25岁世界杯参赛球员去世](https://www.abc.com/ucyjgokj.html)
 - [台风巴威1小时走30到50公里](https://www.abc.com/2145064.html)
 - [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/5657827.html)
 - [长沙霸占车位公职人员被停职](https://www.abc.com/1029436.html)
-- [应对台风上海转移3.4万人](https://www.abc.com/gljfvdkl.html)
-- [150斤男记者在浙江沿海被吹到变形](https://www.abc.com/8324235.html)
+- [巴威路线东移](https://www.abc.com/gljfvdkl.html)
+- [大雨中吃盒饭的消防员找到了](https://www.abc.com/8324235.html)
 - [上海天空](https://www.abc.com/oyqonkfk.html)
 - [巴威最新位置](https://www.abc.com/arfussez.html)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](https://www.abc.com/5250241.html)
 - [远炸近攻 乌军对俄放两大招意欲何为](https://www.abc.com/ompcbxce.html)
-- [广西贵港原副市长潘汉胜被双开](https://www.abc.com/ryfxfzxs.html)
+- [朝鲜通报特大腐败犯罪](https://www.abc.com/ryfxfzxs.html)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 90217715a974582d5336 -->
+<!-- content-fingerprint: c8aefc0593a487d61df9 -->
