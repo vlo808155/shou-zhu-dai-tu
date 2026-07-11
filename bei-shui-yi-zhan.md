@@ -2,11 +2,11 @@
 
 # 曝余承东内部群发飙
 
-> 来源：百度热搜 · 排名：第 5 位 · 热度：7330963 · 更新：2026-07-11T20:56:41+08:00
+> 来源：百度热搜 · 排名：第 5 位 · 热度：7334114 · 更新：2026-07-11T20:57:14+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“曝余承东内部群发飙”位列第 5 位，公开热度指标为 7330963。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“曝余承东内部群发飙”位列第 5 位，公开热度指标为 7334114。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：7月8日上午，上海华江一名问界M8车主向媒体投诉，车辆APP存在隐私权限漏洞：车主手动关闭授权账号的位置信息权限后，被授权账号仍可通过泊车代驾辅助功能查看车辆实时定位。知情人士称余承东在内部群发飙：太愚蠢！不吃不喝不睡觉立即解决！
 
@@ -18,18 +18,18 @@
 
 ## 相关热点
 
-- [长沙市体育局干部彭某某被停职](zhi-shang-tan-bing.md)
-- [巴威路线东移](wei-wei-jiu-zhao.md)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](wan-bi-gui-zhao.md)
-- [吾从人族来，自当为人族竭尽全力！](fu-jing-qing-zui.md)
+- [迪丽热巴工作室发的live图](zhi-shang-tan-bing.md)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](wei-wei-jiu-zhao.md)
+- [吾从人族来，自当为人族竭尽全力！](wan-bi-gui-zhao.md)
+- [北京暴雨红色预警](fu-jing-qing-zui.md)
 
 ## 站内推荐
 
 - [长沙霸占车位公职人员被停职](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [南非25岁世界杯参赛球员去世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [上海天空](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [海水倒灌](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [日本勾连北约意欲何为](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [功夫女足票房已破2亿](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [台风巴威1小时走30到50公里](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [TF四代考核人气分](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [日本砸钱抢印度AI精英赢面几何](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c486306ef8672c87f7bb -->
+<!-- content-fingerprint: dda796a4383a631f521e -->

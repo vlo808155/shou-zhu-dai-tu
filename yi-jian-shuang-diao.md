@@ -2,11 +2,11 @@
 
 # 知名主持人喷周星驰新电影：好难看
 
-> 来源：百度热搜 · 排名：第 8 位 · 热度：7040053 · 更新：2026-07-11T20:56:41+08:00
+> 来源：百度热搜 · 排名：第 8 位 · 热度：7048144 · 更新：2026-07-11T20:57:14+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“知名主持人喷周星驰新电影：好难看”位列第 8 位，公开热度指标为 7040053。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“知名主持人喷周星驰新电影：好难看”位列第 8 位，公开热度指标为 7048144。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：7月11日，知名主持人林海在微博晒出《功夫女足》票根并配文“星爷，不欠你了。好难看”，称影片“梗是老的，演员是过火的，剧本是脆弱的”。该片为周星驰暌违七年的导演作品，首日票房破亿但口碑两极分化。
 
@@ -26,7 +26,7 @@
 ## 站内推荐
 
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [吾从人族来，自当为人族竭尽全力！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [北京暴雨红色预警](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
 - [教育部：“教师全面硕士化”系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
 - [哈兰德PK凯恩 世一锋终极对决](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
 - [日媒拆台日本火箭只飞了11米](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 06d78b39bfd3870cb37d -->
+<!-- content-fingerprint: f3f97af6f7b1c74ebee2 -->

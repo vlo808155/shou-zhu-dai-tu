@@ -2,11 +2,11 @@
 
 # 巴威过境日本 大树连根拔起雨横飞
 
-> 来源：百度热搜 · 排名：第 7 位 · 热度：7137526 · 更新：2026-07-11T20:56:41+08:00
+> 来源：百度热搜 · 排名：第 7 位 · 热度：7137048 · 更新：2026-07-11T20:57:14+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“巴威过境日本 大树连根拔起雨横飞”位列第 7 位，公开热度指标为 7137526。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“巴威过境日本 大树连根拔起雨横飞”位列第 7 位，公开热度指标为 7137048。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：超强台风“巴威”7月11日过境日本冲绳先岛群岛，大树被连根拔起，暴雨导致雨水横飞，6米高巨浪冲毁防波堤。
 
@@ -18,7 +18,7 @@
 
 ## 相关热点
 
-- [南非25岁世界杯参赛球员去世](yi-gu-zuo-qi.md)
+- [功夫女足票房已破2亿](yi-gu-zuo-qi.md)
 - [哈兰德能率挪威淘汰英格兰吗](yi-zi-qian-jin.md)
 - [长征十号乙回收时为什么会冒出大量黑烟？](yi-fan-feng-shun.md)
 - [这才是《The Other Side Of Paradise》原版MV！](yi-ming-jing-ren.md)
@@ -27,8 +27,8 @@
 
 - [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [日本可回收火箭着陆成功 仅飞11米](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [最新研判！台风巴威登陆时间或提前](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [浙江惊现“台风霞”粉紫色天空](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [日本可回收火箭着陆成功 仅飞11米](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
 - [小米澎程起售价预测](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 63dea41a1a147d085da0 -->
+<!-- content-fingerprint: 0ba6de58d4b28fd50f38 -->

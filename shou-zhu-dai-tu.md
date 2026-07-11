@@ -2,11 +2,11 @@
 
 # 巴威逼近 上海已紧急撤离3.4万人
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7424739 · 更新：2026-07-11T20:56:41+08:00
+> 来源：百度热搜 · 排名：第 4 位 · 热度：7428353 · 更新：2026-07-11T20:57:14+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“巴威逼近 上海已紧急撤离3.4万人”位列第 4 位，公开热度指标为 7424739。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“巴威逼近 上海已紧急撤离3.4万人”位列第 4 位，公开热度指标为 7428353。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：台风“巴威”临近，上海市应急部门11日上午已开始组织浦东、奉贤、金山等沿海地区及临港新片区、化工区、洋山港等危险区域人员实施转移撤离，截至12时已撤离3.4万人。
 
@@ -26,10 +26,10 @@
 ## 站内推荐
 
 - [各地全力以赴防范台风巴威](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [北京暴雨红色预警](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [长沙市体育局干部彭某某被停职](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
 - [周星驰官宣星女郎雪野](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [段奥娟这么瘦了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [博主：泽连斯基避谈乌国内战损情况](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [海水倒灌](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [远炸近攻 乌军对俄放两大招意欲何为](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 560106569e2a427226d9 -->
+<!-- content-fingerprint: 25b8e841e8d5167a2b56 -->
