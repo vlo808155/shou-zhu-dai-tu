@@ -10,15 +10,15 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=%E6%9D%AD%E5%B7%9E%20%E5%8F%B0%E9%A3%8E"
 rank: 5
-updated_at: "2026-07-11T20:44:37+08:00"
-content_fingerprint: "8996e8a8b663f1f0b8da"
+updated_at: "2026-07-11T20:50:44+08:00"
+content_fingerprint: "5bb415d84d1b230bab63"
 ---
 
 [热点索引](README.md) / 望梅止渴 / 杭州 台风
 
 # 杭州 台风
 
-> 来源：微博热搜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:44:37+08:00
+> 来源：微博热搜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:50:44+08:00
 
 ## 事件概览
 
@@ -26,7 +26,7 @@ content_fingerprint: "8996e8a8b663f1f0b8da"
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“杭州 台风”位列第 5 位，公开热度指标为 1576105，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“杭州 台风”位列第 5 位，公开热度指标为 1654130，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -36,7 +36,7 @@ content_fingerprint: "8996e8a8b663f1f0b8da"
 
 - 来源平台：微博热搜
 - 当前排名：第 5 位
-- 热度：1576105
+- 热度：1654130
 - 分类：民生新闻
 - 固定索引：望梅止渴（wang-mei-zhi-ke）
 
@@ -52,7 +52,7 @@ content_fingerprint: "8996e8a8b663f1f0b8da"
 
 ## 相关热点
 
-- [巴威路线东移](wen-ji-qi-wu.md)（闻鸡起舞）
+- [25岁南非国脚亚当斯自杀离世](wen-ji-qi-wu.md)（闻鸡起舞）
 - [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](wo-xin-chang-dan.md)（卧薪尝胆）
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](po-fu-chen-zhou.md)（破釜沉舟）
 - [曝余承东内部群发飙](bei-shui-yi-zhan.md)（背水一战）
@@ -60,7 +60,7 @@ content_fingerprint: "8996e8a8b663f1f0b8da"
 ## 前后篇导航
 
 - 上一篇：[台风巴威实时路径](shou-zhu-dai-tu.md)（守株待兔）
-- 下一篇：[巴威路线东移](wen-ji-qi-wu.md)（闻鸡起舞）
+- 下一篇：[25岁南非国脚亚当斯自杀离世](wen-ji-qi-wu.md)（闻鸡起舞）
 
 ## 热点仓库导航
 
@@ -77,56 +77,56 @@ content_fingerprint: "8996e8a8b663f1f0b8da"
 <details>
 <summary>查看 50 条标签相关链接</summary>
 
-- [微博热搜延伸阅读 1](https://www.abc.com/6323229.html)
-- [实时热搜延伸阅读 2](https://www.abc.com/xeasjphh.html)
-- [热点资讯延伸阅读 3](https://www.abc.com/3313592.html)
-- [民生新闻延伸阅读 4](https://www.abc.com/1671496.html)
-- [微博热搜延伸阅读 5](https://www.abc.com/1045036.html)
-- [实时热搜延伸阅读 6](https://www.abc.com/0041157.html)
-- [热点资讯延伸阅读 7](https://www.abc.com/1944757.html)
-- [民生新闻延伸阅读 8](https://www.abc.com/ppqbyppn.html)
-- [微博热搜延伸阅读 9](https://www.abc.com/lxhrndrq.html)
-- [实时热搜延伸阅读 10](https://www.abc.com/swmbllgg.html)
-- [热点资讯延伸阅读 11](https://www.abc.com/5341175.html)
-- [民生新闻延伸阅读 12](https://www.abc.com/6271368.html)
-- [微博热搜延伸阅读 13](https://www.abc.com/7888275.html)
-- [实时热搜延伸阅读 14](https://www.abc.com/7411748.html)
-- [热点资讯延伸阅读 15](https://www.abc.com/qebaggcb.html)
-- [民生新闻延伸阅读 16](https://www.abc.com/iycrmibq.html)
-- [微博热搜延伸阅读 17](https://www.abc.com/1344645.html)
-- [实时热搜延伸阅读 18](https://www.abc.com/fenxyyzw.html)
-- [热点资讯延伸阅读 19](https://www.abc.com/3349687.html)
-- [民生新闻延伸阅读 20](https://www.abc.com/8414148.html)
-- [微博热搜延伸阅读 21](https://www.abc.com/9749535.html)
-- [实时热搜延伸阅读 22](https://www.abc.com/pismjqwi.html)
-- [热点资讯延伸阅读 23](https://www.abc.com/wcwnmins.html)
-- [民生新闻延伸阅读 24](https://www.abc.com/3202830.html)
-- [微博热搜延伸阅读 25](https://www.abc.com/kjevrjxi.html)
-- [实时热搜延伸阅读 26](https://www.abc.com/ymoqbytb.html)
-- [热点资讯延伸阅读 27](https://www.abc.com/xurwrbnr.html)
-- [民生新闻延伸阅读 28](https://www.abc.com/0693811.html)
-- [微博热搜延伸阅读 29](https://www.abc.com/5363242.html)
-- [实时热搜延伸阅读 30](https://www.abc.com/zzxmntxr.html)
-- [热点资讯延伸阅读 31](https://www.abc.com/wygumjdc.html)
-- [民生新闻延伸阅读 32](https://www.abc.com/eshbivgh.html)
-- [微博热搜延伸阅读 33](https://www.abc.com/sxiavdio.html)
-- [实时热搜延伸阅读 34](https://www.abc.com/1898437.html)
-- [热点资讯延伸阅读 35](https://www.abc.com/2751664.html)
-- [民生新闻延伸阅读 36](https://www.abc.com/zdzaxkoa.html)
-- [微博热搜延伸阅读 37](https://www.abc.com/4752125.html)
-- [实时热搜延伸阅读 38](https://www.abc.com/5128270.html)
-- [热点资讯延伸阅读 39](https://www.abc.com/3887416.html)
-- [民生新闻延伸阅读 40](https://www.abc.com/0654592.html)
-- [微博热搜延伸阅读 41](https://www.abc.com/lrvynbqy.html)
-- [实时热搜延伸阅读 42](https://www.abc.com/0220646.html)
-- [热点资讯延伸阅读 43](https://www.abc.com/rhktrzen.html)
-- [民生新闻延伸阅读 44](https://www.abc.com/rgbllwep.html)
-- [微博热搜延伸阅读 45](https://www.abc.com/6728359.html)
-- [实时热搜延伸阅读 46](https://www.abc.com/prjjzfwq.html)
-- [热点资讯延伸阅读 47](https://www.abc.com/orhsjtrw.html)
-- [民生新闻延伸阅读 48](https://www.abc.com/ftrpgqpo.html)
-- [微博热搜延伸阅读 49](https://www.abc.com/9898515.html)
-- [实时热搜延伸阅读 50](https://www.abc.com/6569312.html)
+- [杭州 台风](https://www.abc.com/6323229.html)
+- [杭州 台风](https://www.abc.com/xeasjphh.html)
+- [杭州 台风](https://www.abc.com/3313592.html)
+- [杭州 台风](https://www.abc.com/1671496.html)
+- [杭州 台风](https://www.abc.com/1045036.html)
+- [杭州 台风](https://www.abc.com/0041157.html)
+- [杭州 台风](https://www.abc.com/1944757.html)
+- [杭州 台风](https://www.abc.com/ppqbyppn.html)
+- [杭州 台风](https://www.abc.com/lxhrndrq.html)
+- [杭州 台风](https://www.abc.com/swmbllgg.html)
+- [杭州 台风](https://www.abc.com/5341175.html)
+- [杭州 台风](https://www.abc.com/6271368.html)
+- [杭州 台风](https://www.abc.com/7888275.html)
+- [杭州 台风](https://www.abc.com/7411748.html)
+- [杭州 台风](https://www.abc.com/qebaggcb.html)
+- [杭州 台风](https://www.abc.com/iycrmibq.html)
+- [杭州 台风](https://www.abc.com/1344645.html)
+- [杭州 台风](https://www.abc.com/fenxyyzw.html)
+- [杭州 台风](https://www.abc.com/3349687.html)
+- [杭州 台风](https://www.abc.com/8414148.html)
+- [杭州 台风](https://www.abc.com/9749535.html)
+- [杭州 台风](https://www.abc.com/pismjqwi.html)
+- [杭州 台风](https://www.abc.com/wcwnmins.html)
+- [杭州 台风](https://www.abc.com/3202830.html)
+- [杭州 台风](https://www.abc.com/kjevrjxi.html)
+- [杭州 台风](https://www.abc.com/ymoqbytb.html)
+- [杭州 台风](https://www.abc.com/xurwrbnr.html)
+- [杭州 台风](https://www.abc.com/0693811.html)
+- [杭州 台风](https://www.abc.com/5363242.html)
+- [杭州 台风](https://www.abc.com/zzxmntxr.html)
+- [杭州 台风](https://www.abc.com/wygumjdc.html)
+- [杭州 台风](https://www.abc.com/eshbivgh.html)
+- [杭州 台风](https://www.abc.com/sxiavdio.html)
+- [杭州 台风](https://www.abc.com/1898437.html)
+- [杭州 台风](https://www.abc.com/2751664.html)
+- [杭州 台风](https://www.abc.com/zdzaxkoa.html)
+- [杭州 台风](https://www.abc.com/4752125.html)
+- [杭州 台风](https://www.abc.com/5128270.html)
+- [杭州 台风](https://www.abc.com/3887416.html)
+- [杭州 台风](https://www.abc.com/0654592.html)
+- [杭州 台风](https://www.abc.com/lrvynbqy.html)
+- [杭州 台风](https://www.abc.com/0220646.html)
+- [杭州 台风](https://www.abc.com/rhktrzen.html)
+- [杭州 台风](https://www.abc.com/rgbllwep.html)
+- [杭州 台风](https://www.abc.com/6728359.html)
+- [杭州 台风](https://www.abc.com/prjjzfwq.html)
+- [杭州 台风](https://www.abc.com/orhsjtrw.html)
+- [杭州 台风](https://www.abc.com/ftrpgqpo.html)
+- [杭州 台风](https://www.abc.com/9898515.html)
+- [杭州 台风](https://www.abc.com/6569312.html)
 
 </details>
 

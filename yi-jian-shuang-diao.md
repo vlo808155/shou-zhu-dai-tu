@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E6%B5%99%E6%B1%9F%E6%B9%96%E5%B7%9E%E5%B8%82%E9%95%BF%EF%BC%9A%E5%85%A8%E9%9D%A2%E8%BF%9B%E5%85%A5%E6%88%98%E6%97%B6%E7%8A%B6%E6%80%81&sa=fyb_news&rsv_dl=fyb_news"
 rank: 8
-updated_at: "2026-07-11T20:44:37+08:00"
-content_fingerprint: "14675ea326c9b001fb3e"
+updated_at: "2026-07-11T20:50:44+08:00"
+content_fingerprint: "4a2c6f8111a74c34f61e"
 ---
 
 [热点索引](README.md) / 一箭双雕 / 浙江湖州市长：全面进入战时状态
 
 # 浙江湖州市长：全面进入战时状态
 
-> 来源：百度热搜 · 榜单排名：第 8 位 · 更新时间：2026-07-11T20:44:37+08:00
+> 来源：百度热搜 · 榜单排名：第 8 位 · 更新时间：2026-07-11T20:50:44+08:00
 
 ## 事件概览
 
@@ -25,7 +25,7 @@ content_fingerprint: "14675ea326c9b001fb3e"
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“浙江湖州市长：全面进入战时状态”位列第 8 位，公开热度指标为 7042853。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“浙江湖州市长：全面进入战时状态”位列第 8 位，公开热度指标为 7048264。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：7月11日，湖州市委副书记、市长连坤明主持召开全市会商调度会并强调，台风“巴威”防御工作已经到了最关键的时刻。全市各级各部门要进一步强化底线思维、极限思维，闻令而动、听令而行，全面进入战时状态，坚决打赢防御台风“巴威”攻坚战。
 
@@ -35,7 +35,7 @@ content_fingerprint: "14675ea326c9b001fb3e"
 
 - 来源平台：百度热搜
 - 当前排名：第 8 位
-- 热度：7042853
+- 热度：7048264
 - 固定索引：一箭双雕（yi-jian-shuang-diao）
 
 ## 阅读关注点
@@ -52,7 +52,7 @@ content_fingerprint: "14675ea326c9b001fb3e"
 
 - [台风巴威实时路径](shou-zhu-dai-tu.md)（守株待兔）
 - [杭州 台风](wang-mei-zhi-ke.md)（望梅止渴）
-- [巴威路线东移](wen-ji-qi-wu.md)（闻鸡起舞）
+- [25岁南非国脚亚当斯自杀离世](wen-ji-qi-wu.md)（闻鸡起舞）
 - [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](wo-xin-chang-dan.md)（卧薪尝胆）
 
 ## 前后篇导航
@@ -75,56 +75,56 @@ content_fingerprint: "14675ea326c9b001fb3e"
 <details>
 <summary>查看 50 条标签相关链接</summary>
 
-- [百度热搜延伸阅读 1](https://www.abc.com/gfnmgqca.html)
-- [实时热搜延伸阅读 2](https://www.abc.com/4084593.html)
-- [热点资讯延伸阅读 3](https://www.abc.com/3324499.html)
-- [百度热搜延伸阅读 4](https://www.abc.com/7737863.html)
-- [实时热搜延伸阅读 5](https://www.abc.com/6644729.html)
-- [热点资讯延伸阅读 6](https://www.abc.com/qejsmxdy.html)
-- [百度热搜延伸阅读 7](https://www.abc.com/3897778.html)
-- [实时热搜延伸阅读 8](https://www.abc.com/hemorynq.html)
-- [热点资讯延伸阅读 9](https://www.abc.com/3910571.html)
-- [百度热搜延伸阅读 10](https://www.abc.com/dmbvodcr.html)
-- [实时热搜延伸阅读 11](https://www.abc.com/9432709.html)
-- [热点资讯延伸阅读 12](https://www.abc.com/0804668.html)
-- [百度热搜延伸阅读 13](https://www.abc.com/uijsckuw.html)
-- [实时热搜延伸阅读 14](https://www.abc.com/1452581.html)
-- [热点资讯延伸阅读 15](https://www.abc.com/gjrctyuq.html)
-- [百度热搜延伸阅读 16](https://www.abc.com/pvulgljv.html)
-- [实时热搜延伸阅读 17](https://www.abc.com/bwvwkhol.html)
-- [热点资讯延伸阅读 18](https://www.abc.com/1883802.html)
-- [百度热搜延伸阅读 19](https://www.abc.com/4901644.html)
-- [实时热搜延伸阅读 20](https://www.abc.com/owhexdma.html)
-- [热点资讯延伸阅读 21](https://www.abc.com/4043740.html)
-- [百度热搜延伸阅读 22](https://www.abc.com/0615047.html)
-- [实时热搜延伸阅读 23](https://www.abc.com/vgjogahy.html)
-- [热点资讯延伸阅读 24](https://www.abc.com/ebhqwiwo.html)
-- [百度热搜延伸阅读 25](https://www.abc.com/2007783.html)
-- [实时热搜延伸阅读 26](https://www.abc.com/2132743.html)
-- [热点资讯延伸阅读 27](https://www.abc.com/5580537.html)
-- [百度热搜延伸阅读 28](https://www.abc.com/8965616.html)
-- [实时热搜延伸阅读 29](https://www.abc.com/3433070.html)
-- [热点资讯延伸阅读 30](https://www.abc.com/8784616.html)
-- [百度热搜延伸阅读 31](https://www.abc.com/0446175.html)
-- [实时热搜延伸阅读 32](https://www.abc.com/cexfmlpe.html)
-- [热点资讯延伸阅读 33](https://www.abc.com/gsluycgj.html)
-- [百度热搜延伸阅读 34](https://www.abc.com/cqmztbuh.html)
-- [实时热搜延伸阅读 35](https://www.abc.com/4152178.html)
-- [热点资讯延伸阅读 36](https://www.abc.com/bdotazoc.html)
-- [百度热搜延伸阅读 37](https://www.abc.com/ofiddxlg.html)
-- [实时热搜延伸阅读 38](https://www.abc.com/1832185.html)
-- [热点资讯延伸阅读 39](https://www.abc.com/beomxubp.html)
-- [百度热搜延伸阅读 40](https://www.abc.com/dsrhnovs.html)
-- [实时热搜延伸阅读 41](https://www.abc.com/1383985.html)
-- [热点资讯延伸阅读 42](https://www.abc.com/4548616.html)
-- [百度热搜延伸阅读 43](https://www.abc.com/gwhcekbu.html)
-- [实时热搜延伸阅读 44](https://www.abc.com/3588427.html)
-- [热点资讯延伸阅读 45](https://www.abc.com/3843046.html)
-- [百度热搜延伸阅读 46](https://www.abc.com/gvldzodl.html)
-- [实时热搜延伸阅读 47](https://www.abc.com/jrxppyym.html)
-- [热点资讯延伸阅读 48](https://www.abc.com/npvluhij.html)
-- [百度热搜延伸阅读 49](https://www.abc.com/7991111.html)
-- [实时热搜延伸阅读 50](https://www.abc.com/kxystxgj.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/gfnmgqca.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/4084593.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/3324499.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/7737863.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/6644729.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/qejsmxdy.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/3897778.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/hemorynq.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/3910571.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/dmbvodcr.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/9432709.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/0804668.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/uijsckuw.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/1452581.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/gjrctyuq.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/pvulgljv.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/bwvwkhol.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/1883802.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/4901644.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/owhexdma.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/4043740.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/0615047.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/vgjogahy.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/ebhqwiwo.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/2007783.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/2132743.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/5580537.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/8965616.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/3433070.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/8784616.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/0446175.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/cexfmlpe.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/gsluycgj.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/cqmztbuh.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/4152178.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/bdotazoc.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/ofiddxlg.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/1832185.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/beomxubp.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/dsrhnovs.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/1383985.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/4548616.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/gwhcekbu.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/3588427.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/3843046.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/gvldzodl.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/jrxppyym.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/npvluhij.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/7991111.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/kxystxgj.html)
 
 </details>
 

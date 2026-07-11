@@ -10,15 +10,15 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%8F%91%E7%9A%84live%E5%9B%BE"
 rank: 6
-updated_at: "2026-07-11T20:44:37+08:00"
-content_fingerprint: "8adb8eeb0387f7246ce0"
+updated_at: "2026-07-11T20:50:44+08:00"
+content_fingerprint: "ba048f59fa3433dc9def"
 ---
 
 [热点索引](README.md) / 纸上谈兵 / 迪丽热巴工作室发的live图
 
 # 迪丽热巴工作室发的live图
 
-> 来源：微博热搜 · 榜单排名：第 6 位 · 更新时间：2026-07-11T20:44:37+08:00
+> 来源：微博热搜 · 榜单排名：第 6 位 · 更新时间：2026-07-11T20:50:44+08:00
 
 ## 事件概览
 
@@ -26,7 +26,7 @@ content_fingerprint: "8adb8eeb0387f7246ce0"
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“迪丽热巴工作室发的live图”位列第 6 位，公开热度指标为 1395879，榜单分类为“电影”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“迪丽热巴工作室发的live图”位列第 6 位，公开热度指标为 1299493，榜单分类为“电影”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -36,7 +36,7 @@ content_fingerprint: "8adb8eeb0387f7246ce0"
 
 - 来源平台：微博热搜
 - 当前排名：第 6 位
-- 热度：1395879
+- 热度：1299493
 - 分类：电影
 - 固定索引：纸上谈兵（zhi-shang-tan-bing）
 
@@ -55,7 +55,7 @@ content_fingerprint: "8adb8eeb0387f7246ce0"
 - [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](wei-wei-jiu-zhao.md)（围魏救赵）
 - [吾从人族来，自当为人族竭尽全力！](wan-bi-gui-zhao.md)（完璧归赵）
 - [北京暴雨红色预警](fu-jing-qing-zui.md)（负荆请罪）
-- [长沙市体育局干部彭某某被停职](mao-sui-zi-jian.md)（毛遂自荐）
+- [上海天空](mao-sui-zi-jian.md)（毛遂自荐）
 
 ## 前后篇导航
 
@@ -77,56 +77,56 @@ content_fingerprint: "8adb8eeb0387f7246ce0"
 <details>
 <summary>查看 50 条标签相关链接</summary>
 
-- [微博热搜延伸阅读 1](https://www.abc.com/fwkzdmyf.html)
-- [实时热搜延伸阅读 2](https://www.abc.com/1599253.html)
-- [热点资讯延伸阅读 3](https://www.abc.com/ticshrnl.html)
-- [电影延伸阅读 4](https://www.abc.com/9395259.html)
-- [微博热搜延伸阅读 5](https://www.abc.com/thklrqqj.html)
-- [实时热搜延伸阅读 6](https://www.abc.com/1302879.html)
-- [热点资讯延伸阅读 7](https://www.abc.com/9567304.html)
-- [电影延伸阅读 8](https://www.abc.com/xtcjkyir.html)
-- [微博热搜延伸阅读 9](https://www.abc.com/zitprukx.html)
-- [实时热搜延伸阅读 10](https://www.abc.com/bkqnrbef.html)
-- [热点资讯延伸阅读 11](https://www.abc.com/qtwazyes.html)
-- [电影延伸阅读 12](https://www.abc.com/kwqxdwqa.html)
-- [微博热搜延伸阅读 13](https://www.abc.com/3061076.html)
-- [实时热搜延伸阅读 14](https://www.abc.com/zjhxvzti.html)
-- [热点资讯延伸阅读 15](https://www.abc.com/acqsftme.html)
-- [电影延伸阅读 16](https://www.abc.com/vaucdjtn.html)
-- [微博热搜延伸阅读 17](https://www.abc.com/zoavjihe.html)
-- [实时热搜延伸阅读 18](https://www.abc.com/ftpessky.html)
-- [热点资讯延伸阅读 19](https://www.abc.com/9811448.html)
-- [电影延伸阅读 20](https://www.abc.com/2784634.html)
-- [微博热搜延伸阅读 21](https://www.abc.com/fkrnhrqy.html)
-- [实时热搜延伸阅读 22](https://www.abc.com/7312184.html)
-- [热点资讯延伸阅读 23](https://www.abc.com/3348459.html)
-- [电影延伸阅读 24](https://www.abc.com/ylpipdds.html)
-- [微博热搜延伸阅读 25](https://www.abc.com/9267131.html)
-- [实时热搜延伸阅读 26](https://www.abc.com/4435954.html)
-- [热点资讯延伸阅读 27](https://www.abc.com/5314376.html)
-- [电影延伸阅读 28](https://www.abc.com/qwhixqvt.html)
-- [微博热搜延伸阅读 29](https://www.abc.com/8594301.html)
-- [实时热搜延伸阅读 30](https://www.abc.com/0320121.html)
-- [热点资讯延伸阅读 31](https://www.abc.com/8378145.html)
-- [电影延伸阅读 32](https://www.abc.com/kzaaatic.html)
-- [微博热搜延伸阅读 33](https://www.abc.com/vcrzzidr.html)
-- [实时热搜延伸阅读 34](https://www.abc.com/9443285.html)
-- [热点资讯延伸阅读 35](https://www.abc.com/1654596.html)
-- [电影延伸阅读 36](https://www.abc.com/gcyrmnfk.html)
-- [微博热搜延伸阅读 37](https://www.abc.com/4308591.html)
-- [实时热搜延伸阅读 38](https://www.abc.com/9892497.html)
-- [热点资讯延伸阅读 39](https://www.abc.com/1689028.html)
-- [电影延伸阅读 40](https://www.abc.com/qshciaid.html)
-- [微博热搜延伸阅读 41](https://www.abc.com/7749294.html)
-- [实时热搜延伸阅读 42](https://www.abc.com/vtlwgwbe.html)
-- [热点资讯延伸阅读 43](https://www.abc.com/4214220.html)
-- [电影延伸阅读 44](https://www.abc.com/9333052.html)
-- [微博热搜延伸阅读 45](https://www.abc.com/5046267.html)
-- [实时热搜延伸阅读 46](https://www.abc.com/1850417.html)
-- [热点资讯延伸阅读 47](https://www.abc.com/2059793.html)
-- [电影延伸阅读 48](https://www.abc.com/1711713.html)
-- [微博热搜延伸阅读 49](https://www.abc.com/wmnidyxg.html)
-- [实时热搜延伸阅读 50](https://www.abc.com/srhjclsl.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/fwkzdmyf.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/1599253.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/ticshrnl.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/9395259.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/thklrqqj.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/1302879.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/9567304.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/xtcjkyir.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/zitprukx.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/bkqnrbef.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/qtwazyes.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/kwqxdwqa.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/3061076.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/zjhxvzti.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/acqsftme.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/vaucdjtn.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/zoavjihe.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/ftpessky.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/9811448.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/2784634.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/fkrnhrqy.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/7312184.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/3348459.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/ylpipdds.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/9267131.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/4435954.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/5314376.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/qwhixqvt.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/8594301.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/0320121.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/8378145.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/kzaaatic.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/vcrzzidr.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/9443285.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/1654596.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/gcyrmnfk.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/4308591.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/9892497.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/1689028.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/qshciaid.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/7749294.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/vtlwgwbe.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/4214220.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/9333052.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/5046267.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/1850417.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/2059793.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/1711713.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/wmnidyxg.html)
+- [迪丽热巴工作室发的live图](https://www.abc.com/srhjclsl.html)
 
 </details>
 

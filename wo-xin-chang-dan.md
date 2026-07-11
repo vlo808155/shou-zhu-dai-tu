@@ -10,15 +10,15 @@ tags:
 source: "知乎热榜"
 source_url: "https://www.zhihu.com/question/2055338128379007237"
 rank: 5
-updated_at: "2026-07-11T20:44:37+08:00"
-content_fingerprint: "0bdd52171b6aeb4e3f41"
+updated_at: "2026-07-11T20:50:44+08:00"
+content_fingerprint: "377cce42df959a3ddb83"
 ---
 
 [热点索引](README.md) / 卧薪尝胆 / 为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？
 
 # 为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？
 
-> 来源：知乎热榜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:44:37+08:00
+> 来源：知乎热榜 · 榜单排名：第 5 位 · 更新时间：2026-07-11T20:50:44+08:00
 
 ## 事件概览
 
@@ -26,7 +26,7 @@ content_fingerprint: "0bdd52171b6aeb4e3f41"
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？”位列第 5 位，公开热度指标为 457 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？”位列第 5 位，公开热度指标为 447 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -36,7 +36,7 @@ content_fingerprint: "0bdd52171b6aeb4e3f41"
 
 - 来源平台：知乎热榜
 - 当前排名：第 5 位
-- 热度：457 万热度
+- 热度：447 万热度
 - 分类：问答
 - 固定索引：卧薪尝胆（wo-xin-chang-dan）
 
@@ -59,7 +59,7 @@ content_fingerprint: "0bdd52171b6aeb4e3f41"
 
 ## 前后篇导航
 
-- 上一篇：[巴威路线东移](wen-ji-qi-wu.md)（闻鸡起舞）
+- 上一篇：[25岁南非国脚亚当斯自杀离世](wen-ji-qi-wu.md)（闻鸡起舞）
 - 下一篇：[当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](po-fu-chen-zhou.md)（破釜沉舟）
 
 ## 热点仓库导航
@@ -77,56 +77,56 @@ content_fingerprint: "0bdd52171b6aeb4e3f41"
 <details>
 <summary>查看 50 条标签相关链接</summary>
 
-- [知乎热榜延伸阅读 1](https://www.abc.com/7028878.html)
-- [实时热搜延伸阅读 2](https://www.abc.com/zqveysbs.html)
-- [热点资讯延伸阅读 3](https://www.abc.com/nhjztkbt.html)
-- [问答延伸阅读 4](https://www.abc.com/8343306.html)
-- [知乎热榜延伸阅读 5](https://www.abc.com/hvznaqci.html)
-- [实时热搜延伸阅读 6](https://www.abc.com/0592008.html)
-- [热点资讯延伸阅读 7](https://www.abc.com/turvmruw.html)
-- [问答延伸阅读 8](https://www.abc.com/guncligv.html)
-- [知乎热榜延伸阅读 9](https://www.abc.com/1167182.html)
-- [实时热搜延伸阅读 10](https://www.abc.com/inhtcomx.html)
-- [热点资讯延伸阅读 11](https://www.abc.com/qbpnubtc.html)
-- [问答延伸阅读 12](https://www.abc.com/1717612.html)
-- [知乎热榜延伸阅读 13](https://www.abc.com/5075095.html)
-- [实时热搜延伸阅读 14](https://www.abc.com/2595423.html)
-- [热点资讯延伸阅读 15](https://www.abc.com/ayyqznht.html)
-- [问答延伸阅读 16](https://www.abc.com/ksktesyh.html)
-- [知乎热榜延伸阅读 17](https://www.abc.com/pekgnrss.html)
-- [实时热搜延伸阅读 18](https://www.abc.com/1320124.html)
-- [热点资讯延伸阅读 19](https://www.abc.com/3815458.html)
-- [问答延伸阅读 20](https://www.abc.com/bbqxsamp.html)
-- [知乎热榜延伸阅读 21](https://www.abc.com/wdxqiocu.html)
-- [实时热搜延伸阅读 22](https://www.abc.com/lprgijme.html)
-- [热点资讯延伸阅读 23](https://www.abc.com/ptjguezu.html)
-- [问答延伸阅读 24](https://www.abc.com/5549067.html)
-- [知乎热榜延伸阅读 25](https://www.abc.com/4833521.html)
-- [实时热搜延伸阅读 26](https://www.abc.com/9612232.html)
-- [热点资讯延伸阅读 27](https://www.abc.com/3737828.html)
-- [问答延伸阅读 28](https://www.abc.com/przenscu.html)
-- [知乎热榜延伸阅读 29](https://www.abc.com/ozwrlqer.html)
-- [实时热搜延伸阅读 30](https://www.abc.com/zywduvmv.html)
-- [热点资讯延伸阅读 31](https://www.abc.com/2745096.html)
-- [问答延伸阅读 32](https://www.abc.com/erpboeyy.html)
-- [知乎热榜延伸阅读 33](https://www.abc.com/nzdrpawy.html)
-- [实时热搜延伸阅读 34](https://www.abc.com/2482394.html)
-- [热点资讯延伸阅读 35](https://www.abc.com/gkjgdtji.html)
-- [问答延伸阅读 36](https://www.abc.com/4953530.html)
-- [知乎热榜延伸阅读 37](https://www.abc.com/8482492.html)
-- [实时热搜延伸阅读 38](https://www.abc.com/mjytydhh.html)
-- [热点资讯延伸阅读 39](https://www.abc.com/cxwpsjtw.html)
-- [问答延伸阅读 40](https://www.abc.com/rrimfwaj.html)
-- [知乎热榜延伸阅读 41](https://www.abc.com/qxrwtcxg.html)
-- [实时热搜延伸阅读 42](https://www.abc.com/oaqhifmu.html)
-- [热点资讯延伸阅读 43](https://www.abc.com/yjstpuzf.html)
-- [问答延伸阅读 44](https://www.abc.com/1497019.html)
-- [知乎热榜延伸阅读 45](https://www.abc.com/afdidden.html)
-- [实时热搜延伸阅读 46](https://www.abc.com/2056271.html)
-- [热点资讯延伸阅读 47](https://www.abc.com/vjzciwot.html)
-- [问答延伸阅读 48](https://www.abc.com/1593140.html)
-- [知乎热榜延伸阅读 49](https://www.abc.com/zlqvxecj.html)
-- [实时热搜延伸阅读 50](https://www.abc.com/7251887.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/7028878.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/zqveysbs.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/nhjztkbt.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/8343306.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/hvznaqci.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/0592008.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/turvmruw.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/guncligv.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/1167182.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/inhtcomx.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/qbpnubtc.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/1717612.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/5075095.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/2595423.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/ayyqznht.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/ksktesyh.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/pekgnrss.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/1320124.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/3815458.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/bbqxsamp.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/wdxqiocu.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/lprgijme.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/ptjguezu.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/5549067.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/4833521.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/9612232.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/3737828.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/przenscu.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/ozwrlqer.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/zywduvmv.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/2745096.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/erpboeyy.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/nzdrpawy.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/2482394.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/gkjgdtji.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/4953530.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/8482492.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/mjytydhh.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/cxwpsjtw.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/rrimfwaj.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/qxrwtcxg.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/oaqhifmu.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/yjstpuzf.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/1497019.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/afdidden.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/2056271.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/vjzciwot.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/1593140.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/zlqvxecj.html)
+- [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/7251887.html)
 
 </details>
 
