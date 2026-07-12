@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 一直以为取卡针的作用只有换电话卡
+# 小鹏X9集体趴窝 疑因高温
 
-> 来源：微博热搜 · 排名：第 6 位 · 热度：1454698 · 分类：幽默 · 更新：2026-07-12T19:42:24+08:00
+> 来源：百度热搜 · 排名：第 5 位 · 热度：7330907 · 更新：2026-07-12T22:44:55+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“一直以为取卡针的作用只有换电话卡”位列第 6 位，公开热度指标为 1454698，榜单分类为“幽默”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“小鹏X9集体趴窝 疑因高温”位列第 5 位，公开热度指标为 7330907。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：重庆多名小鹏X9车主反映车辆在高温天气下突发空气悬挂漏气导致集体趴窝，车主普遍怀疑与当地持续40℃高温直接相关，该问题已屡遭投诉，品牌暂无回应。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `幽默`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [峨眉武术传人谈《功夫女足》](zhi-shang-tan-bing.md)
-- [冉莹颖称曾多次想离婚，录综艺本想救赎婚姻，录完「不再执着于改造对方」，透露出怎样的婚姻相处智慧？](wei-wei-jiu-zhao.md)
-- [《我推的孩子》](wan-bi-gui-zhao.md)
-- [周星驰《功夫女足》豆瓣开分6.6分](fu-jing-qing-zui.md)
+- [中国女生在韩国救下一车人](zhi-shang-tan-bing.md)
+- [台风巴威实时路径](wei-wei-jiu-zhao.md)
+- [如何看待中华人民共和国外交部发布关于有关国家炒作「南海仲裁案裁决」出台十年的声明？释放了哪些信号？](wan-bi-gui-zhao.md)
+- [【2026MSI】7月12日 BLG vs HLE](fu-jing-qing-zui.md)
 
 ## 站内推荐
 
-- [中华人民共和国外交部郑重声明](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [房间里爱放谷子和手办的天塌了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [功夫女足豆瓣6.6票房却杀疯了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [网传大 S 遗产卡里仅有 200 万台币，这一消息真实性如何？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [“我不在的日子里，你们很嚣张啊”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [中央考核巡查组：您懂得怎么操作吗](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [中方：日本没资格说三道四](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [新能源车平均车龄仅1.8年](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [功夫女足](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [如何看待 2026 年 7 月 11 日周星驰新电影《功夫女足》预测票房飙升至 18.6 亿人民币？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [世界杯四强法国、阿根廷、西班牙、英格兰，正好是 FIFA 排名前四的球队，你更看好谁夺冠？](http://www.play.hengshemaoyi.cn/kongbu/0102137.htm)
-- [你比泰森还牛比](http://www.movie.hkepx.cn/xiju/5709027.htm)
+- [60万斤温州大黄鱼扛过台风巴威](http://www.play.hengshemaoyi.cn/kongbu/0102137.htm)
+- [“雷霆动物集体蹦迪，汽车光头百万撤离”【天堂的彼端-变速】【顶级智斗の小曲】](http://www.movie.hkepx.cn/xiju/5709027.htm)
 - [《崩坏：星穹铁道》动画短片——「你的终点，我的起点」](http://www.daogukj.com/ptmfwdkn/)
-- [《无限暖暖》2.8版本套装PV | 白夜长旋舞&心光破晓时](http://www.movie.hkepx.cn/xiju/7509997.htm)
-- [小蜘蛛攻入本届个人首球获全场最佳](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
-- [英格兰派出了贝林哄哈兰德](http://www.movie.hkepx.cn/xiju/7276031.htm)
-- [评论员：受够了西班牙队阿根廷队](http://www.daogukj.com/qxoqgypn/)
-- [河南17岁少年买站票到广西救灾](http://www.daogukj.com/2637140)
-- [下周A股机会来了吗](http://www.daogukj.com/lcagyyzr/)
-- [“我不在的日子里，你们很嚣张啊”](http://www.daogukj.com/nckagbek/)
-- [【🚬🗿肺子咳烂】尼古喵喵第一集究竟抽了多少根烟？💨💨💨](http://www.movie.hkepx.cn/movie/0871738.htm)
-- [买“三金”半年便宜近两万](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
-- [【第四十四赛季·精华1】故事视频——《斯特瓦德的舞宴·下篇》公开：——“与我共舞吧，不停下坠，不停沉沦……”](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
-- [中华人民共和国外交部郑重声明](http://www.daogukj.com/kwifztpg/)
-- [《明日方舟》集成战略「沉沦者的黑流树海」宣传PV · 玩法介绍](http://www.movie.hkepx.cn/movie/5703439.htm)
-- [为什么台风预报的时候来势汹汹，但真登陆了感觉没有那么强烈？](http://www.daogukj.com/ifbvcvnj/)
-- [贝林厄姆一秒哄好哈兰德](http://www.daogukj.com/6568203)
-- [6月新增新冠确诊7.9万例](http://www.daogukj.com/0211136)
-- [【独家】牧神记 第91集 皇帝，道主，侞莱](http://www.movie.hkepx.cn/xiju/0370085.htm)
-- [东莞一处透明隔音板致鸟撞频发](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
-- [超强厄尔尼诺事件要来了](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
-- [无人机吊起2人神图系AI合成](http://www.movie.hkepx.cn/xiju/4676858.htm)
-- [长鑫有员工年薪35万月加班80小时](http://www.movie.hkepx.cn/movie/9996697.htm)
-- [贝克汉姆女儿15岁了](http://www.movie.hkepx.cn/xiju/2854874.htm)
-- [周星驰《功夫女足》豆瓣开分6.6分](http://www.daogukj.com/crhtjcoa/)
-- [世界杯半决赛，阿根廷将和英格兰复刻英阿大战，两队历史上有何恩怨，对本场比赛你有什么期待？](http://www.movie.hkepx.cn/xiju/5398219.htm)
-- [多场景防汛避险指南](http://www.movie.hkepx.cn/xiju/9887508.htm)
-- [特厨隋坡探店全差评餐厅引争议，老板「逆天回怼」是高明还是失策？](http://www.play.hengshemaoyi.cn/xiju/6315447.htm)
-- [巴威衰减变慢风雨影响为何仍持续](http://www.movie.hkepx.cn/movie/8094400.htm)
-- [瑞士主帅：裁判误判偷走了胜利](http://www.movie.hkepx.cn/movie/8053500.htm)
-- [为什么这次的台风巴威会这样铺天盖地的宣传，身边以前不关注的人也抢物资，是什么原因造成的？](http://www.movie.hkepx.cn/xiju/8733503.htm)
-- [黄岩岛有个代表中国的无线电呼号](http://www.play.hengshemaoyi.cn/kongbu/6039715.htm)
-- [蔡徐坤直播](http://www.daogukj.com/9356439)
-- [狼 鬼 情 未 了](http://www.daogukj.com/ianqofdj/)
-- [留德华带你第一视角用人民币感受在超市退瓶子](http://www.daogukj.com/sizrvcao/)
-- [盛唐时期大部分唐朝人真的能每天以肉饼为食吗？](http://www.play.hengshemaoyi.cn/xiju/7255725.htm)
-- [晚晚孕肚好明显](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
-- [2026年MSI季中冠军赛淘汰赛BLG VS HLE，如何评价这场比赛？](http://www.daogukj.com/rwxeygms/)
-- [世界杯1/4决赛，阿根廷加时3-1瑞士进4强，小蜘蛛破门恩博洛假摔染红，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/9837059.htm)
-- [巴威登陆地街道广告立牌被整片吹烂](http://www.daogukj.com/2160602)
-- [如何看待papi酱节目《热烈欢迎》邀请梁靖崑出席？](http://www.play.hengshemaoyi.cn/kongbu/7208069.htm)
-- [今天装饰了一下小卖部，希望你能喜欢](http://www.movie.hkepx.cn/movie/2235201.htm)
-- [菲律宾曾书面承认黄岩岛非其领土](http://www.play.hengshemaoyi.cn/kongbu/1046080.htm)
-- [小鹏X9集体趴窝 疑因高温](http://www.movie.hkepx.cn/xiju/2538742.htm)
-- [《我推的孩子》](http://www.daogukj.com/9489918)
-- [观众吐槽：周星驰 到底谁欠谁电影票](http://www.movie.hkepx.cn/xiju/2931592.htm)
-- [将飞机票和火车票的时间显示改为30小时制，是否能有效防止凌晨出发的旅客因时间理解问题而迟到24小时？](http://www.daogukj.com/ottjwhke/)
-- [去了一趟得克萨斯州。](http://www.movie.hkepx.cn/movie/7215484.htm)
-- [吾从人族来，自当为人族竭尽全力！](http://www.movie.hkepx.cn/xiju/4060244.htm)
-- [如何看待 7 月 12 日伊朗再次宣布关闭霍尔木兹海峡？这种封锁会成为常态吗？从长期看，要怎么应对？](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
+- [2026 MSI 总决赛 HLE 3:2 复仇 BLG 夺得冠军，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/7509997.htm)
+- [河南的最高礼仪给谢霆锋整不会了](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
+- [樊振东将解说世界杯决赛](http://www.movie.hkepx.cn/xiju/7276031.htm)
+- [一直以为取卡针的作用只有换电话卡](http://www.daogukj.com/qxoqgypn/)
+- [全国 6 月新增新冠超 7 万例，病例数呈上升趋势，这意味着什么？普通人需要打加强针吗？](http://www.daogukj.com/2637140)
+- [“星女郎”艾米被北电录取](http://www.daogukj.com/lcagyyzr/)
+- [如何看待 2026 年 7 月 11 日周星驰新电影《功夫女足》预测票房飙升至 18.6 亿人民币？](http://www.daogukj.com/nckagbek/)
+- [巴丹群岛距离中国台湾岛约 190 公里，为何被指菲律宾对其无主权？](http://www.movie.hkepx.cn/movie/0871738.htm)
+- [明明天权与孙东旭合开公司](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
+- [将飞机票和火车票的时间显示改为30小时制，是否能有效防止凌晨出发的旅客因时间理解问题而迟到24小时？](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
+- [中央考核巡查组：您懂得怎么操作吗](http://www.daogukj.com/kwifztpg/)
+- [小蜘蛛攻入本届个人首球获全场最佳](http://www.movie.hkepx.cn/movie/5703439.htm)
+- [网友用虹吸原理巧吸窗台积水](http://www.daogukj.com/ifbvcvnj/)
+- [樊振东武磊将解说世界杯决赛](http://www.daogukj.com/6568203)
+- [盛唐时期大部分唐朝人真的能每天以肉饼为食吗？](http://www.daogukj.com/0211136)
+- [世界杯四强法国、阿根廷、西班牙、英格兰，正好是 FIFA 排名前四的球队，你更看好谁夺冠？](http://www.movie.hkepx.cn/xiju/0370085.htm)
+- [台风巴威风力持续减小 最新预测](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
+- [【TF家族练习生】《突围II破局》EP03：来自舞台的邀请函（下）](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
+- [这才是《The Other Side Of Paradise》原版MV！](http://www.movie.hkepx.cn/xiju/4676858.htm)
+- [吾从人族来，自当为人族竭尽全力！](http://www.movie.hkepx.cn/movie/9996697.htm)
+- [假如你生活在十万人的宿舍营](http://www.movie.hkepx.cn/xiju/2854874.htm)
+- [【2026MSI】7月12日 BLG vs HLE](http://www.daogukj.com/crhtjcoa/)
+- [Bin被打成了BLG的最大弱点](http://www.movie.hkepx.cn/xiju/5398219.htm)
+- [防汛防台风 各部门这样部署](http://www.movie.hkepx.cn/xiju/9887508.htm)
+- [如何看待瑞士前锋恩博洛偷鸡不成蚀把米，假摔骗黄未遂，VAR回放后反被裁判罚下，离场时抱头痛哭？](http://www.play.hengshemaoyi.cn/xiju/6315447.htm)
+- [《和最讨厌的人灵魂互换了》完整版](http://www.movie.hkepx.cn/movie/8094400.htm)
+- [张雪机车获第十名](http://www.movie.hkepx.cn/movie/8053500.htm)
+- [江苏盐城发生3.0级地震](http://www.movie.hkepx.cn/xiju/8733503.htm)
+- [副局长买10亿Token手搓防汛APP](http://www.play.hengshemaoyi.cn/kongbu/6039715.htm)
+- [伊朗导弹打击中东美军目标 画面公布](http://www.daogukj.com/9356439)
+- [小红书前员工再发文实名举报 IPO 合规，哪些信息值得关注？](http://www.daogukj.com/ianqofdj/)
+- [文章女儿晒和妹妹出游照](http://www.daogukj.com/sizrvcao/)
+- [男子发布涉台风不实信息被行拘](http://www.play.hengshemaoyi.cn/xiju/7255725.htm)
+- [共享单车偷偷涨价扫一下快2元了](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
+- [世界女排联赛香港站中国队1胜3负收官](http://www.daogukj.com/rwxeygms/)
+- [一图读懂“六张网”之新型电网](http://www.play.hengshemaoyi.cn/kongbu/9837059.htm)
+- [网传大 S 遗产卡里仅有 200 万台币，这一消息真实性如何？](http://www.daogukj.com/2160602)
+- [世界杯四强恰好是FIFA世界前四](http://www.play.hengshemaoyi.cn/kongbu/7208069.htm)
+- [为什么台风预报的时候来势汹汹，但真登陆了感觉没有那么强烈？](http://www.movie.hkepx.cn/movie/2235201.htm)
+- [太原理工击败清华夺得CUBAL冠军](http://www.play.hengshemaoyi.cn/kongbu/1046080.htm)
+- [网络热传生物鉴定 第62期](http://www.movie.hkepx.cn/xiju/2538742.htm)
+- [如何看待中华人民共和国外交部发布关于有关国家炒作「南海仲裁案裁决」出台十年的声明？释放了哪些信号？](http://www.daogukj.com/9489918)
+- [【独家】牧神记 第91集 皇帝，道主，侞莱](http://www.movie.hkepx.cn/xiju/2931592.htm)
+- [7月17日油价将调整](http://www.daogukj.com/ottjwhke/)
+- [孙悟空打死六耳猕猴后变得顺从乖巧，再也没被念紧箍咒，原因是什么？](http://www.movie.hkepx.cn/movie/7215484.htm)
+- [哈兰德以5场比赛7个进球告别本届世界杯，这一成绩如何？他给你留下哪些令人印象深刻的瞬间？](http://www.movie.hkepx.cn/xiju/4060244.htm)
+- [峨眉武术传人谈《功夫女足》](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
 
 </details>
 
 ## 原始来源
 
-- [一直以为取卡针的作用只有换电话卡](https://s.weibo.com/weibo?q=%E4%B8%80%E7%9B%B4%E4%BB%A5%E4%B8%BA%E5%8F%96%E5%8D%A1%E9%92%88%E7%9A%84%E4%BD%9C%E7%94%A8%E5%8F%AA%E6%9C%89%E6%8D%A2%E7%94%B5%E8%AF%9D%E5%8D%A1)
+- [小鹏X9集体趴窝 疑因高温](https://www.baidu.com/s?wd=%E5%B0%8F%E9%B9%8FX9%E9%9B%86%E4%BD%93%E8%B6%B4%E7%AA%9D+%E7%96%91%E5%9B%A0%E9%AB%98%E6%B8%A9&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9fd157e3695927032fcf -->
+<!-- content-fingerprint: f767e89beaf24a8cc546 -->
