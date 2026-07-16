@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 英格兰名宿集体炮轰图赫尔放弃进攻
+# 埃及裁判专家：阿根廷绝杀球应判无效
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7424302 · 更新：2026-07-16T08:09:03+08:00
+> 来源：百度热搜 · 排名：第 4 位 · 热度：7426339 · 更新：2026-07-16T15:48:40+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“英格兰名宿集体炮轰图赫尔放弃进攻”位列第 4 位，公开热度指标为 7424302。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“埃及裁判专家：阿根廷绝杀球应判无效”位列第 4 位，公开热度指标为 7426339。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：北京时间7月16日，2026年世界杯半决赛，英格兰1比2遭阿根廷逆转，无缘决赛。赛后，鲁尼、乔·哈特等英格兰名宿集体批评图赫尔，认为球队领先后主动放弃进攻，过于保守，最终葬送晋级机会。
+来源公开摘要显示：北京时间7月16日，埃及知名裁判贾马尔·甘杜尔在接受媒体采访时表示，阿根廷和英格兰队这场比赛的第二粒进球属于进攻犯规在先，梅西送出助攻前踩到斯彭斯脚面，此球应判无效。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [英格兰球迷怒喷主教练](wang-mei-zhi-ke.md)
-- [广西贵港市民冒雨送别电力铁军](wen-ji-qi-wu.md)
-- [如何看待网传 DeepSeek 实习日薪突破 5500 元？这反映了 AI 行业与求职市场哪些现状？](wo-xin-chang-dan.md)
-- [搞强拆能惹多大祸？【奇葩小国53】](po-fu-chen-zhou.md)
+- [曾硬刚王健林的80后干部被查](wang-mei-zhi-ke.md)
+- [英首相谈英格兰遭绝杀：非常沮丧](wen-ji-qi-wu.md)
+- [38 岁的中年妇女有种无力感，不求上进的老公、不爱学习的孩子、无能为力的自己，大家都有这个感觉嘛？](wo-xin-chang-dan.md)
+- [《崩坏：星穹铁道》EP：「下一站」](po-fu-chen-zhou.md)
 
 ## 站内推荐
 
-- [二季度GDP增长4.3% 怎么看](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [泽连斯基拧个瓶盖 引发巨大争议](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [“存100万元解锁5.25%利息”不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [美股中概股集体走强 SK海力士跌9%](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [李现张婧仪新剧婚礼迎宾牌](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [上半年社会融资规模增量合理增长](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [昆明暴雨呈柱状倾泻如“登天电梯”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [九寨沟辟谣湖水靠染色变蓝](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [张天陈奕辰分手](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [佛得角严选冠亚军](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [阿根廷2比1淘汰英格兰 决赛战西班牙](http://www.daogukj.com/srmtipfy/)
-- [英阿大战像自由搏击](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
-- [中式折扇爆单了](http://www.daogukj.com/5764219)
-- [09年高中生带全家勇闯北京](http://www.daogukj.com/5051205)
-- [哭着剪完这条视频…](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
-- [西北大学对贾浅浅的调查拖了三个月，为何突然就出结果了？学术调查一般涉及哪些程序？](http://www.movie.hkepx.cn/movie/3745200.htm)
-- [世界杯决赛对阵图来了](http://www.daogukj.com/eptgayul/)
-- [为什么很多爆款心理文案是「伪心理学」？普通人辨别时容易踩哪些误区？](http://www.daogukj.com/zzzmzdnw/)
-- [凯恩 图赫尔](http://www.daogukj.com/2895651)
-- [不建议大家辞职去做自媒体](http://www.daogukj.com/bmrafxkl/)
-- [阿根廷队为何总在绝境中逆转](http://www.movie.hkepx.cn/movie/6678209.htm)
-- [我宁愿在这个世界里，永远做一个你“尚未到来”的传说](http://www.daogukj.com/2230415)
-- [直播间飙升10万+！大司马玩怀旧服老版AP塞恩，瞪谁谁怀孕来了](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
-- [【幼稚园TV】建材王哥大闹天宫](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
-- [如果吴孟达健在，会在周星驰《功夫女足》中担任什么角色？](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
-- [上集| 丧尸末日降临 而我还在送外卖](http://www.movie.hkepx.cn/xiju/6217864.htm)
-- [中国用户终于迎来满血iPhone](http://www.movie.hkepx.cn/movie/4778790.htm)
-- [我也好奇冉莹颖在MBA班上都学了啥](http://www.movie.hkepx.cn/movie/7470449.htm)
-- [为什么阿根廷主帅斯卡洛尼要极力淡化马岛战争对英阿大战的影响，不断强调「这只是一场足球比赛」？](http://www.movie.hkepx.cn/movie/6111499.htm)
-- [广西贵港市民冒雨送别电力铁军](http://www.movie.hkepx.cn/xiju/2348853.htm)
-- [图赫尔 对不起英格兰](http://www.daogukj.com/fygnbifa/)
-- [英格兰vs阿根廷](http://www.daogukj.com/9070712)
-- [贝林厄姆赛后暴怒](http://www.daogukj.com/hoflukum/)
-- [美股中概股集体走强 SK海力士跌9%](http://www.daogukj.com/3336484)
-- [劳塔罗头槌“砰”出绝杀](http://www.movie.hkepx.cn/movie/3675931.htm)
-- [这就是英阿大战的强度吗](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
-- [李现张婧仪新剧婚礼迎宾牌](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
+- [阿根廷球员捡到英格兰战术小抄](http://www.daogukj.com/srmtipfy/)
+- [基因为什么走向了繁殖，而不是永生？](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
+- [王楚钦孙颖莎晋级全锦赛混双16强](http://www.daogukj.com/5764219)
+- [于正回应白鹿到期不续](http://www.daogukj.com/5051205)
+- [《洛克王国：世界》远哥来了，福利稳了！](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
+- [为什么建设人民大会堂的时候，没有采用中国本土的建筑风格？](http://www.movie.hkepx.cn/movie/3745200.htm)
+- [阿根廷球员亮横幅 或遭处罚](http://www.daogukj.com/eptgayul/)
+- [吃肉容易早衰，喝米油不哭不闹？](http://www.daogukj.com/zzzmzdnw/)
+- [贺峻霖敢说孟子义都不敢听了](http://www.daogukj.com/2895651)
+- [A股轮动行情普通人该怎么布局](http://www.daogukj.com/bmrafxkl/)
+- [阿根廷队或遭处罚](http://www.movie.hkepx.cn/movie/6678209.htm)
+- [侠隐柱间&水门PV丨英雄见英雄，侠路再相逢【内含侠隐水门爆料】](http://www.daogukj.com/2230415)
+- [黄晓明赵丽颖等艺人救灾物资车侧翻](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
+- [《明日方舟：终末地》诀EP - 寻诀 (Guided by Echoes)](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
+- [曝拼多多请假已精准到分钟，反映了哪些问题？你怎么看待能精准到分的这一请假形式？](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
+- [黄日华宣布复出](http://www.movie.hkepx.cn/xiju/6217864.htm)
+- [父母离婚孩子想跟爸爸被法院驳回](http://www.movie.hkepx.cn/movie/4778790.htm)
+- [张小斐成中国首位票房破百亿85花](http://www.movie.hkepx.cn/movie/7470449.htm)
+- [17 岁男孩被敌敌畏浸透裤子，数小时后被下达病危通知书，这是什么原因？如何做紧急处理？](http://www.movie.hkepx.cn/movie/6111499.htm)
+- [英首相谈英格兰遭绝杀：非常沮丧](http://www.movie.hkepx.cn/xiju/2348853.htm)
+- [非遗武术教练曹海滨突发心梗去世](http://www.daogukj.com/fygnbifa/)
+- [恋与深空](http://www.daogukj.com/9070712)
+- [曾“硬刚王健林”的县长徐刘蔚落马](http://www.daogukj.com/hoflukum/)
+- [张天陈奕辰分手](http://www.daogukj.com/3336484)
+- [我很清楚离职后可能找不到更好的工作，甚至是找不到工作，但我就是不想干了，这种感觉有人懂吗？](http://www.movie.hkepx.cn/movie/3675931.htm)
+- [俄科学家：中国现在是世界第一](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
+- [佛得角严选冠亚军](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
 - [《功夫女足》将在 7 月 17 日（上映第 7 天）更换片源，为什么会出现这种情况？剧情会改动吗？](http://www.daogukj.com/xljzrgjc/)
-- [专家：三伏天千万不要喝冷饮](http://www.daogukj.com/sfjdsknb/)
-- [贝林厄姆 赛后打人](http://www.movie.hkepx.cn/xiju/0712256.htm)
-- [官方把房子定位为大宗消费品意味啥](http://www.daogukj.com/blhofduy/)
-- [日服堵桥被全图围剿！鲁鲁正义の制裁](http://www.daogukj.com/qdmxuvra/)
-- [“存100万元解锁5.25%利息”不实](http://www.daogukj.com/3062862)
-- [DeepSeek工资待遇太恐怖了](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
-- [阿根廷世界杯半决赛胜率100%](http://www.daogukj.com/4819328)
-- [我这视频看完没啥感觉，但是暖暖的！](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
-- [如果你可以随时缩小，十二星座决定你的专属休息小屋 （上） ASMR](http://www.movie.hkepx.cn/xiju/6449274.htm)
-- [网友称 LV 已将纸钱纹样注册，具体什么情况？如果属实纸钱商家会被告侵权吗？](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
-- [英格兰第三次倒在世界杯半决赛](http://www.movie.hkepx.cn/xiju/8624591.htm)
-- [这下真的能住了哈](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
-- [阿根廷连续两届进决赛](http://www.daogukj.com/2518516)
-- [郑州车站回应9个窗口只开1个](http://www.movie.hkepx.cn/movie/2625646.htm)
-- [如何看待网传 DeepSeek 实习日薪突破 5500 元？这反映了 AI 行业与求职市场哪些现状？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
-- [停更两年！UP的真实现状？分手？离婚？还是生孩子了？【他她漫漫聊】](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
-- [美军对驶往伊朗油轮射“地狱火”导弹](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
-- [「吃蛋挞的折棒」吐槽新三国系列，为何关羽之死这段弹幕都是清一色地刷「好」？难道新三国关羽这么不讨喜吗？](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
-- [现在大厂都没实力提供托儿所和厂办医院，当年为啥可以，当年工人产值那么高吗？](http://www.movie.hkepx.cn/xiju/9162988.htm)
-- [韩国股市大反弹，SK海力士美股隔夜暴涨 27%，散户大规模爆仓强平后指数强势反弹，为何波动如此极端？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
-- [肉搏战！英阿半场19次犯规](http://www.daogukj.com/xfhybzga/)
-- [《功夫女足》换片源](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
+- [国行 iPhone 即将牵手阿里千问上线「苹果 AI」，有哪些亮点？可能给手机行业带来哪些影响？](http://www.daogukj.com/sfjdsknb/)
+- [阿根廷球员偷看英格兰战术小抄](http://www.movie.hkepx.cn/xiju/0712256.htm)
+- [皮尤调查：中国全球好感度排名超美国](http://www.daogukj.com/blhofduy/)
+- [C罗或与乔治娜推迟婚礼](http://www.daogukj.com/qdmxuvra/)
+- [九寨沟辟谣湖水靠染色变蓝](http://www.daogukj.com/3062862)
+- [阿根廷或遭罚](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
+- [存储芯片股为何再度跳水](http://www.daogukj.com/4819328)
+- [我宁愿在这个世界里，永远做一个你“尚未到来”的传说](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
+- [决赛世界第1对世界第2](http://www.movie.hkepx.cn/xiju/6449274.htm)
+- [哭着剪完这条视频…](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
+- [“硬刚王健林”的县长落马](http://www.movie.hkepx.cn/xiju/8624591.htm)
+- [The Verity Cast Plays The REAL Verity Mod](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
+- [怪不得留学生喜欢叫自己留子](http://www.daogukj.com/2518516)
+- [武汉：整座城市跳进了夏天](http://www.movie.hkepx.cn/movie/2625646.htm)
+- [38 岁的中年妇女有种无力感，不求上进的老公、不爱学习的孩子、无能为力的自己，大家都有这个感觉嘛？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
+- [《兄弟有个妹妹》3](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
+- [没有人哭是为了解决问题](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
+- [长鑫科技超 6000 员工获股份，IPO 后批量诞生千万富翁，如何看待长鑫科技上市？](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
+- [我把你们奇怪的想法都做到了我的世界里#14](http://www.movie.hkepx.cn/xiju/9162988.htm)
+- [如何看待网传 DeepSeek 实习日薪突破 5500 元？这反映了 AI 行业与求职市场哪些现状？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
+- [长鑫科技IPO](http://www.daogukj.com/xfhybzga/)
+- [教师博士毕业前去世 妻子一夜白头](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
 
 </details>
 
 ## 原始来源
 
-- [英格兰名宿集体炮轰图赫尔放弃进攻](https://www.baidu.com/s?wd=%E8%8B%B1%E6%A0%BC%E5%85%B0%E5%90%8D%E5%AE%BF%E9%9B%86%E4%BD%93%E7%82%AE%E8%BD%B0%E5%9B%BE%E8%B5%AB%E5%B0%94%E6%94%BE%E5%BC%83%E8%BF%9B%E6%94%BB&sa=fyb_news&rsv_dl=fyb_news)
+- [埃及裁判专家：阿根廷绝杀球应判无效](https://www.baidu.com/s?wd=%E5%9F%83%E5%8F%8A%E8%A3%81%E5%88%A4%E4%B8%93%E5%AE%B6%EF%BC%9A%E9%98%BF%E6%A0%B9%E5%BB%B7%E7%BB%9D%E6%9D%80%E7%90%83%E5%BA%94%E5%88%A4%E6%97%A0%E6%95%88&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: cc5a679a5c4a93fbc7a8 -->
+<!-- content-fingerprint: 3a3a75246ba2783167b6 -->
