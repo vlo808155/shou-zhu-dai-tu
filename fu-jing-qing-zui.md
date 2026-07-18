@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# BLG Bin单曲《螺样子》
+# “县长硬刚首富”背后是权力傲慢
 
-> 来源：哔哩哔哩热门 · 排名：第 6 位 · 热度：448546 · 分类：电子竞技 · 更新：2026-07-18T07:12:54+08:00
+> 来源：百度热搜 · 排名：第 6 位 · 热度：7236993 · 更新：2026-07-18T14:31:43+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“BLG Bin单曲《螺样子》”位列第 6 位，公开热度指标为 448546，榜单分类为“电子竞技”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，““县长硬刚首富”背后是权力傲慢”位列第 6 位，公开热度指标为 7236993。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：原曲：《洛阳纸》 原唱：许嵩 混音：@SpecialSound 填词/翻唱/和声/剪辑：蔚蓝边际
+来源公开摘要显示：7月16日，贵州省纪委监委发布消息称，贵州省市监局党组成员徐刘蔚涉嫌严重违纪违法，目前正接受纪律审查和监察调查。当年任丹寨县长的徐刘蔚曾因一段“硬刚”王健林的视频爆红于网络。时过境迁，剥离情绪滤镜，回归对话本身，就会发现“霸气”言论的实质恰恰是权力傲慢的体现。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `电子竞技`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [“北方之王”即将入主唐宁街](mao-sui-zi-jian.md)
-- [阿根廷决赛遇苦主裁判](san-gu-mao-lu.md)
-- [别错过一天中的排便黄金时间](cao-mu-jie-bing.md)
-- [小米 SU7 碰撞测试博主「原来是翔翔啊」因捏造事实被判刑一年八个月，罚款 10 万元，你怎么看？](feng-sheng-he-li.md)
+- [杜华劝邹市明去看病](mao-sui-zi-jian.md)
+- [A股一周熊股出炉：最熊股跌超41%](san-gu-mao-lu.md)
+- [学历史有什么用？](cao-mu-jie-bing.md)
+- [寻找卢本伟](feng-sheng-he-li.md)
 
 ## 站内推荐
 
-- [【独家】《百日成王》第8集 女孩子们真的又勇敢又可爱！【7月国创】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [🐧赛伊德：“我变成女孩了？！”🐧](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [《阴阳师》不相狐禅CG丨洪狐天运（CV：立花慎之介）](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [耗时9999小时！一口气看完熊出没末路大合集！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [哈哈哈哈（3）](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [BLG Bin单曲《螺样子》](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [阿根廷西班牙决赛均穿主场球衣](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [自助餐为何“没吃几口就饱”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [电影《八仙！》今日上映](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [婴儿的器官形成与发育科普视频](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [世界杯三四名决赛有没有存在的必要](http://www.daogukj.com/eqgqhkqf/)
-- [铠甲勇士刑天·守护初心【P1】你是谁？](http://www.play.hengshemaoyi.cn/xiju/5995614.htm)
-- [山体崩塌现场还有34人失联](http://www.play.hengshemaoyi.cn/kongbu/6334914.htm)
-- [为什么会有钢琴老师讲不带成人学生？](http://www.daogukj.com/3536313)
-- [80后女子吐槽断崖式衰老被喊奶奶](http://www.movie.hkepx.cn/xiju/7959476.htm)
-- [没有什么稳定的工作](http://www.movie.hkepx.cn/xiju/4071499.htm)
-- [《食神·百厨大战》开播，广东选手做了一盘没带酱料的白切鸡被评委淘汰，淘汰得对吗？](http://www.movie.hkepx.cn/movie/8882644.htm)
-- [功夫女足让韩国人破防了](http://www.daogukj.com/fdgghkjr/)
-- [哥哥605分考上军校 妹妹争着领牌匾](http://www.movie.hkepx.cn/xiju/3439203.htm)
-- [长沙一出租屋现“垃圾山”](http://www.play.hengshemaoyi.cn/xiju/4410256.htm)
-- [寻找卢本伟](http://www.daogukj.com/zplxdklb/)
-- [西班牙晒大力神杯](http://www.movie.hkepx.cn/movie/6001850.htm)
-- [重庆彭水山体垮塌已搜救出 18 人，其中 8 人死亡，还有 34 人失联，目前救援进展如何？](http://www.play.hengshemaoyi.cn/kongbu/1262531.htm)
-- [店主回应送老顾客彩票中508万](http://www.movie.hkepx.cn/movie/8339563.htm)
-- [7月17日，A股跌至3790点，沪指创2025年9月以来新低，发生了什么？](http://www.movie.hkepx.cn/xiju/2263179.htm)
-- [全球首款机器人手机亮相引老外围观](http://www.play.hengshemaoyi.cn/xiju/0991511.htm)
-- [【独家】《百日成王》第8集 女孩子们真的又勇敢又可爱！【7月国创】](http://www.daogukj.com/3405709)
-- [泰国总理用中文发文：中泰一家亲](http://www.play.hengshemaoyi.cn/xiju/7801003.htm)
-- [【纪录片】一招一食 第六回 火](http://www.daogukj.com/1405714)
-- [法国被曝将全替补阵容出战季军战，让老将和年轻球员登场，如何看待这一选择？](http://www.movie.hkepx.cn/xiju/5293066.htm)
-- [飞天茅台再涨价](http://www.daogukj.com/oabpcutg/)
-- [英国政府拟通过相关立法，将中国敬业集团旗下的英国钢铁公司国有化，对此你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/1350574.htm)
-- [如何看待 C 罗或将推迟原定 7 月 20 日与乔治娜的婚礼？推迟婚期的背后可能有啥原因？](http://www.play.hengshemaoyi.cn/kongbu/5103106.htm)
-- [抓10只蚊子免费换奶茶？商场回应](http://www.movie.hkepx.cn/xiju/9733554.htm)
-- [世界杯冠军将获定制戒指 球迷也能买](http://www.daogukj.com/9709824)
-- [降低“坏胆固醇”的方法找到了](http://www.daogukj.com/1737486)
-- [友情提示：这是一个解压视频.](http://www.daogukj.com/jdlipgmx/)
-- [朱志鑫运动会](http://www.play.hengshemaoyi.cn/kongbu/6065966.htm)
-- [四人操纵股票获利1.57亿被罚没6.27亿](http://www.play.hengshemaoyi.cn/kongbu/7701032.htm)
-- [男子帮台湾游客拍照发现是失联大伯](http://www.movie.hkepx.cn/xiju/7676153.htm)
-- [为啥自然演化出轮子会那么难？](http://www.play.hengshemaoyi.cn/kongbu/2964451.htm)
-- [阿根廷决赛遇苦主裁判](http://www.daogukj.com/1537700)
-- [耗时9999小时！一口气看完熊出没末路大合集！](http://www.daogukj.com/rsfbmsap/)
-- [百花杀热度](http://www.movie.hkepx.cn/movie/7580112.htm)
-- [零食店疯狂扩张 消费者会买账吗](http://www.daogukj.com/0114710)
-- [智能体互信互联互操作全球合作倡议](http://www.play.hengshemaoyi.cn/kongbu/9230233.htm)
-- [2026 EWC 英雄联盟项目 BLG 1:2 不敌 DK 无缘四强，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/7120843.htm)
-- [《三国第一部：争洛阳》官方发文「觉得电影不好看的，可以找片方退票」，如何看待这一操作？](http://www.play.hengshemaoyi.cn/xiju/9989486.htm)
-- [外露式、半隐藏门把手集体回归](http://www.play.hengshemaoyi.cn/xiju/6200267.htm)
-- [重庆彭水山体崩塌已致8人遇难](http://www.daogukj.com/7981248)
-- [成都突发车祸一车烧成空壳](http://www.play.hengshemaoyi.cn/kongbu/9855490.htm)
-- [魔怔萌二和暴躁粗鲁女的相亲历险记](http://www.play.hengshemaoyi.cn/kongbu/7710563.htm)
-- [霍建华 很不高兴为你签名](http://www.daogukj.com/wiaxnumm/)
-- [🐧赛伊德：“我变成女孩了？！”🐧](http://www.play.hengshemaoyi.cn/xiju/6775596.htm)
-- [人民日报评多个行业撤销大师称号](http://www.play.hengshemaoyi.cn/kongbu/1979081.htm)
-- [超110艘俄船只遭“史无前例”的袭击](http://www.play.hengshemaoyi.cn/kongbu/9092912.htm)
-- [中国汽车市场 5 个月推出 542 款新车，比亚迪高管称「彻底疯了」，这反映了怎样的市场竞争？](http://www.daogukj.com/tyfmekow/)
-- [重庆彭水山体崩塌还有34人失联](http://www.movie.hkepx.cn/xiju/3281791.htm)
-- [气象台不敢报40℃？真相来了](http://www.daogukj.com/2886935)
-- [如果我身边的朋友的孩子都很厉害都是学霸，我的孩子相对比较平凡，我还和这些家庭一起亲子活动吗？](http://www.movie.hkepx.cn/xiju/7902460.htm)
+- [南方人小时候噩梦：水稻双抢！现在好像没那么“抢”了？！#田间地头看变化](http://www.daogukj.com/eqgqhkqf/)
+- [友情提示：这是一个解压视频.](http://www.play.hengshemaoyi.cn/xiju/5995614.htm)
+- [佛得角领队感谢母校合肥工业大学](http://www.play.hengshemaoyi.cn/kongbu/6334914.htm)
+- [山东多地：不得向未成年人售卖槟榔](http://www.daogukj.com/3536313)
+- [电影《功夫女足》韩国惹争议，韩网友不满梨花队戴美瞳、犯规设定，韩媒指影片贬低韩国足球队，对此你怎么看？](http://www.movie.hkepx.cn/xiju/7959476.htm)
+- [大衣哥测试除草剂草长疯了果断拒代言](http://www.movie.hkepx.cn/xiju/4071499.htm)
+- [LV 再起诉浙江一日用百货店，商标维权诉讼已高达 1691 起，LV 为何在中国密集维权？](http://www.movie.hkepx.cn/movie/8882644.htm)
+- [重庆山体崩塌](http://www.daogukj.com/fdgghkjr/)
+- [周星驰电影《功夫女足》剑指30亿，如何看待多年前李成儒的墙角论？周星驰电影是墙角吗？](http://www.movie.hkepx.cn/xiju/3439203.htm)
+- [《功夫女足》梨花队让韩网友破防](http://www.play.hengshemaoyi.cn/xiju/4410256.htm)
+- [新乐器！订书钉演奏《千本樱》](http://www.daogukj.com/zplxdklb/)
+- [清华录取通知书极简但有排面](http://www.movie.hkepx.cn/movie/6001850.htm)
+- [英国政府通过相关立法，将中国敬业集团旗下的英国钢铁公司国有化，对此你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/1262531.htm)
+- [6 月中国原油进口大降四成，创下十年月度新低，是需求减弱还是其他原因？](http://www.movie.hkepx.cn/movie/8339563.htm)
+- [奥特六兄弟围攻飞升撤离点！](http://www.movie.hkepx.cn/xiju/2263179.htm)
+- [《功夫女足》越骂越火](http://www.play.hengshemaoyi.cn/xiju/0991511.htm)
+- [BLG Bin单曲《螺样子》](http://www.daogukj.com/3405709)
+- [杜华儿子崇拜李飞想去时代峰峻](http://www.play.hengshemaoyi.cn/xiju/7801003.htm)
+- [快递地址只写到小区真的是妙招吗](http://www.daogukj.com/1405714)
+- [ofo 停更近 5 年后突然发文，此次「复活」释放了什么信号？199元押金还有可能退回吗？](http://www.movie.hkepx.cn/xiju/5293066.htm)
+- [公安部原部长助理谭权已任重庆市领导](http://www.daogukj.com/oabpcutg/)
+- [如何评价月之暗面kimi最新发布的大模型 k3 ?](http://www.play.hengshemaoyi.cn/kongbu/1350574.htm)
+- [《RUNNING FOR YOUR LIFE（无所遁藏）》 | 《鸣潮》演唱会「致予新世界」](http://www.play.hengshemaoyi.cn/kongbu/5103106.htm)
+- [低精力人群为何总是看起来很疲惫](http://www.movie.hkepx.cn/xiju/9733554.htm)
+- [能不能在黄河边上挖一条运河，让黄河改道，把地上河铲平了，再改回去？](http://www.daogukj.com/9709824)
+- [大家用过workbuddy了吗，有什么感受？](http://www.daogukj.com/1737486)
+- [【独家】《凡人修仙传之慕兰之战》第7集【总第183集】](http://www.daogukj.com/jdlipgmx/)
+- [广西横州抗蛇毒血清告急？假的](http://www.play.hengshemaoyi.cn/kongbu/6065966.htm)
+- [EWC淘汰赛DK 2:1 BLG，lpl三支参赛队伍全部淘汰，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/7701032.htm)
+- [古典美声+喉音技巧融合](http://www.movie.hkepx.cn/xiju/7676153.htm)
+- [躲在超市后门拆炸弹的三人](http://www.play.hengshemaoyi.cn/kongbu/2964451.htm)
+- [A股一周熊股出炉：最熊股跌超41%](http://www.daogukj.com/1537700)
+- [电影《八仙！》今日上映](http://www.daogukj.com/rsfbmsap/)
+- [广西大姐流泪拦下救援队想请他们吃饭](http://www.movie.hkepx.cn/movie/7580112.htm)
+- [FIFA主席说可以中美合办世界杯](http://www.daogukj.com/0114710)
+- [水利部解读防汛关键期热点问题](http://www.play.hengshemaoyi.cn/kongbu/9230233.htm)
+- [为什么《暮光之城》男主扮演者这么讨厌《暮光之城》？](http://www.play.hengshemaoyi.cn/kongbu/7120843.htm)
+- [特朗普出手机了！美国总统卖的手机有多离谱？Trump Phone 开箱](http://www.play.hengshemaoyi.cn/xiju/9989486.htm)
+- [足协通报申思祁宏遭禁足仍参与青训](http://www.play.hengshemaoyi.cn/xiju/6200267.htm)
+- [锂电池要和成品油一样交消费税了](http://www.daogukj.com/7981248)
+- [【独家】《百日成王》第8集 女孩子们真的又勇敢又可爱！【7月国创】](http://www.play.hengshemaoyi.cn/kongbu/9855490.htm)
+- [陈冠希现在长得比姜思达还像大冰](http://www.play.hengshemaoyi.cn/kongbu/7710563.htm)
+- [男子养了多年的“九尾狐”被老婆烧毁](http://www.daogukj.com/wiaxnumm/)
+- [阿根廷西班牙决赛均穿主场球衣](http://www.play.hengshemaoyi.cn/xiju/6775596.htm)
+- [傅利叶携多款机器人亮相WAIC](http://www.play.hengshemaoyi.cn/kongbu/1979081.htm)
+- [机器人格斗赛头部脱落后仍能继续战斗，为什么头掉了还能打？这算不算人形机器人的成熟标志？](http://www.play.hengshemaoyi.cn/kongbu/9092912.htm)
+- [【纪录片】一招一食 第六回 火](http://www.daogukj.com/tyfmekow/)
+- [重庆山体崩塌前后对比图](http://www.movie.hkepx.cn/xiju/3281791.htm)
+- [官俊臣 重庆大学](http://www.daogukj.com/2886935)
+- [95后夫妻手搓AI漫剧爆火](http://www.movie.hkepx.cn/xiju/7902460.htm)
 
 </details>
 
 ## 原始来源
 
-- [BLG Bin单曲《螺样子》](https://b23.tv/BV1aQNo6aE2x)
+- [“县长硬刚首富”背后是权力傲慢](https://www.baidu.com/s?wd=%E2%80%9C%E5%8E%BF%E9%95%BF%E7%A1%AC%E5%88%9A%E9%A6%96%E5%AF%8C%E2%80%9D%E8%83%8C%E5%90%8E%E6%98%AF%E6%9D%83%E5%8A%9B%E5%82%B2%E6%85%A2&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4f87d0724f0c016cbc57 -->
+<!-- content-fingerprint: 3347428cd816d5af452b -->
