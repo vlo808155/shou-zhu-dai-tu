@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 大学生为省掉1块钱的打包费
+# 《八仙！》票房已破亿
 
-> 来源：微博热搜 · 排名：第 7 位 · 热度：666372 · 分类：幽默 · 更新：2026-07-18T22:36:57+08:00
+> 来源：百度热搜 · 排名：第 6 位 · 热度：7236695 · 更新：2026-07-19T01:43:12+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“大学生为省掉1块钱的打包费”位列第 7 位，公开热度指标为 666372，榜单分类为“幽默”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“《八仙！》票房已破亿”位列第 6 位，公开热度指标为 7236695。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：电影《八仙！》7月18日上映，票房已突破1亿元。今年暑期档自6月1日启动以来，已有百部影片定档暑期上映，涵盖喜剧、历史、剧情、科幻、动画等多元类型，全方位适配不同观影需求。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `幽默`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [男子养了多年的“九尾狐”被老婆烧毁](san-gu-mao-lu.md)
-- [如何评价月之暗面kimi最新发布的大模型 k3？对比全球其他大模型能力如何？](cao-mu-jie-bing.md)
-- [躲在超市后门拆炸弹的三人](feng-sheng-he-li.md)
-- [用小拇指做手机支架的受害者出现了](ru-huo-ru-tu.md)
+- [大学生为省掉1块钱的打包费](san-gu-mao-lu.md)
+- [两只高原鼠兔在路上打架打完分道扬镳](cao-mu-jie-bing.md)
+- [美国基建能力不是很差吗？为什么这次世界杯中的体育场馆这么多？](feng-sheng-he-li.md)
+- [小伙模仿上海霸道总裁！点外卖能吃到什么离谱的菜？](ru-huo-ru-tu.md)
 
 ## 站内推荐
 
 - [孙颖莎王楚钦爆冷出局无缘混双决赛](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [王俊凯唱了不完美小孩](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [男子判赔75万后身亡受害者家属崩溃](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [富人的孩子确实更容易高配得感](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [祖籍广东的泰国总理飙中文](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [辽宁抚顺19日全市停课](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [伊朗已停止履行伊美谅解备忘录](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [单亲妈妈控诉国企员工隐婚相恋5年](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [法国队主帅德尚赛前宣告离任](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [媒体：县长硬刚首富背后是权力傲慢](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
-- [杜华劝邹市明去看病](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
-- [一眼看出白鹿自己化的妆](http://www.daogukj.com/hiiwohqb/)
-- [为什么杭州湾和珠三角都建大桥了，可是渤海湾却没有建大桥?](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
-- [韩国全民借钱炒股的黄金梦为何破碎](http://www.daogukj.com/2806482)
-- [发现很多KTV都没有MV了](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
-- [Bin](http://www.daogukj.com/9832220)
-- [金标联盟宣布小米、OPPO、vivo、荣耀将统一「碰一碰」及运存管理标准，安卓生态能否告别各自为战？](http://www.movie.hkepx.cn/xiju/4624070.htm)
+- [马龙许昕险胜 晋级全锦赛四强](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
+- [袁华 王俊凯妆造](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
+- [放弃日本后 澳洲人正疯狂涌向中国](http://www.daogukj.com/hiiwohqb/)
+- [媒体：县长硬刚首富背后是权力傲慢](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
+- [王楚钦孙颖莎止步半决赛](http://www.daogukj.com/2806482)
+- [夏天来了 却没人穿凉鞋了](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
+- [虞姬扮演者李依晓亮相苏超赛场](http://www.daogukj.com/9832220)
+- [莫氏鸡煲老板晒账本回应倒闭](http://www.movie.hkepx.cn/xiju/4624070.htm)
 - [【独家】《凡人修仙传之慕兰之战》第7集【总第183集】](http://www.movie.hkepx.cn/movie/0841033.htm)
-- [泰国总理狂飙中文为中国加油](http://www.movie.hkepx.cn/movie/4609262.htm)
-- [杭州一女子独自用餐遭服务员多次传话「黄总邀请你去包厢」，官方已介入，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
-- [重庆山体崩塌前后对比图](http://www.daogukj.com/1127111)
-- [领导喜欢看人下菜欺负老实人，应该硬刚还是委屈求全？](http://www.daogukj.com/pldvwggd/)
-- [看未来五年你的城市怎么变](http://www.movie.hkepx.cn/xiju/1287269.htm)
-- [如何评价月之暗面kimi最新发布的大模型 k3？对比全球其他大模型能力如何？](http://www.daogukj.com/unklghpc/)
-- [阿根廷有夺冠迹象吗？](http://www.daogukj.com/4404570)
-- [祖籍广东的泰国总理飙中文](http://www.daogukj.com/wfqplasc/)
-- [世界杯：法国vs英格兰](http://www.daogukj.com/grgritvr/)
-- [法官谈《功夫女足》](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
-- [一组图看未来五年你的城市怎么变](http://www.movie.hkepx.cn/movie/3539496.htm)
-- [《功夫女足》票房破12亿](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
-- [马龙：站上赛场仍感紧张](http://www.movie.hkepx.cn/xiju/3922759.htm)
-- [马龙许昕险胜 晋级全锦赛四强](http://www.daogukj.com/ynpujsgi/)
-- [火柴人 VS 几何冲刺](http://www.movie.hkepx.cn/movie/2603972.htm)
-- [很多人说“买游戏比养其他爱好便宜”，是真的吗？](http://www.daogukj.com/9238608)
-- [《绝区零》二周年主题曲MV | 预言](http://www.daogukj.com/xdtzeasn/)
-- [本周这些数据最值得关注](http://www.daogukj.com/2229169)
-- [萌娃半夜滚下床刚好掉垃圾桶里](http://www.daogukj.com/pnnlzznp/)
-- [新乐器！订书钉演奏《千本樱》](http://www.movie.hkepx.cn/movie/1141317.htm)
+- [刘宇宁说以后会加倍注意](http://www.movie.hkepx.cn/movie/4609262.htm)
+- [西班牙球员：阿根廷队有很多小动作](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
+- [人在幸福的时候真的会少发朋友圈吗](http://www.daogukj.com/1127111)
+- [杭州女老板赴河南老家加价收滞销西瓜](http://www.daogukj.com/pldvwggd/)
+- [超300款AI新品迎来全球首发](http://www.movie.hkepx.cn/xiju/1287269.htm)
+- [两只高原鼠兔在路上打架打完分道扬镳](http://www.daogukj.com/unklghpc/)
+- [八仙剧本](http://www.daogukj.com/4404570)
+- [法国队主帅德尚赛前宣告离任](http://www.daogukj.com/wfqplasc/)
+- [寻找卢本伟](http://www.daogukj.com/grgritvr/)
+- [卢昱晓这一秒过火包场](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
+- [水皮](http://www.movie.hkepx.cn/movie/3539496.htm)
+- [⚡️还 踢 球 ？ ！⚡️](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
+- [想你了票房倒挂](http://www.movie.hkepx.cn/xiju/3922759.htm)
+- [为什么杭州湾和珠三角都建大桥了，可是渤海湾却没有建大桥?](http://www.daogukj.com/ynpujsgi/)
+- [如何看待《长安三万里》的导演谢君伟，也不知道他新片《三国第一部争洛阳》票房扑街的原因？](http://www.movie.hkepx.cn/movie/2603972.htm)
+- [大衣哥测试除草剂草长疯了果断拒代言](http://www.daogukj.com/9238608)
+- [《功夫女足》票房破10亿，豆瓣评分仅6.6，如何评价其口碑与票房「倒挂」现象？这到底算成功还是失败？](http://www.daogukj.com/xdtzeasn/)
+- [一组图看未来五年你的城市怎么变](http://www.daogukj.com/2229169)
+- [DeepSeek V4 正式版即将发布，有哪些值得关注的亮点？](http://www.daogukj.com/pnnlzznp/)
+- [如何看待凡人第183集，播出两个小时后播放量不到200万？](http://www.movie.hkepx.cn/movie/1141317.htm)
 - [经济学家任泽平 VIP 付费会员群「暴雷」，有人听信操作建议亏损 1000多万，你如何看这种现象？](http://www.daogukj.com/3669738)
-- [如何看待凡人第183集，播出两个小时后播放量不到200万？](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
-- [如何看待曝大 S 生前用手机写下遗产分配方案，珠宝、名牌包留给女儿？](http://www.movie.hkepx.cn/xiju/8333303.htm)
-- [用小拇指做手机支架的受害者出现了](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
-- [如何看待白宫提词器操作员提前获取特朗普演讲稿，并据此押注获利近10万元，最终被调查？](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
-- [联合国秘书长古特雷斯到访云南大理](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
-- [王俊凯唱了不完美小孩](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
-- [KC战胜T1](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
-- [王俊凯演唱会退场天才](http://www.movie.hkepx.cn/movie/7218961.htm)
-- [“河南一公厕使用LV标识”系谣言](http://www.movie.hkepx.cn/xiju/0034458.htm)
-- [FIFA主席提议中美合办世界杯](http://www.movie.hkepx.cn/movie/1373526.htm)
-- [动画电影《八仙！》凭什么与顶流过招](http://www.movie.hkepx.cn/movie/8174344.htm)
-- [长鑫科技开启申购，中一签需缴4330元，单一账户顶格申购334.9万股，打新性价比如何？是散户红利吗？](http://www.movie.hkepx.cn/xiju/7049500.htm)
-- [辽宁抚顺明天全市停课](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
-- [八仙票房](http://www.daogukj.com/1670030)
-- [老外认可的中式英语终于来了！！水管工老外也懂厚积薄发的道理？](http://www.daogukj.com/4917906)
-- [一只猴卖20万 昭衍新药赚翻了](http://www.daogukj.com/jjbeajdp/)
-- [合弓纲和蜥形纲谁才能走到最后？](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
-- [阿根廷主帅不满赛事方时间安排](http://www.daogukj.com/2644309)
-- [⚡️还 踢 球 ？ ！⚡️](http://www.daogukj.com/2520362)
-- [为什么贝克汉姆会和恩师弗格森反目，选择出走曼联？](http://www.daogukj.com/4354347)
+- [看未来五年你的城市怎么变](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
+- [杜华劝邹市明去看病](http://www.movie.hkepx.cn/xiju/8333303.htm)
+- [小伙模仿上海霸道总裁！点外卖能吃到什么离谱的菜？](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
+- [法官谈《功夫女足》](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
+- [发现很多KTV都没有MV了](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
+- [辽宁抚顺19日全市停课](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
+- [《功夫女足》让韩国人破防了](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
+- [“河南一公厕使用LV标识”系谣言](http://www.movie.hkepx.cn/movie/7218961.htm)
+- [【纪录片】闪闪的儿科医生4 第8集 爱的回归线](http://www.movie.hkepx.cn/xiju/0034458.htm)
+- [丁程鑫王楚然认识几年了](http://www.movie.hkepx.cn/movie/1373526.htm)
+- [阿根廷主帅不满赛事方时间安排](http://www.movie.hkepx.cn/movie/8174344.htm)
+- [男子养了多年的“九尾狐”被老婆烧毁](http://www.movie.hkepx.cn/xiju/7049500.htm)
+- [媒体：足协终身禁令为何形同虚设](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
+- [95后夫妻手搓500集AI漫剧爆火](http://www.daogukj.com/1670030)
+- [为什么体感酷热，但实际温度却只有39℃？听说气象局会卡40℃，这种说法是否合理？](http://www.daogukj.com/4917906)
+- [一口气看完后室vlog第一季【1小时完整版】](http://www.daogukj.com/jjbeajdp/)
+- [上海暴雨](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
+- [世界杯：法国vs英格兰](http://www.daogukj.com/2644309)
+- [C919将首次执飞国际商业航线](http://www.daogukj.com/2520362)
+- [借灾情博眼球 警方查处3起网络谣言](http://www.daogukj.com/4354347)
 
 </details>
 
 ## 原始来源
 
-- [大学生为省掉1块钱的打包费](https://s.weibo.com/weibo?q=%E5%A4%A7%E5%AD%A6%E7%94%9F%E4%B8%BA%E7%9C%81%E6%8E%891%E5%9D%97%E9%92%B1%E7%9A%84%E6%89%93%E5%8C%85%E8%B4%B9)
+- [《八仙！》票房已破亿](https://www.baidu.com/s?wd=%E3%80%8A%E5%85%AB%E4%BB%99%EF%BC%81%E3%80%8B%E7%A5%A8%E6%88%BF%E5%B7%B2%E7%A0%B4%E4%BA%BF&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: aa93e9c10709eaf98359 -->
+<!-- content-fingerprint: 60cce5a2b752f6551f49 -->
