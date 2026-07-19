@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 水皮
+# 宜家集中出售 8 座商场，已全面清空，其中 7 家商场今年关停，如何看待宜家此次大规模资产处置？
 
-> 来源：哔哩哔哩热门 · 排名：第 5 位 · 热度：2263040 · 分类：日常 · 更新：2026-07-19T15:48:23+08:00
+> 来源：知乎热榜 · 排名：第 5 位 · 热度：462 万热度 · 分类：问答 · 更新：2026-07-19T19:39:19+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“水皮”位列第 5 位，公开热度指标为 2263040，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“宜家集中出售 8 座商场，已全面清空，其中 7 家商场今年关停，如何看待宜家此次大规模资产处置？”位列第 5 位，公开热度指标为 462 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：-
+来源公开摘要显示：近日，据商业地产服务投资管理机构仲量联行消息，该机构已获得宜家母公司英格卡集团独家销售委托，将上海、广州、天津、哈尔滨、南通、徐州、贵阳、宁波八座城市的宜家自持闲置物业整体出售。这是宜家进入中国市场近30年来最大规模自持资产集中处置。 据仲量联行披露，本次推向市场的八处资产均为英格卡中国的自持物业，上述资产目前已全面清空，无租约限制，可实现现状即时交付。八处资产均位于各城市成熟商圈或重点发展板块，建筑体量完整、产权清晰，具备转型为长租公寓、社区商业、文旅综合体或企业总部等多种用途的基础。 宜家在今年1月7日宣布，自2月2日起停止运营包括上海宝山商场、广州
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [女孩卧室囤积大量“吧唧”致中毒](po-fu-chen-zhou.md)
-- [当我坐飞机忘记关导航时](bei-shui-yi-zhan.md)
-- [85岁浙商12.9亿卖掉自家上市公司](zhi-shang-tan-bing.md)
-- [如何看待今年清华大学录取通知书取消立体二校门设计？](wei-wei-jiu-zhao.md)
+- [穿山甲和瓜老板的世纪同框](po-fu-chen-zhou.md)
+- [手机次次充到100%也伤电池](bei-shui-yi-zhan.md)
+- [存钱过万一定要办理纸质存单](zhi-shang-tan-bing.md)
+- [电影八仙票房破2亿](wei-wei-jiu-zhao.md)
 
 ## 站内推荐
 
-- [中学生无法购买高铁学生票，12306 称学生需异地上学并开具证明，如何看待这一购票规则？是否需要改进？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [《崩坏：星穹铁道》公益第二卷：「当一颗星照亮夜空」](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [《星炬不熄》 | 《鸣潮》演唱会「致予新世界」](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [67岁老人坚持锻炼身体不给儿女添麻烦教程](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [【微电影】星河外卖员：晨昏线](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [美加墨世界杯决赛，西班牙 vs 阿根廷，你更看好哪支球队？决胜的关键是什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [如何看待索尼宣布取消实体盘半个月后，官方账号沦陷，发什么都被冲，玩家愤怒不仅没减弱反而日益激烈？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [胜你不须第二嚼！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [美国纽约暴发军团病](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [阿根廷决赛全家福](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [【纪录片】闪闪的儿科医生4 第8集 爱的回归线](http://www.daogukj.com/epcjcrex/)
-- [高铁也能吃上现蒸热乎包子了](http://www.movie.hkepx.cn/xiju/7554306.htm)
-- [伊朗直接掀了桌子](http://www.daogukj.com/7098171)
+- [如何评价 FIFA 主席说可以中美合办世界杯？这是玩笑还是有所考量？](http://www.daogukj.com/epcjcrex/)
+- [重庆爱心摩托车严重饱和](http://www.movie.hkepx.cn/xiju/7554306.htm)
+- [黑龙江女孩奔赴广西清淤完成后将返程](http://www.daogukj.com/7098171)
 - [法国 4-6 英格兰这场比赛算是诚信互刷吗？你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
 - [【独家】牧神记 第92集 牛车](http://www.daogukj.com/5595330)
-- [正片不如路透](http://www.movie.hkepx.cn/xiju/4881611.htm)
-- [下半年股市行情会怎么走](http://www.daogukj.com/2794428)
-- [父亲让15岁儿子帮工 老板被罚5000](http://www.movie.hkepx.cn/movie/0220033.htm)
-- [友情提示：这是一个解压视频.](http://www.daogukj.com/3787812)
-- [韩国股民迎来股市大变脸](http://www.movie.hkepx.cn/movie/2410306.htm)
-- [女子患脑垂体瘤却仍被催生三胎](http://www.movie.hkepx.cn/movie/4961738.htm)
-- [女孩卧室囤大量“吧唧”致甲醛中毒](http://www.movie.hkepx.cn/xiju/4077836.htm)
-- [AI行业要重新洗牌了](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
-- [【微电影】星河外卖员：晨昏线](http://www.daogukj.com/rrqdxtcv/)
-- [为什么越来越多的演员去开演唱会？不少人因高价票与低质翻唱遭质疑，跨界开演唱会这条路能长久吗？](http://www.daogukj.com/5407672)
-- [贵州茅台再次涨价，飞天茅台零售价上调 100 元至 1639 元/瓶，什么原因？会产生哪些连锁影响？](http://www.daogukj.com/9043091)
+- [上海突发强雷暴](http://www.movie.hkepx.cn/xiju/4881611.htm)
+- [有哪些制作过程简单却很美味的甜品？](http://www.daogukj.com/2794428)
+- [“高考估分715查分299”？警方通报](http://www.movie.hkepx.cn/movie/0220033.htm)
+- [不是哥们，放火威胁律师 ？](http://www.daogukj.com/3787812)
+- [曝蔡依林演唱会报酬税后仅90万](http://www.movie.hkepx.cn/movie/2410306.htm)
+- [马斯克宣称要赶超Kimi](http://www.movie.hkepx.cn/movie/4961738.htm)
+- [长城H10新车12小时订单22615台](http://www.movie.hkepx.cn/xiju/4077836.htm)
+- [俄罗斯警告日本](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
+- [阿根廷决赛全家福](http://www.daogukj.com/rrqdxtcv/)
+- [长鑫科技海外加密合约炒到8.64美元，市值一度逼近4万亿元人民币，是A股发行价估值的近7倍，如何解读？](http://www.daogukj.com/5407672)
+- [《绝区零》二周年主题曲MV | 预言](http://www.daogukj.com/9043091)
 - [新乐器！订书钉演奏《千本樱》](http://www.daogukj.com/9116005)
-- [这一秒过火 易军](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
-- [决赛来袭！西班牙7战6胜1平仅丢1球](http://www.daogukj.com/eqgomafp/)
-- [那些进入世界杯决赛的中国赞助商](http://www.daogukj.com/7605991)
-- [法国门将身价堪比一杯蜜雪冰城](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
-- [电影《八仙！》票房突破 2 亿，猫眼预测超14亿，你觉得最终票房能到多少？](http://www.movie.hkepx.cn/movie/4360714.htm)
-- [刘宇宁此事到此为止](http://www.daogukj.com/4727961)
-- [“高考估分715查分299”？警方通报](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
-- [世界杯决赛：西班牙vs阿根廷](http://www.movie.hkepx.cn/xiju/3457747.htm)
-- [马龙许昕把乒乓球打出网球的感觉](http://www.movie.hkepx.cn/movie/9116389.htm)
-- [俄罗斯警告日本](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
-- [月之暗面 Kimi 最新发布的大模型 K3 有哪些局限性？](http://www.movie.hkepx.cn/movie/6275425.htm)
+- [这一秒过火强吻好尬](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
+- [唐嫣紧身衣身材](http://www.daogukj.com/eqgomafp/)
+- [14岁男孩双腿纹满纹身家长索赔20万](http://www.daogukj.com/7605991)
+- [上海暴雨如注](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
+- [⚽世 界 杯 男 团⚽](http://www.movie.hkepx.cn/movie/4360714.htm)
+- [穆祉丞哭了](http://www.daogukj.com/4727961)
+- [【纪录片】闪闪的儿科医生4 第8集 爱的回归线](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
+- [林诗栋蒯曼夺冠](http://www.movie.hkepx.cn/xiju/3457747.htm)
+- [2026年美加墨世界杯世界杯季军赛法国 4:6 英格兰，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/9116389.htm)
+- [马龙许昕冠军](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
+- [月之暗面将推出新模型 KimiK3，将给 AI 市场带来哪些新冲击？](http://www.movie.hkepx.cn/movie/6275425.htm)
 - [本周中国硬核成果密集“上新”](http://www.daogukj.com/6962158)
-- [这一秒过火 AI片头](http://www.movie.hkepx.cn/movie/3536173.htm)
-- [大学没考好，想不读普本，直接到社会上见识如何？](http://www.daogukj.com/5602314)
-- [最早那一批做断骨增高的人，现在怎么样了？](http://www.daogukj.com/rhzksqyv/)
-- [暑假接来玩14岁儿子纹成大花腿](http://www.daogukj.com/ciddvmwp/)
+- [下周A股机会来了吗](http://www.movie.hkepx.cn/movie/3536173.htm)
+- ["自古英雄出少年."](http://www.daogukj.com/5602314)
+- [林诗栋蒯曼混双夺冠](http://www.daogukj.com/rhzksqyv/)
+- [媒体：英钢国有化事件绝非个案](http://www.daogukj.com/ciddvmwp/)
 - [为什么印度小吃摊的卫生看起来那么糟，很多国人去吃了闹肚子，可是印度人却不受影响？](http://www.movie.hkepx.cn/xiju/5158718.htm)
-- [和孩子沟通困难，明明是讨论，但家长提出问题，为什么孩子却不能理解和接受？](http://www.movie.hkepx.cn/xiju/4192777.htm)
-- [小伙心情不好暴饮暴食胖至510斤](http://www.movie.hkepx.cn/xiju/6976677.htm)
-- [姆巴佩：我宁愿不当这个历史射手王](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
-- [马龙许昕晋级男双决赛](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
-- [阿根廷西班牙冠军预测](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
-- [人类发现有生命所需三大特征行星](http://www.daogukj.com/3262256)
-- [航天嘉豪记1.1](http://www.daogukj.com/2924239)
-- [胜你不须第二嚼！](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
-- [当我坐飞机忘记关导航时](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
-- [中学生无法购买高铁学生票，12306 称学生需异地上学并开具证明，如何看待这一购票规则？是否需要改进？](http://www.daogukj.com/cszxbbqq/)
-- [为省5千机票买面包车自驾 倒亏2万4](http://www.movie.hkepx.cn/movie/9183199.htm)
-- [姆巴佩 2 射 1 传成历史射手王，一战刷爆 14 大纪录，如何评价他在世界杯季军赛的表现？](http://www.daogukj.com/zmttmgkb/)
-- [和聪明人一起开车，就是舒服！](http://www.movie.hkepx.cn/xiju/7610500.htm)
-- [她活了 我疯了](http://www.movie.hkepx.cn/xiju/6364739.htm)
-- [美国时代广场成阿根廷庙会了](http://www.daogukj.com/5178801)
-- [宜家集中出售 8 座商场，已全面清空，其中 7 家商场今年关停，如何看待宜家此次大规模资产处置？](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
+- [当Bob获得了超能力！](http://www.movie.hkepx.cn/xiju/4192777.htm)
+- [这场华莱士全鸡专家赢](http://www.movie.hkepx.cn/xiju/6976677.htm)
+- [范志毅：世界杯不夺冠和最后1名没区别](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
+- [上海暴雨](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
+- [贝林厄姆在女友与哈兰德身边对比](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
+- [OMG你吓到我了系列最权威的一集](http://www.daogukj.com/3262256)
+- [乌称俄40分钟向基辅发射约40枚导弹](http://www.daogukj.com/2924239)
+- [水皮](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
+- [手机次次充到100%也伤电池](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
+- [美加墨世界杯决赛，西班牙 vs 阿根廷，你更看好哪支球队？决胜的关键是什么？](http://www.daogukj.com/cszxbbqq/)
+- [奥特痞子](http://www.movie.hkepx.cn/movie/9183199.htm)
+- [于东来建议每年新增 20 至 40 天带薪年假，严格执行每周 40 小时工作制，怎样看待他的用工理念？](http://www.daogukj.com/zmttmgkb/)
+- [《飞舞吧忍者第二季》ep01—忍在囧途](http://www.movie.hkepx.cn/xiju/7610500.htm)
+- [西班牙阿根廷谁能夺冠](http://www.movie.hkepx.cn/xiju/6364739.htm)
+- [外星人罗纳尔多：西班牙队将轻松夺冠](http://www.daogukj.com/5178801)
+- [寻找卢本伟](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
 
 </details>
 
 ## 原始来源
 
-- [水皮](https://b23.tv/BV1dmKJ6YEXV)
+- [宜家集中出售 8 座商场，已全面清空，其中 7 家商场今年关停，如何看待宜家此次大规模资产处置？](https://www.zhihu.com/question/2061839991072990909)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5559af9f76be9a7f80dd -->
+<!-- content-fingerprint: d70bb4cddd72b5e5d016 -->
