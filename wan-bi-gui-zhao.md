@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何看待今年清华大学录取通知书取消立体二校门设计？
+# 杭州图书馆允许流浪汉免费入馆阅读，回复投诉读者“我无权拒绝任何人，但你可以离开”，这个做法是否合理？
 
-> 来源：知乎热榜 · 排名：第 6 位 · 热度：437 万热度 · 分类：问答 · 更新：2026-07-19T19:39:19+08:00
+> 来源：知乎热榜 · 排名：第 6 位 · 热度：309 万热度 · 分类：问答 · 更新：2026-07-19T22:44:32+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待今年清华大学录取通知书取消立体二校门设计？”位列第 6 位，公开热度指标为 437 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“杭州图书馆允许流浪汉免费入馆阅读，回复投诉读者“我无权拒绝任何人，但你可以离开”，这个做法是否合理？”位列第 6 位，公开热度指标为 309 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：感觉清华的录取通知书并不奢华吧，比其他院校的礼盒简略多了，而且立体校门都是纸雕，也不是其他特殊材料，没想到清华也会把这个独特的设计省了。回归一页纸了，看了一圈各大高校的录取通知书，薄薄一张纸，感觉这不是录取通知书了，这应该叫录取通知单吧
+来源公开摘要显示：“我无权拒绝他们入内读书，但您有权利选择离开”，杭州图书馆10多年前的回复再度刷屏！如今馆内有一座铜雕，背后是一位拾荒老人的故事杭图暖心回应流浪汉读书言论再度走红 馆方：多年前进行的回复 理念从未改变_腾讯新闻
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,17 +18,17 @@
 
 ## 相关热点
 
-- [四个一起冒烟！狂！大司马杯最搞笑一幕：导播可以开摄像头了。](fu-jing-qing-zui.md)
-- [乒乓球全锦赛：马龙许昕冲金](mao-sui-zi-jian.md)
-- [这一秒过火台词好搞笑](san-gu-mao-lu.md)
-- [罗纳尔多：西班牙队将轻松夺冠](cao-mu-jie-bing.md)
+- [感觉你是那种人 [熊大语录]](fu-jing-qing-zui.md)
+- [世界杯决赛：西班牙vs阿根廷](mao-sui-zi-jian.md)
+- [澎湖海战 撤档](san-gu-mao-lu.md)
+- [黄健翔：阿根廷面对西班牙不存在劣势](cao-mu-jie-bing.md)
 
 ## 站内推荐
 
-- [为什么印度小吃摊的卫生看起来那么糟，很多国人去吃了闹肚子，可是印度人却不受影响？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [杭州图书馆允许流浪汉免费入馆阅读，回复投诉读者“我无权拒绝任何人，但你可以离开”，这个做法是否合理？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [不是哥们，放火威胁律师 ？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [“黄总”事件和解 不等于疑问清零](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [宜家集中出售 8 座商场，已全面清空，其中 7 家商场今年关停，如何看待宜家此次大规模资产处置？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [月之暗面将推出新模型 KimiK3，将给 AI 市场带来哪些新冲击？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [1~11集合集来喽!](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [穿山甲和瓜老板的世纪同框](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
 - [多队球衣已打折 国足球衣仍105美元](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
@@ -36,63 +36,63 @@
 <details>
 <summary>展开更多相关内容</summary>
 
-- [葡媒评世界杯最令人失望23人](http://www.daogukj.com/3042716)
-- [黑龙江女孩奔赴广西清淤完成后将返程](http://www.movie.hkepx.cn/movie/2061637.htm)
-- [四个一起冒烟！狂！大司马杯最搞笑一幕：导播可以开摄像头了。](http://www.daogukj.com/whcykmxi/)
-- [许君聪曾为周星驰回怼李诚儒](http://www.daogukj.com/8289578)
-- [于东来建议每年新增 20 至 40 天带薪年假，严格执行每周 40 小时工作制，怎样看待他的用工理念？](http://www.movie.hkepx.cn/movie/6917669.htm)
-- [唐嫣紧身衣身材](http://www.daogukj.com/1323195)
-- [有什么东西正在敲你的门……](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
-- [穆祉丞哭了](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
-- [美国纽约暴发军团病](http://www.movie.hkepx.cn/xiju/7626363.htm)
+- [俄罗斯：日本的这种做法是敌对行为](http://www.daogukj.com/3042716)
+- [大姨从40℃西安到黑龙江塔河避暑](http://www.movie.hkepx.cn/movie/2061637.htm)
+- [感觉你是那种人 [熊大语录]](http://www.daogukj.com/whcykmxi/)
+- [西班牙阿根廷预测](http://www.daogukj.com/8289578)
+- [马龙/许昕获全国乒乓球锦标赛男双冠军，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/6917669.htm)
+- [西班牙球员称阿根廷不脏](http://www.daogukj.com/1323195)
+- [【TF家族练习生】《突围II破局》EP04：有人在往上走（下）](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
+- [莎头 集齐金银铜](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
+- [水皮](http://www.movie.hkepx.cn/xiju/7626363.htm)
 - [存钱过万一定要办理纸质存单](http://www.daogukj.com/zbetfxek/)
-- [手机次次充到100%也伤电池](http://www.daogukj.com/6022603)
-- [阿根廷夺冠概率40%](http://www.movie.hkepx.cn/xiju/5313504.htm)
-- [和孩子沟通困难，明明是讨论，但家长提出问题，为什么孩子却不能理解和接受？](http://www.daogukj.com/xdexhduz/)
-- [大学没考好，想不读普本，直接到社会上见识如何？](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
-- [我国多领域硬核成果密集上新](http://www.movie.hkepx.cn/movie/6492359.htm)
-- [上海暴雨如注](http://www.daogukj.com/6000133)
-- [这场华莱士全鸡专家赢](http://www.daogukj.com/ajsfeojq/)
-- [最早那一批做断骨增高的人，现在怎么样了？](http://www.movie.hkepx.cn/xiju/4278075.htm)
-- [为什么真人版的毛利兰都没有角？](http://www.movie.hkepx.cn/movie/5534562.htm)
-- [西班牙阿根廷谁能夺冠](http://www.daogukj.com/6871213)
-- [不是哥们，放火威胁律师 ？](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
-- [俄罗斯警告日本](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
-- [5个关键词 一文读懂中国经济半年报](http://www.movie.hkepx.cn/xiju/4051583.htm)
-- [这波躺赢了](http://www.daogukj.com/4848168)
+- [Kimi K3让美国AI巨头慌了](http://www.daogukj.com/6022603)
+- [九尾 无畏](http://www.movie.hkepx.cn/xiju/5313504.htm)
+- [马龙许昕 法拉利老了还是法拉利](http://www.daogukj.com/xdexhduz/)
+- [有哪些制作过程简单却很美味的甜品？](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
+- [青春启程踏歌行](http://www.movie.hkepx.cn/movie/6492359.htm)
+- [“为让国足进世界杯 FIFA主席拼了”](http://www.daogukj.com/6000133)
+- [上海暴雨 盒马旗下超市被淹](http://www.daogukj.com/ajsfeojq/)
+- [如何看待部分社区认为DeepSeek-V4的灰度测试是路由Claude Fable、Opus等模型？](http://www.movie.hkepx.cn/xiju/4278075.htm)
+- [法国 4-6 英格兰这场比赛算是诚信互刷吗？你怎么看？](http://www.movie.hkepx.cn/movie/5534562.htm)
+- [张子枫瘦成这样了](http://www.daogukj.com/6871213)
+- [1~11集合集来喽!](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
+- [长鑫科技770万个中签号背后](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
+- [新动能的三张“新面孔”](http://www.movie.hkepx.cn/xiju/4051583.htm)
+- [寻找卢本伟](http://www.daogukj.com/4848168)
 - [新乐器！订书钉演奏《千本樱》](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
-- [坏了坏了这下好了vs好了好了这下坏了](http://www.movie.hkepx.cn/movie/2894342.htm)
-- [曝蔡依林演唱会报酬税后仅90万](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
-- [姆巴佩说我们也是人](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
-- [2026年美加墨世界杯世界杯季军赛法国 4:6 英格兰，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/8848024.htm)
-- [带护臂狗血战士](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
-- [媒体：英钢国有化事件绝非个案](http://www.movie.hkepx.cn/xiju/3438884.htm)
-- [⚽世 界 杯 男 团⚽](http://www.daogukj.com/ieqapfew/)
-- [奥特痞子](http://www.daogukj.com/8044050)
-- [如何评价 FIFA 主席说可以中美合办世界杯？这是玩笑还是有所考量？](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
-- ["自古英雄出少年."](http://www.movie.hkepx.cn/xiju/0303756.htm)
-- [月之暗面将推出新模型 KimiK3，将给 AI 市场带来哪些新冲击？](http://www.daogukj.com/8598756)
-- [央视曝0公里二手电动自行车猫腻](http://www.movie.hkepx.cn/movie/4526722.htm)
-- [林诗栋蒯曼混双夺冠](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
-- [乌称俄40分钟向基辅发射约40枚导弹](http://www.daogukj.com/0218050)
-- [水皮](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
-- [世界杯决赛西阿大战谁更有优势](http://www.daogukj.com/3371192)
+- [外星人罗纳尔多：西班牙队将轻松夺冠](http://www.movie.hkepx.cn/movie/2894342.htm)
+- [“鬼子专业户”王侃去世](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
+- [来不及说我爱你](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
+- [两只猫为什么会互相舔毛？怎么知道他们是闹着玩还是真的打架？](http://www.movie.hkepx.cn/xiju/8848024.htm)
+- [2026年全国乒乓球锦标赛男双决赛，马龙许昕3：0轻取向鹏黄友政夺冠，怎么评价国乒老将的双打统治力？](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
+- [现在能抄底A股吗](http://www.movie.hkepx.cn/xiju/3438884.htm)
+- [来杯好茶摇一摇，但是英语版](http://www.daogukj.com/ieqapfew/)
+- [在人类禁区哀牢山徒步，据说里面1h等于外面60分钟](http://www.daogukj.com/8044050)
+- [7 月 19 日苏州、杭州、上海等地遭遇大暴雨，你那儿雨下得大吗？出行和生活有没有受到影响？](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
+- [友情提示：这是一个解压视频.](http://www.movie.hkepx.cn/xiju/0303756.htm)
+- [如何评价7月19日上线的阿里Qwen 3.8 Max Preview模型？其性能如何？](http://www.daogukj.com/8598756)
+- [没想到王俊凯的工作留痕在这用上了](http://www.movie.hkepx.cn/movie/4526722.htm)
+- [《功夫女足》进入年度票房榜前三](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
+- [外网热议中国KFC卖炸鸡西瓜](http://www.daogukj.com/0218050)
+- [⚽世 界 杯 男 团⚽](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
+- [向鹏坦言有点招架不住马龙许昕](http://www.daogukj.com/3371192)
 - [胜你不须第二嚼！](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
-- [杭州图书馆允许流浪汉免费入馆阅读，回复投诉读者“我无权拒绝任何人，但你可以离开”，这个做法是否合理？](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
-- [韩国股民迎来股市“大变脸”](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
-- [世界杯决赛：西班牙vs阿根廷](http://www.movie.hkepx.cn/movie/1298994.htm)
-- [OMG你吓到我了系列最权威的一集](http://www.movie.hkepx.cn/movie/6188638.htm)
-- [外星人罗纳尔多：西班牙队将轻松夺冠](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
-- [如何看待索尼宣布取消实体盘半个月后，官方账号沦陷，发什么都被冲，玩家愤怒不仅没减弱反而日益激烈？](http://www.daogukj.com/4541580)
-- [乒乓球全锦赛：马龙许昕冲金](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
+- [月之暗面将推出新模型 KimiK3，将给 AI 市场带来哪些新冲击？](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
+- [铠甲勇士刑天·守护初心【P2】光暗一体](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
+- [FIFA官方晒照：大力神杯已就位](http://www.movie.hkepx.cn/movie/1298994.htm)
+- [马龙许昕回应男双冠军](http://www.movie.hkepx.cn/movie/6188638.htm)
+- [央视曝0公里二手电动自行车猫腻](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
+- [如何评价 FIFA 主席说可以中美合办世界杯？这是玩笑还是有所考量？](http://www.daogukj.com/4541580)
+- [世界杯决赛：西班牙vs阿根廷](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
 - [上海暴雨](http://www.daogukj.com/4450013)
 
 </details>
 
 ## 原始来源
 
-- [如何看待今年清华大学录取通知书取消立体二校门设计？](https://www.zhihu.com/question/2060790194375242135)
+- [杭州图书馆允许流浪汉免费入馆阅读，回复投诉读者“我无权拒绝任何人，但你可以离开”，这个做法是否合理？](https://www.zhihu.com/question/2061763921598476625)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 16fe55c3906ccfbc3992 -->
+<!-- content-fingerprint: 26b242288ab8f1ce785a -->
