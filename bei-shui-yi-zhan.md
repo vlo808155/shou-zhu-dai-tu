@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 专家：黄金已严重超卖
+# 亚马尔举牌讽刺帕雷德斯
 
-> 来源：百度热搜 · 排名：第 5 位 · 热度：7329074 · 更新：2026-07-22T07:43:56+08:00
+> 来源：微博热搜 · 排名：第 6 位 · 热度：475949 · 分类：体育 · 更新：2026-07-22T16:01:13+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“专家：黄金已严重超卖”位列第 5 位，公开热度指标为 7329074。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“亚马尔举牌讽刺帕雷德斯”位列第 6 位，公开热度指标为 475949，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：投资管理公司Sprott Inc.的管理合伙人兼市场策略师Paul Wong表示，从所有有意义的指标来看，黄金都严重超卖，并且很可能在9月之前触底反弹，而货币贬值是推动黄金价格达到下一个历史新高的根本驱动因素。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `体育`
 
 ## 相关热点
 
-- [还是以前的老师比较敢写评语](zhi-shang-tan-bing.md)
-- [马犬被洪水冲走自行回家瘦成皮包骨](wei-wei-jiu-zhao.md)
-- [如何看待最近一个多月 LOL 大面积掉帧卡顿，甚至98X3D+5080都无法幸免？这是什么原因导致的？](wan-bi-gui-zhao.md)
-- [千万博主谈b站真相（完整版）](fu-jing-qing-zui.md)
+- [漠河16万平方米冰面挂牌成交](zhi-shang-tan-bing.md)
+- [人体卡死37℃，为啥不进化成40℃，直接烫死病毒癌细胞？](wei-wei-jiu-zhao.md)
+- [无骨草鱼 无骨草鱼教学，十年老师傅无保留教大家，简单易学。](wan-bi-gui-zhao.md)
+- [机器狗已入职泰山：承担运垃圾工作](fu-jing-qing-zui.md)
 
 ## 站内推荐
 
-- [“中药首富”马兴田夫妇被判赔14亿](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [路人看到辛芷蕾以为去入伍了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [前妻甄珍得知谢贤去世哭到声音沙哑](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [50岁李小冉素颜白得发光](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [警方扣押14吨鱼后腐烂被判赔62万](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [基层干部下班送了两个多月外卖](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [包知了猴饺子一转眼馅跑了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [印度女子在邮轮上用叉子抠脚](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [处理黑鱼没有想象那么难，这样处理，在家也能轻松学会。去骨去小刺全过程。](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [散装家庭，一家人哔站互关认识的](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [菲律宾为何此时在仁爱礁制造冲突](http://www.play.hengshemaoyi.cn/kongbu/0102137.htm)
-- [上海这么大的城市，下大暴雨为什么还会积水？](http://www.movie.hkepx.cn/xiju/5709027.htm)
+- [中国GDP第10省又易主了](http://www.play.hengshemaoyi.cn/kongbu/0102137.htm)
+- [隐藏近200亿元坏账？光大银行回应](http://www.movie.hkepx.cn/xiju/5709027.htm)
 - [一条老奶奶](http://www.daogukj.com/ptmfwdkn/)
-- [游轮被击沉游客漂流数小时：有人吓吐](http://www.movie.hkepx.cn/xiju/7509997.htm)
-- [阿根廷队再说一万次谢谢](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
-- [印尼游轮被击沉中国游客漂流数小时](http://www.movie.hkepx.cn/xiju/7276031.htm)
-- [情侣用AI判断菌子毒性采了10余斤，被本地小孩哥筛选只剩2斤，AI和小孩哥谁的判断更准？为啥会有不同？](http://www.daogukj.com/qxoqgypn/)
-- [当我第二次cosplay....](http://www.daogukj.com/2637140)
-- [警方介入烈性犬惊吓外卖员事件](http://www.daogukj.com/lcagyyzr/)
-- [警方扣押14吨鱼后腐烂被判赔62万](http://www.daogukj.com/nckagbek/)
-- [“中药首富”马兴田夫妇被判赔近14亿](http://www.movie.hkepx.cn/movie/0871738.htm)
-- [遛狗惊扰陌生人起冲突？当事人回应](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
-- [如何看待网传甘肃 656 分考生顶级 985 分数被福耀科技大学录取，以及祝贺喜讯？](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
-- [“中药首富”马兴田夫妇被判赔14亿](http://www.daogukj.com/kwifztpg/)
-- [「怡颗莓」草莓被指检出8种PFAS永久性化学物，在美遭集体起诉，这些从何而来？食用风险有多大？](http://www.movie.hkepx.cn/movie/5703439.htm)
-- [感谢每一份付出，只要信念仍在，我们终会再次出发](http://www.daogukj.com/ifbvcvnj/)
-- [大狗嚼 这一口会很疯狂！](http://www.daogukj.com/6568203)
-- [山西：拒不整改永久封井](http://www.daogukj.com/0211136)
-- [阿根廷全队球员赛后集体拒绝采访，媒体等待近两小时无果，阿根廷足协或因此受罚，如何看待这一行为？](http://www.movie.hkepx.cn/xiju/0370085.htm)
-- [李小璐被指疑似生二胎](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
-- [无骨草鱼 无骨草鱼教学，十年老师傅无保留教大家，简单易学。](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
-- [小伙背15kg物资赴广西救灾不幸离世](http://www.movie.hkepx.cn/xiju/4676858.htm)
-- [主体性强的人会觉得谈恋爱很无聊](http://www.movie.hkepx.cn/movie/9996697.htm)
-- [电影功夫女足票房破16亿](http://www.movie.hkepx.cn/xiju/2854874.htm)
-- [千万博主谈b站真相（完整版）](http://www.daogukj.com/crhtjcoa/)
-- [香港高院驳回宗馥莉上诉许可申请，判决维持18亿美元资产冻结令，宗馥莉须支付25万港元讼费，如何解读？](http://www.movie.hkepx.cn/xiju/5398219.htm)
-- [中国科技这3组数字真提气](http://www.movie.hkepx.cn/xiju/9887508.htm)
-- [网友发现很多 KTV 都没有 MV 了，全是奇怪的 AI 画面，为什么会这样？你有遇到这种情况吗？](http://www.play.hengshemaoyi.cn/xiju/6315447.htm)
-- [食物该如何搭配香料？](http://www.movie.hkepx.cn/movie/8094400.htm)
-- [最爱发钱老板透露公司不打卡不考核](http://www.movie.hkepx.cn/movie/8053500.htm)
-- [西安降鸡蛋大冰雹市民拉防晒网护车](http://www.movie.hkepx.cn/xiju/8733503.htm)
-- [王毅：菲军警部分势力蓄意挑衅](http://www.play.hengshemaoyi.cn/kongbu/6039715.htm)
-- [寝室睡个觉真难](http://www.daogukj.com/9356439)
-- [如何看待申真谞二比一战胜围棋人工智能“KataGo”？](http://www.daogukj.com/ianqofdj/)
-- [侯亮平如果娶的不是钟小艾，赵瑞龙欲暗杀侯亮平时会不会因姐姐一句“动了他整个赵家都承担不起”而叫停？](http://www.daogukj.com/sizrvcao/)
-- [《崩坏：星穹铁道》走近星穹——「远坂凛：如何在宇宙时代学会智能机」](http://www.play.hengshemaoyi.cn/xiju/7255725.htm)
-- [男子用免打孔单杠倒立锻炼摔成脑疝](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
-- [智能变智障！低成本智能好物避坑指南！](http://www.daogukj.com/rwxeygms/)
-- [世界人工智能大会达成丰硕成果](http://www.play.hengshemaoyi.cn/kongbu/9837059.htm)
-- [闯荡江湖才发现刀可以双持！](http://www.daogukj.com/2160602)
-- [证监会吴清听取投资者建议](http://www.play.hengshemaoyi.cn/kongbu/7208069.htm)
-- [Kimi 新模型 K3 跑分力压 ClaudeFable5 登顶，这将对大模型市场格局产生哪些影响？](http://www.movie.hkepx.cn/movie/2235201.htm)
-- [九门](http://www.play.hengshemaoyi.cn/kongbu/1046080.htm)
-- [改写“意难平”《幻影忍者》二创挑战全新结局重磅放出⚡️](http://www.movie.hkepx.cn/xiju/2538742.htm)
-- [如何看待最近一个多月 LOL 大面积掉帧卡顿，甚至98X3D+5080都无法幸免？这是什么原因导致的？](http://www.daogukj.com/9489918)
-- [差点被烟管单杀了](http://www.movie.hkepx.cn/xiju/2931592.htm)
-- [斯塔默卸任后穿运动鞋直奔酒吧喝酒](http://www.daogukj.com/ottjwhke/)
-- [“养老服务师考试10月开考”不实](http://www.movie.hkepx.cn/movie/7215484.htm)
-- [BBA集体降价 销售：价格还能谈](http://www.movie.hkepx.cn/xiju/4060244.htm)
-- [入伏了，解暑实力排行](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
+- [Faker从警](http://www.movie.hkepx.cn/xiju/7509997.htm)
+- [杜飞凭什么可以打破「舔狗舔到最后一无所有」的魔咒？](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
+- [耐克将清退中国数千家在线经销商](http://www.movie.hkepx.cn/xiju/7276031.htm)
+- [是一群胡迪警长来了喔！猥琐四重奏](http://www.daogukj.com/qxoqgypn/)
+- [王者荣耀](http://www.daogukj.com/2637140)
+- [29 岁成都小伙党鑫蕊休假期间改道广西参与救灾不幸离世，他的行为带给你哪些触动？](http://www.daogukj.com/lcagyyzr/)
+- [散装家庭，一家人哔站互关认识的](http://www.daogukj.com/nckagbek/)
+- [口口声声姐妹情,口供全是姐妹名!](http://www.movie.hkepx.cn/movie/0871738.htm)
+- [印尼游轮遭浪击沉中国游客漂流数小时](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
+- [整车利润率仅 1.5% ，卖一台 10 万元新车只赚 1500 元，为什么车企不涨价反而打价格战？](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
+- [基层干部下班送了两个多月外卖](http://www.daogukj.com/kwifztpg/)
+- [把孩子骗进特训机构 家长称非常自责](http://www.movie.hkepx.cn/movie/5703439.htm)
+- [毛利兰人设完美，为什么在《名侦探柯南》里人气越来越低？](http://www.daogukj.com/ifbvcvnj/)
+- [影视飓风](http://www.daogukj.com/6568203)
+- [上海牛马才是真正的游牧民族](http://www.daogukj.com/0211136)
+- [Kimi 员工震惊和 OpenAI 算力的差距，为什么在这么大差距下 Kimi 还能做出来 K3 ？](http://www.movie.hkepx.cn/xiju/0370085.htm)
+- [如何看待香港知名歌手张伟文惨遭养老院苛待，一年半不给洗澡，褥疮恶化，失能老人养老院照护谁来监督？](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
+- [树恨你](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
+- [突然不羡慕中小学老师了](http://www.movie.hkepx.cn/xiju/4676858.htm)
+- [“尔豪”女儿要上大学了](http://www.movie.hkepx.cn/movie/9996697.htm)
+- [吴克群说00后钢筋女孩有英雄特质](http://www.movie.hkepx.cn/xiju/2854874.htm)
+- [机器狗已入职泰山：承担运垃圾工作](http://www.daogukj.com/crhtjcoa/)
+- [史上最奇怪饭店！完全想不出来怎么赚钱](http://www.movie.hkepx.cn/xiju/5398219.htm)
+- [未来五年坐火车有这些变化](http://www.movie.hkepx.cn/xiju/9887508.htm)
+- [情侣用AI判断菌子毒性采了10余斤，被本地小孩哥筛选只剩2斤，AI和小孩哥谁的判断更准？为啥会有不同？](http://www.play.hengshemaoyi.cn/xiju/6315447.htm)
+- [68元请香结账变952元 官方回应](http://www.movie.hkepx.cn/movie/8094400.htm)
+- [我国将逐步提高基础养老金](http://www.movie.hkepx.cn/movie/8053500.htm)
+- [14 岁少年偷偷纹满双腿，家长索赔 20 万，如何看待青少年纹身现象？纹身有什么危害和风险吗？](http://www.movie.hkepx.cn/xiju/8733503.htm)
+- [27年老存折 取钱被银行告知查无此账](http://www.play.hengshemaoyi.cn/kongbu/6039715.htm)
+- [第五人格](http://www.daogukj.com/9356439)
+- [《梦战：剑之海》首支实机预告片丨全球首测招募开启](http://www.daogukj.com/ianqofdj/)
+- [男生中考681分选择中本贯通学烹饪](http://www.daogukj.com/sizrvcao/)
+- [我用AI杀死了史上最难的跑步游戏](http://www.play.hengshemaoyi.cn/xiju/7255725.htm)
+- [于东来：胖东来禁止员工相互借钱](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
+- [A股收盘：创业板指低开低走跌超3%](http://www.daogukj.com/rwxeygms/)
+- [中国外贸增势强劲、走势稳健](http://www.play.hengshemaoyi.cn/kongbu/9837059.htm)
+- [aespa明天回归](http://www.daogukj.com/2160602)
+- [美国向韩国施压提议分享三星、SK 海力士「超额利润」，这释放了哪些信号？](http://www.play.hengshemaoyi.cn/kongbu/7208069.htm)
+- [《异环》伊洛伊角色PV丨想做什么梦？](http://www.movie.hkepx.cn/movie/2235201.htm)
+- [长鑫科技中签如中彩票，却有 660 万新股遭散户投资者弃购，投资者们在犹豫什么？](http://www.play.hengshemaoyi.cn/kongbu/1046080.htm)
+- [乌克兰高层爆发严重内斗](http://www.movie.hkepx.cn/xiju/2538742.htm)
+- [无骨草鱼 无骨草鱼教学，十年老师傅无保留教大家，简单易学。](http://www.daogukj.com/9489918)
+- [电视剧《这一秒过火》道歉](http://www.movie.hkepx.cn/xiju/2931592.htm)
+- [成龙近 3 年来社交账号所发布内容全是对好友的悼念和告别，对此你有哪些感触？](http://www.daogukj.com/ottjwhke/)
+- [“按骑手学历收配送费”系谣言](http://www.movie.hkepx.cn/movie/7215484.htm)
+- [我的世界硬核生存！【缆车末日惊变100天】 p1 我被困在了充满丧尸的1千米高空缆车上！该如何生存？！！](http://www.movie.hkepx.cn/xiju/4060244.htm)
+- [滔搏明年起将终止耐克产品在线上平台销售，背后有哪些原因？此次调整带来的影响有多大？](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
 
 </details>
 
 ## 原始来源
 
-- [专家：黄金已严重超卖](https://www.baidu.com/s?wd=%E4%B8%93%E5%AE%B6%EF%BC%9A%E9%BB%84%E9%87%91%E5%B7%B2%E4%B8%A5%E9%87%8D%E8%B6%85%E5%8D%96&sa=fyb_news&rsv_dl=fyb_news)
+- [亚马尔举牌讽刺帕雷德斯](https://s.weibo.com/weibo?q=%E4%BA%9A%E9%A9%AC%E5%B0%94%E4%B8%BE%E7%89%8C%E8%AE%BD%E5%88%BA%E5%B8%95%E9%9B%B7%E5%BE%B7%E6%96%AF)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c043c56cd715f2b80abf -->
+<!-- content-fingerprint: 367808bc8e71f8f033b3 -->
