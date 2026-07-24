@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 赛里木湖 互殴
+# 周星驰叫迪丽热巴巴爷
 
-> 来源：微博热搜 · 排名：第 6 位 · 热度：629599 · 分类：民生新闻 · 更新：2026-07-24T17:28:11+08:00
+> 来源：微博热搜 · 排名：第 6 位 · 热度：481535 · 分类：电影 · 更新：2026-07-24T23:17:30+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“赛里木湖 互殴”位列第 6 位，公开热度指标为 629599，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“周星驰叫迪丽热巴巴爷”位列第 6 位，公开热度指标为 481535，榜单分类为“电影”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `民生新闻`
+`微博热搜` `实时热搜` `热点资讯` `电影`
 
 ## 相关热点
 
-- [郭一鸣：A股缩量普跌静待方向选择](wei-wei-jiu-zhao.md)
-- [如何看待越野跑被「上坟的路都比这陡，我小时候穿拖鞋都能跑」的评论嘲讽？](wan-bi-gui-zhao.md)
-- [指鸡为牛、移花接木：营销号看图说话有多离谱？](fu-jing-qing-zui.md)
-- [东方甄选“去主播化”后赚疯了](mao-sui-zi-jian.md)
+- [“鞋拔子脸”维权女孩：修复至少30万](wei-wei-jiu-zhao.md)
+- [OPPO 、Vivo 拒绝三星存储涨价报价，后续国产手机可能都用长鑫等国产内存吗？](wan-bi-gui-zhao.md)
+- [⚡一战成名⚡我把风扇立在了一支笔上](fu-jing-qing-zui.md)
+- [重庆山体崩塌现场新搜寻出3名遇难者](mao-sui-zi-jian.md)
 
 ## 站内推荐
 
-- [四字名已经满足不了90后家长了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [王虹教授在清华大学开讲挂谷猜想](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [小S失去能理解她幽默感的时代](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [郑恺看到苗苗剪短发后的反应](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [DeepSeek纠结了10秒还是决定谄媚](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [林依轮复刻白鹿周生如故红衣造型](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [射雕英雄传侠之大者全网收视榜](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [演员寇占文被法院悬赏，立案标的 694 万，曾出演《隋唐英雄传》《逐玉》《镖人》，哪些信息值得关注？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [如何评价荣耀最新的 logo？为啥要在这个时间点更换logo？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [指鸡为牛、移花接木：营销号看图说话有多离谱？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [菲舰船侵闯黄岩岛领海 中国海警驱离](http://www.movie.hkepx.cn/movie/2601282.htm)
-- [菲位南海多点生事蓄意挑衅](http://www.movie.hkepx.cn/xiju/4388580.htm)
-- [Angelababy13岁旧照](http://www.daogukj.com/6043229)
-- [「最爱发钱老板」因员工不孝当场将其辞退，你怎么看待他的做法？](http://www.daogukj.com/tuknaqqk/)
-- [“广西北海一镇严重猪瘟”系谣言](http://www.play.hengshemaoyi.cn/xiju/0208499.htm)
-- [TVB正式更名](http://www.movie.hkepx.cn/xiju/5042058.htm)
-- [35岁数学家王虹回应获菲尔兹奖](http://www.play.hengshemaoyi.cn/xiju/9907218.htm)
-- [王虹在菲尔兹颁奖现场介绍家乡桂林](http://www.daogukj.com/fbzmeevv/)
-- [耐克自砍一刀](http://www.daogukj.com/6822799)
-- [刘亦菲带哈哈晒太阳](http://www.movie.hkepx.cn/movie/6007586.htm)
-- [小S失去能理解她幽默感的时代](http://www.movie.hkepx.cn/movie/2039310.htm)
-- [假如你生活在十万人的宿舍【AI全民制作人】](http://www.movie.hkepx.cn/movie/6824213.htm)
-- [7月26日广东省内铁路全线停运](http://www.play.hengshemaoyi.cn/kongbu/5393635.htm)
-- [马克龙打电话祝贺王虹获奖](http://www.movie.hkepx.cn/xiju/9308316.htm)
-- [情侣还愿时遇神奇小鸟停男生肩上](http://www.play.hengshemaoyi.cn/xiju/4116156.htm)
-- [宋祖儿 折腰小乔含金量](http://www.daogukj.com/mgiescai/)
-- [长鑫科技将上市](http://www.play.hengshemaoyi.cn/kongbu/6390636.htm)
-- [《绝区零》蕾米埃尔角色展示 | 恰如往昔](http://www.play.hengshemaoyi.cn/kongbu/0190224.htm)
-- [长鑫上市前一天 A股为何极致缩量](http://www.daogukj.com/zzmpmugc/)
-- [认清汛期灾害谣言](http://www.play.hengshemaoyi.cn/xiju/0896339.htm)
-- [树恨你](http://www.play.hengshemaoyi.cn/xiju/5928051.htm)
-- [当你穿进老钱班30](http://www.daogukj.com/mytklttd/)
-- [产妇羊水栓塞抢救11小时换3次血](http://www.daogukj.com/2710404)
-- [台风红霞](http://www.play.hengshemaoyi.cn/kongbu/9250075.htm)
-- [曝演员片酬再降，片酬从2亿降到最高2500万，透露出影视业哪些问题？对行业生态来说，是好事还是坏事？](http://www.daogukj.com/nicuyzrv/)
-- [如何看待越野跑被「上坟的路都比这陡，我小时候穿拖鞋都能跑」的评论嘲讽？](http://www.movie.hkepx.cn/xiju/4031070.htm)
-- [金价连涨四天，现货黄金重回 4100 美元，深圳水贝挤满购金人，如何看待黄金当下行情？](http://www.movie.hkepx.cn/movie/5688904.htm)
-- [我婚礼上要放这个](http://www.play.hengshemaoyi.cn/xiju/3278531.htm)
-- [长江十年行](http://www.play.hengshemaoyi.cn/xiju/4379435.htm)
-- [中方回应欧委会对全球速卖通罚 5.5 亿欧元，停止利用法律条文模糊性滥用自由裁量权，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/1426673.htm)
-- [南京南站23天已捡到16个娃](http://www.play.hengshemaoyi.cn/kongbu/7958910.htm)
-- [如何看待腾讯 317 万年终奖员工因泄密被辞退，「打入黑名单，永不录用」？大厂保密红线究竟有多严？](http://www.play.hengshemaoyi.cn/xiju/4271068.htm)
-- [如何看待新晋菲尔兹奖得主 Jacob Tsimerman 颁奖当天宣布加入OpenAI？](http://www.play.hengshemaoyi.cn/kongbu/6292535.htm)
-- [“加长版”中伏来了 记得吃碗二伏面](http://www.play.hengshemaoyi.cn/xiju/8816405.htm)
-- [中美元首将讨论AI议题？外交部回应](http://www.daogukj.com/8870060)
-- [微信新调整：发消息可“无痕撤回”](http://www.daogukj.com/ullacrud/)
-- [如何看待高德上线的「位置口令」功能，6 位数字锁定精确点位？实际用途大吗？](http://www.movie.hkepx.cn/xiju/5257979.htm)
-- [媒体评王虹获奖：别再说寒门难出贵子](http://www.movie.hkepx.cn/movie/7584597.htm)
-- [王虹获奖 别再说寒门难出贵子](http://www.play.hengshemaoyi.cn/kongbu/4186435.htm)
-- [腾讯晒317万年终奖员工因泄密被辞退](http://www.daogukj.com/niqxgwwt/)
-- [菲尔兹奖为什么卡年龄](http://www.movie.hkepx.cn/movie/5962352.htm)
-- [如何看待周星驰电影《长江七号》最近在网络上获得好评？](http://www.movie.hkepx.cn/xiju/9888008.htm)
-- [【第48版】如果“豆包”死掉你会怎样-【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/6481359.htm)
-- [上课时的难绷瞬间！](http://www.play.hengshemaoyi.cn/kongbu/8096623.htm)
-- [天上无归客，人间有相思](http://www.play.hengshemaoyi.cn/kongbu/3203910.htm)
-- [东方甄选“去主播化”后赚疯了](http://www.play.hengshemaoyi.cn/kongbu/0688447.htm)
-- [中方回应美国新一轮关税措施将生效](http://www.movie.hkepx.cn/xiju/9131499.htm)
-- [郑恺看到苗苗剪短发后的反应](http://www.daogukj.com/7162593)
-- [跟着中国第一个旅游博主徐霞客的足迹去旅行，看看400年后变成了什么样！](http://www.movie.hkepx.cn/xiju/3395220.htm)
-- [SK掌门人50亿美元天价离婚案判了](http://www.daogukj.com/5265166)
+- [瓜迪奥拉婉拒意大利男足主教练帅位，据称其「经过了数日的权衡」，对此你怎么看？](http://www.movie.hkepx.cn/movie/2601282.htm)
+- [广东多地宣布停止一切线下培训](http://www.movie.hkepx.cn/xiju/4388580.htm)
+- [如何看待腾讯 317 万年终奖员工因泄密被辞退，「打入黑名单，永不录用」？大厂保密红线究竟有多严？](http://www.daogukj.com/6043229)
+- [曝演员片酬再降，片酬从2亿降到最高2500万，透露出影视业哪些问题？对行业生态来说，是好事还是坏事？](http://www.daogukj.com/tuknaqqk/)
+- [全宇宙最阴的物件](http://www.play.hengshemaoyi.cn/xiju/0208499.htm)
+- [孙颖莎俱乐部回应伤情](http://www.movie.hkepx.cn/xiju/5042058.htm)
+- [男子在家裸体被女邻居发群是谁错了](http://www.play.hengshemaoyi.cn/xiju/9907218.htm)
+- [博主：一场医考骚乱撕开印度深层困局](http://www.daogukj.com/fbzmeevv/)
+- [美国被曝考虑对第8国动武](http://www.daogukj.com/6822799)
+- [长鑫科技上市时间敲定 7 月 27 日，哪些信息值得关注？你看好它的上市吗？](http://www.movie.hkepx.cn/movie/6007586.htm)
+- [演员寇占文被法院悬赏，立案标的 694 万，曾出演《隋唐英雄传》《逐玉》《镖人》，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/2039310.htm)
+- [《绝区零》蕾米埃尔角色展示 | 恰如往昔](http://www.movie.hkepx.cn/movie/6824213.htm)
+- [证监会原副主席方星海被查](http://www.play.hengshemaoyi.cn/kongbu/5393635.htm)
+- [上课打游戏 期末考段位？电竞专业真有这么爽吗？](http://www.movie.hkepx.cn/xiju/9308316.htm)
+- [黄金还能不能买](http://www.play.hengshemaoyi.cn/xiju/4116156.htm)
+- [明天入中伏](http://www.daogukj.com/mgiescai/)
+- [树恨你](http://www.play.hengshemaoyi.cn/kongbu/6390636.htm)
+- [《下一个是谁》第七季（2）](http://www.play.hengshemaoyi.cn/kongbu/0190224.htm)
+- [中南大学回应一硕士论文13页雷同](http://www.daogukj.com/zzmpmugc/)
+- [连续21天十点睡六点起，我真的会变健康吗？](http://www.play.hengshemaoyi.cn/xiju/0896339.htm)
+- [TES战胜狼队](http://www.play.hengshemaoyi.cn/xiju/5928051.htm)
+- [俄军苏-57战机坠毁与乌袭击有关吗](http://www.daogukj.com/mytklttd/)
+- [微信撤回消息后可删除提示字](http://www.daogukj.com/2710404)
+- [怎样看待女生越来越不喜欢肌肉男的现象？](http://www.play.hengshemaoyi.cn/kongbu/9250075.htm)
+- [【陶笛】The other side of paradise.抱歉哪位小盆友点的，找不到截图了。。。哈哈哈哈哈](http://www.daogukj.com/nicuyzrv/)
+- [OPPO 、Vivo 拒绝三星存储涨价报价，后续国产手机可能都用长鑫等国产内存吗？](http://www.movie.hkepx.cn/xiju/4031070.htm)
+- [每周2天少吃坚持一月瘦5斤](http://www.movie.hkepx.cn/movie/5688904.htm)
+- [乔欣晒瑞士旅行随拍](http://www.play.hengshemaoyi.cn/xiju/3278531.htm)
+- [我国社会稳定形势持续向好](http://www.play.hengshemaoyi.cn/xiju/4379435.htm)
+- [野猴坐工地狂喝饮料 工人一脸无奈](http://www.play.hengshemaoyi.cn/xiju/1426673.htm)
+- [全球第一个 老挝彻底禁售燃油新车](http://www.play.hengshemaoyi.cn/kongbu/7958910.htm)
+- [王兴兴登《时代》封面](http://www.play.hengshemaoyi.cn/xiju/4271068.htm)
+- [如果一男子撬锁进入别人房子内，结果刚进屋就被泼热油导致全身重度烧伤，请问屋主该行为是否属于正当防卫？](http://www.play.hengshemaoyi.cn/kongbu/6292535.htm)
+- [云南旅游点完菜后发现老板砍树去了](http://www.play.hengshemaoyi.cn/xiju/8816405.htm)
+- [女孩卖4克头发换12元买奶茶](http://www.daogukj.com/8870060)
+- [暑期游火爆 网红民宿老板却亏麻了](http://www.daogukj.com/ullacrud/)
+- [遗忘之海 × ASHLEY WOOD艺术家联动PV —「锋下之形」](http://www.movie.hkepx.cn/xiju/5257979.htm)
+- [打虎！证监会原副主席方星海被查](http://www.movie.hkepx.cn/movie/7584597.htm)
+- [《歌手》第10期排名：窦靖童第一](http://www.play.hengshemaoyi.cn/kongbu/4186435.htm)
+- [长鑫科技一签能赚多少](http://www.daogukj.com/niqxgwwt/)
+- [俄罗斯再成中国汽车最大买家](http://www.movie.hkepx.cn/movie/5962352.htm)
+- [美加墨世界杯后，哈兰德、亚马尔身价达到惊人的 2.2 亿欧元，已突破历史，这是一个什么水平？](http://www.movie.hkepx.cn/xiju/9888008.htm)
+- [Angelababy13岁旧照](http://www.play.hengshemaoyi.cn/kongbu/6481359.htm)
+- [《我的花童弟弟》](http://www.play.hengshemaoyi.cn/kongbu/8096623.htm)
+- [峰学蔚来武亮住院](http://www.play.hengshemaoyi.cn/kongbu/3203910.htm)
+- [重庆山体崩塌现场新搜寻出3名遇难者](http://www.play.hengshemaoyi.cn/kongbu/0688447.htm)
+- [方某军因操纵证券市场被罚没1.75亿](http://www.movie.hkepx.cn/xiju/9131499.htm)
+- [如何评价荣耀最新的 logo？为啥要在这个时间点更换logo？](http://www.daogukj.com/7162593)
+- [澳大利亚工党大会中方官员愤然离席](http://www.movie.hkepx.cn/xiju/3395220.htm)
+- [如何看待内存的涨价终于波及到了显卡，50系显卡逐渐大面积缺货开始暴涨？](http://www.daogukj.com/5265166)
 
 </details>
 
 ## 原始来源
 
-- [赛里木湖 互殴](https://s.weibo.com/weibo?q=%E8%B5%9B%E9%87%8C%E6%9C%A8%E6%B9%96%20%E4%BA%92%E6%AE%B4)
+- [周星驰叫迪丽热巴巴爷](https://s.weibo.com/weibo?q=%E5%91%A8%E6%98%9F%E9%A9%B0%E5%8F%AB%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%B7%B4%E7%88%B7)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 92bee70917f6b5bcb55f -->
+<!-- content-fingerprint: 75164a1deae3553b3e61 -->
