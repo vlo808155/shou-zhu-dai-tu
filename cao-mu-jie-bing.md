@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 男子潜逃30多年后回老家：怕客死异乡
+# 离岸信托个税新规出台，设立、存续、清算全链条征税 适用 20% 税率，将产生哪些影响？
 
-> 来源：百度热搜 · 排名：第 7 位 · 热度：7141447 · 更新：2026-07-25T07:44:48+08:00
+> 来源：知乎热榜 · 排名：第 7 位 · 热度：354 万热度 · 分类：问答 · 更新：2026-07-25T15:33:46+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“男子潜逃30多年后回老家：怕客死异乡”位列第 7 位，公开热度指标为 7141447。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“离岸信托个税新规出台，设立、存续、清算全链条征税 适用 20% 税率，将产生哪些影响？”位列第 7 位，公开热度指标为 354 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：广西男子谢某1994年因口角持刀杀害工友，潜逃32年，多年隐姓埋名在外打零工。晚年身患疾病，担心客死他乡悄悄潜回老宅藏匿，警方根据线索将其抓获，现已依法刑拘。
+来源公开摘要显示：两部门：个人将财产装入离岸信托以及通过离岸信托取得收益，应当按照规定申报缴纳个人所得税 每经AI快讯，7月24日，财政部、税务总局发布关于离岸信托个人所得税有关事项的公告。个人将财产装入离岸信托以及通过离岸信托取得收益，属于取得《中华人民共和国个人所得税法》第二条规定的所得，应当按照本公告规定申报缴纳个人所得税。 本公告所称离岸信托是指依照境外法律设立的信托或具有信托功能的其他法律安排。具有信托功能的其他法律安排是指不以信托名义设立，实质上具有类似信托功能的境外法律安排，但受所在国家和地区金融监管机构监管，面向不特定客户独立开展业务并承担风险的银行、保险
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [歌手排名](feng-sheng-he-li.md)
-- [詹姆斯新赛季年薪创NBA生涯新低](ru-huo-ru-tu.md)
-- [如何看待近期日本面临的股债汇「三杀」的境况？](yi-gu-zuo-qi.md)
-- [改写“意难平”《幻影忍者》二创挑战全新结局重磅放出⚡️](yi-zi-qian-jin.md)
+- [【纪录片】闪闪的儿科医生4 第9集 扎起，全技能就绪！](feng-sheng-he-li.md)
+- [井泉大使：闹什么闹 承担得起后果吗](ru-huo-ru-tu.md)
+- [台风红霞](yi-gu-zuo-qi.md)
+- [两大存储芯片巨头股价大跌](yi-zi-qian-jin.md)
 
 ## 站内推荐
 
-- [从数学研究角度，为什么王虹可以在本科小透明后取得巨大突破？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [美国被曝考虑对第8国动武](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [A股史上最大股票回购方案](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [俄罗斯再成中国汽车最大买家](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [女孩卖4克头发换12元买奶茶](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [王小洪会见美国联邦调查局局长](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [五人分1亿元，由你来进行分配，但凡有一个人拒绝，所有人都会失去全部，你会怎么分配？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [儿子陪老爸找工作！没想到我会陪55岁的老爸去招聘会...](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [直哉挑衅佐助 十尾空降涩谷](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [7.9元手机壳惹来38万元索赔](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何看待近期日本面临的股债汇「三杀」的境况？](http://www.play.hengshemaoyi.cn/kongbu/8543260.htm)
-- [菲律宾一边逃窜一边喊糟糕](http://www.movie.hkepx.cn/movie/4724518.htm)
-- [《最绝望の主持人》](http://www.play.hengshemaoyi.cn/kongbu/0028042.htm)
-- [出师表翻译成日语再翻回来](http://www.play.hengshemaoyi.cn/xiju/3193472.htm)
-- [【苏星河车机】小资人群最爱的车，车机能有多么离谱？](http://www.movie.hkepx.cn/xiju/5695874.htm)
-- [俄罗斯再成中国汽车最大买家](http://www.play.hengshemaoyi.cn/kongbu/9716007.htm)
-- [OPPO 、Vivo 拒绝三星存储涨价报价，后续国产手机可能都用长鑫等国产内存吗？](http://www.play.hengshemaoyi.cn/kongbu/6976710.htm)
-- [【陶笛】The other side of paradise.抱歉哪位小盆友点的，找不到截图了。。。哈哈哈哈哈](http://www.daogukj.com/6389351)
-- [台风红霞加强](http://www.movie.hkepx.cn/xiju/4891708.htm)
-- [王虹获奖感言「很幸运在合适时间遇见合适的人，得到正确引导」，你怎么看？](http://www.movie.hkepx.cn/xiju/9183020.htm)
-- [每周2天少吃坚持一月瘦5斤](http://www.daogukj.com/mgeudand/)
-- [⚡一战成名⚡我把风扇立在了一支笔上](http://www.daogukj.com/thgbmsar/)
-- [重庆山体崩塌现场新搜寻出3名遇难者](http://www.movie.hkepx.cn/movie/7141685.htm)
-- [周星驰回应观众才是最牛的，强调纪录由观众创造的，而冯导却抛出观众垃圾论，你认为那种说法更对？](http://www.movie.hkepx.cn/movie/8285250.htm)
-- [亚足联为何反对世界杯扩军至64队](http://www.play.hengshemaoyi.cn/kongbu/8845063.htm)
-- [近日马斯克称其2万亿新模型「可能超越Kimi」，可能超越Kimi的具体依据是什么？对此你们是怎么看？](http://www.play.hengshemaoyi.cn/xiju/1186264.htm)
-- [个人贷款新规8月1日起正式实施](http://www.movie.hkepx.cn/xiju/0249486.htm)
-- [从数学研究角度，为什么王虹可以在本科小透明后取得巨大突破？](http://www.daogukj.com/7987932)
-- [《绝区零》蕾米埃尔角色展示 | 恰如往昔](http://www.play.hengshemaoyi.cn/xiju/9727864.htm)
-- [永劫，再打十年也不会腻 | 新英雄【全职高手 · 叶修】CG](http://www.daogukj.com/1491749)
-- [峰学蔚来总经理武亮回应住院](http://www.play.hengshemaoyi.cn/xiju/5312952.htm)
-- [王虹回应为何没直接读北大数学系](http://www.movie.hkepx.cn/movie/1704748.htm)
-- [俄罗斯奶牛猫运毒被抓只能喵喵喵](http://www.movie.hkepx.cn/movie/6434749.htm)
-- [詹姆斯加盟76人](http://www.movie.hkepx.cn/xiju/3903629.htm)
-- [广东多地宣布：停止一切线下培训](http://www.play.hengshemaoyi.cn/kongbu/1169569.htm)
-- [歌手排名](http://www.movie.hkepx.cn/movie/4527568.htm)
-- [周星驰叫迪丽热巴“巴爷”](http://www.play.hengshemaoyi.cn/xiju/6189163.htm)
-- [前 LPL 解说孙亚龙发长文曝 Bin 自降薪水后又称降薪、队内吵架为谣言，到底啥情况？](http://www.daogukj.com/0521779)
-- [微信撤回消息后可删除提示字](http://www.daogukj.com/5716979)
-- [解码中国经济半年报](http://www.movie.hkepx.cn/movie/6813612.htm)
-- [12306 优先为老年旅客分配下铺，而带娃旅客不优先，该如何平衡不同群体需求？](http://www.play.hengshemaoyi.cn/kongbu/0013525.htm)
-- [女子将家中电视背景墙装成教室黑板](http://www.daogukj.com/sijbwiiz/)
-- [从三组外贸数据读懂“中国机遇2.0”](http://www.movie.hkepx.cn/xiju/5793926.htm)
-- [詹姆斯发长文](http://www.movie.hkepx.cn/movie/5566595.htm)
-- [马克龙打电话祝贺王虹获奖](http://www.movie.hkepx.cn/movie/7078471.htm)
-- [老同学婚礼让我穿最贵的来？](http://www.play.hengshemaoyi.cn/kongbu/3140322.htm)
-- [林依轮复刻白鹿周生如故红衣造型](http://www.play.hengshemaoyi.cn/kongbu/9870126.htm)
-- [SpaceX 星舰实施第 13 次试飞，超重助推器按计划完成海上回收着陆，此次发射有哪些看点？](http://www.movie.hkepx.cn/movie/3347353.htm)
-- [“鞋拔子脸”维权女孩：修复至少30万](http://www.play.hengshemaoyi.cn/xiju/4013867.htm)
-- [中国美术学院的录取通知书里附带 30 张速写作业，你怎么看高校给新生布置暑假作业？](http://www.daogukj.com/neoiosto/)
-- [我国首条穿越长江高铁隧道贯通](http://www.daogukj.com/2254144)
-- [如何看待「詹姆斯2年800万美元加盟76人，第2年球员选项」，老詹这一决定的未来前景如何 ？](http://www.play.hengshemaoyi.cn/xiju/2382409.htm)
-- [台风](http://www.daogukj.com/9886230)
-- [詹姆斯新赛季年薪创NBA生涯新低](http://www.play.hengshemaoyi.cn/kongbu/5207966.htm)
-- [韦东奕课后向王虹追问请教](http://www.movie.hkepx.cn/movie/7743518.htm)
-- [为什么rmvb格式消失了,它在技术上比不上H264吗？](http://www.daogukj.com/dzqtqzgj/)
-- [【第48版】如果“豆包”死掉你会怎样-【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/2288019.htm)
-- [打虎！证监会原副主席方星海被查](http://www.play.hengshemaoyi.cn/xiju/9678725.htm)
-- [乌克兰大变天了](http://www.play.hengshemaoyi.cn/kongbu/9902985.htm)
-- [台风红霞最新路径发布](http://www.play.hengshemaoyi.cn/kongbu/8033858.htm)
+- [台风红霞](http://www.play.hengshemaoyi.cn/kongbu/8543260.htm)
+- [《下一个是谁》第七季（2）](http://www.movie.hkepx.cn/movie/4724518.htm)
+- [任正非为什么说「τ 定律是华为唯一出路」？](http://www.play.hengshemaoyi.cn/kongbu/0028042.htm)
+- [宋威龙觉得和张婧仪缺一个婚纱照](http://www.play.hengshemaoyi.cn/xiju/3193472.htm)
+- [携程因垄断行为被罚没51.79亿元](http://www.movie.hkepx.cn/xiju/5695874.htm)
+- [直哉挑衅佐助 十尾空降涩谷](http://www.play.hengshemaoyi.cn/kongbu/9716007.htm)
+- [学英语就是为了看懂这种笑话](http://www.play.hengshemaoyi.cn/kongbu/6976710.htm)
+- [商务部宣布为维护国家安全和利益，将 14 家欧盟实体列入出口管制管控名单，有哪些信息值得关注？](http://www.daogukj.com/6389351)
+- [陈翔六点半：有人在这里被爱过，有人在这里学会了爱](http://www.movie.hkepx.cn/xiju/4891708.htm)
+- [国民党全代会吴伯雄交棒郑丽文](http://www.movie.hkepx.cn/xiju/9183020.htm)
+- [TOP青岛演唱会伴手礼](http://www.daogukj.com/mgeudand/)
+- [袜学导论：从脚踝到大腿，袜子如何成就二次元的顶级暗示！【泛式/次元论战】](http://www.daogukj.com/thgbmsar/)
+- [佛得角门将称收到多份来自中国的邀请](http://www.movie.hkepx.cn/movie/7141685.htm)
+- [三个“第一”复盘携程垄断案始末](http://www.movie.hkepx.cn/movie/8285250.htm)
+- [《最绝望の主持人》](http://www.play.hengshemaoyi.cn/kongbu/8845063.htm)
+- [辟谣周榜｜沈阳全城停水系谣言](http://www.play.hengshemaoyi.cn/xiju/1186264.htm)
+- [王楚钦爆冷不敌张煜东](http://www.movie.hkepx.cn/xiju/0249486.htm)
+- [王小洪会见美国联邦调查局局长](http://www.daogukj.com/7987932)
+- [重庆警方今年打掉境内外电诈团伙198个](http://www.play.hengshemaoyi.cn/xiju/9727864.htm)
+- [这才是真正的民用机床](http://www.daogukj.com/1491749)
+- [黄雅琼回应怀孕后还玩拼豆](http://www.play.hengshemaoyi.cn/xiju/5312952.htm)
+- [中国世界遗产+1](http://www.movie.hkepx.cn/movie/1704748.htm)
+- [菲律宾挑事 驻菲大使：坚决打回去](http://www.movie.hkepx.cn/movie/6434749.htm)
+- [携程为何挨了最重的罚](http://www.movie.hkepx.cn/xiju/3903629.htm)
+- [王小洪会见FBI局长帕特尔](http://www.play.hengshemaoyi.cn/kongbu/1169569.htm)
+- [【纪录片】闪闪的儿科医生4 第9集 扎起，全技能就绪！](http://www.movie.hkepx.cn/movie/4527568.htm)
+- [哥伦比亚宣布进入“国家灾难状态”](http://www.play.hengshemaoyi.cn/xiju/6189163.htm)
+- [王楚钦击球失败小表情](http://www.daogukj.com/0521779)
+- [24岁女孩地包天做手术反成鞋拔子脸](http://www.daogukj.com/5716979)
+- [防溺水 这样做](http://www.movie.hkepx.cn/movie/6813612.htm)
+- [山西运城一路面塌陷处现大量白骨](http://www.play.hengshemaoyi.cn/kongbu/0013525.htm)
+- [曝大S房产已过户至具俊晔和子女名下](http://www.daogukj.com/sijbwiiz/)
+- [上半年农业农村经济发展势头良好](http://www.movie.hkepx.cn/xiju/5793926.htm)
+- [移动端今日公测 |《遗忘之海》“姐姐”海葬角色PV — 最后一舞](http://www.movie.hkepx.cn/movie/5566595.htm)
+- [曝讲真打布洛芬](http://www.movie.hkepx.cn/movie/7078471.htm)
+- [永劫，再打十年也不会腻 | 新英雄【全职高手 · 叶修】CG](http://www.play.hengshemaoyi.cn/kongbu/3140322.htm)
+- [奥运冠军黄雅琼怀孕](http://www.play.hengshemaoyi.cn/kongbu/9870126.htm)
+- [直击台风红霞路径](http://www.movie.hkepx.cn/movie/3347353.htm)
+- [温兆伦力挺《功夫女足》](http://www.play.hengshemaoyi.cn/xiju/4013867.htm)
+- [勇士11号秀对詹姆斯加盟76人表示疑惑](http://www.daogukj.com/neoiosto/)
+- [景德镇手工瓷业遗存列入世界遗产](http://www.daogukj.com/2254144)
+- [小鹏X9因趴窝问题召回 33473 辆，有车主称大部分都是3万公里就趴窝，换完再塌，哪个流程出了问题？](http://www.play.hengshemaoyi.cn/xiju/2382409.htm)
+- [整活！当做饭很难吃的女友突然买了一兜子菜…男友直接崩溃了！](http://www.daogukj.com/9886230)
+- [井泉大使：闹什么闹 承担得起后果吗](http://www.play.hengshemaoyi.cn/kongbu/5207966.htm)
+- [曲婉婷点赞冰雪女王梗](http://www.movie.hkepx.cn/movie/7743518.htm)
+- [三星折叠屏国行售价公布，你认为这一价格值得入手吗？](http://www.daogukj.com/dzqtqzgj/)
+- [刚买的李子丢进水里，直接长出了一层透明壳？？](http://www.play.hengshemaoyi.cn/kongbu/2288019.htm)
+- [除了玩手机还有这么多低成本爱好](http://www.play.hengshemaoyi.cn/xiju/9678725.htm)
+- [菲尔兹奖得主邓煜的知乎主页引热议，嗑 CP、写物理诗，你怎么看这位答主科研之外的「反差感」解压日常？](http://www.play.hengshemaoyi.cn/kongbu/9902985.htm)
+- [邹市明带了消磁身份证去离婚](http://www.play.hengshemaoyi.cn/kongbu/8033858.htm)
 
 </details>
 
 ## 原始来源
 
-- [男子潜逃30多年后回老家：怕客死异乡](https://www.baidu.com/s?wd=%E7%94%B7%E5%AD%90%E6%BD%9C%E9%80%8330%E5%A4%9A%E5%B9%B4%E5%90%8E%E5%9B%9E%E8%80%81%E5%AE%B6%EF%BC%9A%E6%80%95%E5%AE%A2%E6%AD%BB%E5%BC%82%E4%B9%A1&sa=fyb_news&rsv_dl=fyb_news)
+- [离岸信托个税新规出台，设立、存续、清算全链条征税 适用 20% 税率，将产生哪些影响？](https://www.zhihu.com/question/2064072667435684910)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d55e6e54bcebf4324265 -->
+<!-- content-fingerprint: 52a09fa4b13670f79fea -->
