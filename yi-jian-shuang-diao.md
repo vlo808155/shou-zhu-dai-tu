@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 螃蟹挑战赛
+# 当年国内最火的特摄！是多少人心中整整30年的白月光？
 
-> 来源：哔哩哔哩热门 · 排名：第 8 位 · 热度：2406079 · 分类：日常 · 更新：2026-07-27T04:02:38+08:00
+> 来源：哔哩哔哩热门 · 排名：第 8 位 · 热度：356607 · 分类：动漫杂谈 · 更新：2026-07-27T07:35:56+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“螃蟹挑战赛”位列第 8 位，公开热度指标为 2406079，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“当年国内最火的特摄！是多少人心中整整30年的白月光？”位列第 8 位，公开热度指标为 356607，榜单分类为“动漫杂谈”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：-
+来源公开摘要显示：小时候第一个看过的奥特曼是迪迦的出列！6岁之前看过迪迦的出列！小时候以为迪迦是国内拍的出列！买过迪迦光碟的出列！小时候拿手电筒照过电视的出列！小时候看迪迦流过眼泪的出列！小时候哼过《奇迹再现》的出列！小时候比划过在配料光线的出列！这次投票投过迪迦的出列！ 另外给你们提一嘴，我第一次玩杰斯的时候，就听出来他和宗方是同一个配音，优秀的中配无论到哪儿都是优秀的。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `动漫杂谈`
 
 ## 相关热点
 
-- [暴涨5倍后 拼豆迎来国家级安全警示](shou-zhu-dai-tu.md)
+- [重庆山体崩塌救援发现中巴车残骸](shou-zhu-dai-tu.md)
 - [原来请假是不需要理由的](wang-mei-zhi-ke.md)
-- [九寨沟景区通报泥石流致游客滞留](wen-ji-qi-wu.md)
-- [如何评价章笛沙执导，黄渤、吴磊、高叶等主演的电影《群星闪耀时》？](wo-xin-chang-dan.md)
+- [浙大两大热门专业没录满](wen-ji-qi-wu.md)
+- [亚运短跑冠军体脂低于 10%，退役不到一年查出三高和脂肪肝，这是什么原因？](wo-xin-chang-dan.md)
 
 ## 站内推荐
 
-- [奇怪的玩具工厂 第五章 Part1](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [生物军团vs泰坦傀儡！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [「新宿决战」雨爱版](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [别人说倒装句！广西人讲乱装句！这谁能听懂啊！😵](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [年销2亿粒！从古代皇室黑金到日本“国民蕨饼”垄断超市夏季货架！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [极客湾手机续航大横评：电池锁容？电量缩水？谁在浑水摸鱼？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [Tiny Giant (Remix) | Zenless Zone Zero](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [人类幼崽开机使用说明书](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [带薪陪娃 “这才是最好的招工简章”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [长鑫上市 合肥能赚多少](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [演员王建隆去世](http://www.daogukj.com/ppaxnzva/)
-- [AI短剧《被裁掉的女孩》播放破2亿](http://www.movie.hkepx.cn/xiju/7569728.htm)
+- [AI短剧《被裁掉的女孩》播放破2亿](http://www.daogukj.com/ppaxnzva/)
+- [油车不香了吗](http://www.movie.hkepx.cn/xiju/7569728.htm)
 - [今年消费品以旧换新销售额超万亿元](http://www.play.hengshemaoyi.cn/kongbu/1600467.htm)
-- [周星驰：中国功夫世界第一](http://www.daogukj.com/4975917)
-- [亚运短跑冠军体脂低于 10%，退役不到一年查出三高和脂肪肝，这是什么原因？](http://www.movie.hkepx.cn/movie/7031044.htm)
-- [九寨沟景区通报泥石流致游客滞留](http://www.play.hengshemaoyi.cn/kongbu/8076427.htm)
-- [如何看待数码博主极客湾最新一期的《续航大横评》？这会给国产手机厂商和市场带来什么样的影响？](http://www.daogukj.com/zennunfs/)
-- [宁德时代上半年日赚 2.39 亿元，拟200-400亿元回购股份注销，创下 A 股历史纪录，如何解读？](http://www.movie.hkepx.cn/xiju/9775845.htm)
-- [电影功夫女足](http://www.movie.hkepx.cn/movie/9071546.htm)
-- [LPL2026赛季第三赛段组内赛AL 1:2 BLG，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/4489901.htm)
+- [如何评价章笛沙执导，黄渤、吴磊、高叶等主演的电影《群星闪耀时》？](http://www.daogukj.com/4975917)
+- [如何看待儿子沉迷游戏吞药入院，父亲因此起诉腾讯、网易、米哈游和三七互娱，并且索赔10元？](http://www.movie.hkepx.cn/movie/7031044.htm)
+- [浙大两大热门专业没录满](http://www.play.hengshemaoyi.cn/kongbu/8076427.htm)
+- [继《争洛阳》后《群星闪耀时》也官宣撤档，这个暑期档怎么一部部片子都跑了？](http://www.daogukj.com/zennunfs/)
+- [⚡️异 域 狗 叫 ⚡️](http://www.movie.hkepx.cn/xiju/9775845.htm)
+- [多部电影撤出暑期档](http://www.movie.hkepx.cn/movie/9071546.htm)
+- [别人说倒装句！广西人讲乱装句！这谁能听懂啊！😵](http://www.play.hengshemaoyi.cn/xiju/4489901.htm)
 - [《明日方舟》EP - 酸橙色信笺](http://www.daogukj.com/yhtegkzz/)
-- [张柏芝一身黑衣现身机场](http://www.daogukj.com/fyfonhkf/)
-- [极客湾手机续航大横评：电池锁容？电量缩水？谁在浑水摸鱼？](http://www.play.hengshemaoyi.cn/xiju/6169629.htm)
-- [一口气看懂王虹获菲尔兹奖：挂谷猜想到底有多难？](http://www.movie.hkepx.cn/xiju/0387228.htm)
-- [终于明白职场没有朋友的含义了](http://www.daogukj.com/qkavfdvz/)
-- [极氪回应跨境自驾遭远程锁车，上线「跨境守护」功能、优化安全功能，你觉得该调整怎样？能回应此前质疑吗？](http://www.play.hengshemaoyi.cn/xiju/0627493.htm)
-- [如何评价章笛沙执导，黄渤、吴磊、高叶等主演的电影《群星闪耀时》？](http://www.movie.hkepx.cn/movie/2449915.htm)
-- [如何看待儿子沉迷游戏吞药入院，父亲因此起诉腾讯、网易、米哈游和三七互娱，并且索赔10元？](http://www.play.hengshemaoyi.cn/kongbu/8489134.htm)
-- [每次发完朋友圈都特别尴尬](http://www.play.hengshemaoyi.cn/xiju/2205602.htm)
-- [扣扣搜搜却花了很多钱](http://www.play.hengshemaoyi.cn/kongbu/3633411.htm)
-- [群星闪耀时撤档](http://www.play.hengshemaoyi.cn/xiju/1772992.htm)
-- [迪丽热巴名字长还有这好处](http://www.daogukj.com/4780737)
-- [生物军团vs泰坦傀儡！](http://www.movie.hkepx.cn/xiju/5267459.htm)
+- [宁德时代上半年日赚 2.39 亿元，拟200-400亿元回购股份注销，创下 A 股历史纪录，如何解读？](http://www.daogukj.com/fyfonhkf/)
+- [奇怪的玩具工厂 第五章 Part1](http://www.play.hengshemaoyi.cn/xiju/6169629.htm)
+- [“顶级智斗，胜负已分”【天堂的彼端-变速】【智斗の小曲】](http://www.movie.hkepx.cn/xiju/0387228.htm)
+- [不要长期向AI倾泻心事](http://www.daogukj.com/qkavfdvz/)
+- [「新宿决战」雨爱版](http://www.play.hengshemaoyi.cn/xiju/0627493.htm)
+- [亚运短跑冠军体脂低于 10%，退役不到一年查出三高和脂肪肝，这是什么原因？](http://www.movie.hkepx.cn/movie/2449915.htm)
+- [邓煜获得了2026年菲尔兹奖，其研究成果与物理学之间有很强的关联性，他会获得诺贝尔物理学奖吗？](http://www.play.hengshemaoyi.cn/kongbu/8489134.htm)
+- [李宏毅是第一个起诉李登科的](http://www.play.hengshemaoyi.cn/xiju/2205602.htm)
+- [男子回乡奔丧途中遇害 嫌犯一审无罪](http://www.play.hengshemaoyi.cn/kongbu/3633411.htm)
+- [红霞成为本世纪登陆广东最强初台](http://www.play.hengshemaoyi.cn/xiju/1772992.htm)
+- [甘肃一景区发生山洪致10死23伤](http://www.daogukj.com/4780737)
+- [Tiny Giant (Remix) | Zenless Zone Zero](http://www.movie.hkepx.cn/xiju/5267459.htm)
 - [【独家】牧神记 第93集 弑帝](http://www.play.hengshemaoyi.cn/kongbu/8508013.htm)
 - [甘肃省委书记省长赶赴山洪现场](http://www.movie.hkepx.cn/movie/8646163.htm)
-- [AI冲击短剧行业 “戏王”也扛不住了](http://www.daogukj.com/ideyvojn/)
-- [如果没有出现四大天王，香港乐坛能否敌得过台湾乐坛？](http://www.daogukj.com/wbplfych/)
-- [新疆一游客坚持摸马被当场踢翻](http://www.play.hengshemaoyi.cn/xiju/1691587.htm)
-- [胖东来售卖的西瓜上为何有圆圈](http://www.movie.hkepx.cn/movie/0156354.htm)
-- [年销2亿粒！从古代皇室黑金到日本“国民蕨饼”垄断超市夏季货架！](http://www.movie.hkepx.cn/movie/8759533.htm)
-- [日本机器人格斗赛没开打就撞门跑路](http://www.daogukj.com/goeesqox/)
-- [Tiny Giant (Remix) | Zenless Zone Zero](http://www.play.hengshemaoyi.cn/kongbu/1605719.htm)
-- [济南突降暴雨 积水深到大腿](http://www.play.hengshemaoyi.cn/xiju/0951200.htm)
-- [申论素材加一](http://www.play.hengshemaoyi.cn/kongbu/8124430.htm)
-- [人类幼崽开机使用说明书](http://www.play.hengshemaoyi.cn/kongbu/2758868.htm)
-- [古代没冰箱，肉怎么保存？](http://www.daogukj.com/3916003)
-- [【MAFG】MC动画：于是，我们的故事开始了......](http://www.movie.hkepx.cn/movie/6479348.htm)
-- [⚡️异 域 狗 叫 ⚡️](http://www.movie.hkepx.cn/xiju/4609156.htm)
-- [长鑫上市 合肥能赚多少](http://www.play.hengshemaoyi.cn/kongbu/1182405.htm)
-- [《年会不能停 2！》开点映了，看过的都来说说，如何评价这部电影？](http://www.daogukj.com/uobqircq/)
-- [黄日华否认“全面复出”](http://www.play.hengshemaoyi.cn/kongbu/0355633.htm)
-- [张柏芝接机大儿子谢振轩](http://www.play.hengshemaoyi.cn/kongbu/3845867.htm)
-- [和人最舒服的相处方式](http://www.play.hengshemaoyi.cn/xiju/5922119.htm)
-- [奸商卖毒药材专攻视频号用户](http://www.daogukj.com/7623786)
-- [男子回乡奔丧途中遇害 嫌犯一审无罪](http://www.play.hengshemaoyi.cn/kongbu/9393809.htm)
-- [百万粉丝女网红贩卖私密视频被逮捕](http://www.daogukj.com/9177301)
-- [灿如繁星](http://www.daogukj.com/pxvagscl/)
-- [亲密关系容易产生轻视](http://www.play.hengshemaoyi.cn/kongbu/6726990.htm)
-- [长鑫科技员工：上市和我们没啥关系](http://www.daogukj.com/5743277)
-- [陈翔六点半：有人在这里被爱过，有人在这里学会了爱](http://www.movie.hkepx.cn/xiju/7321735.htm)
+- [甘肃山洪救援人员：30多辆车冲成一堆](http://www.daogukj.com/ideyvojn/)
+- [一口气看懂王虹获菲尔兹奖：挂谷猜想到底有多难？](http://www.daogukj.com/wbplfych/)
+- [日本机器人格斗赛没开打就撞门跑路](http://www.play.hengshemaoyi.cn/xiju/1691587.htm)
+- [现在的电影扑街就撤档](http://www.movie.hkepx.cn/movie/0156354.htm)
+- [长鑫上市 合肥能赚多少](http://www.movie.hkepx.cn/movie/8759533.htm)
+- [男子无三高却突发脑梗](http://www.daogukj.com/goeesqox/)
+- [跨次元空间改造大作战！MC搭子闯关途中触及盲区⚡能顺利通关吗？](http://www.play.hengshemaoyi.cn/kongbu/1605719.htm)
+- [张元英为mlb开球](http://www.play.hengshemaoyi.cn/xiju/0951200.htm)
+- [AI冲击短剧行业 “戏王”也扛不住了](http://www.play.hengshemaoyi.cn/kongbu/8124430.htm)
+- [伊媒：一油轮在霍尔木兹海峡触雷爆炸](http://www.play.hengshemaoyi.cn/kongbu/2758868.htm)
+- [自己吓自己～](http://www.daogukj.com/3916003)
+- [昔日“数学天才”柳智宇谈邓煜获奖](http://www.movie.hkepx.cn/movie/6479348.htm)
+- [奸商卖毒药材专攻视频号用户](http://www.movie.hkepx.cn/xiju/4609156.htm)
+- [Hope闪现骗过导播](http://www.play.hengshemaoyi.cn/kongbu/1182405.htm)
+- [躲在航天核心区捡垃圾的两人【三角洲动画】](http://www.daogukj.com/uobqircq/)
+- [王一博第二名](http://www.play.hengshemaoyi.cn/kongbu/0355633.htm)
+- [人类的指甲在生活中看起来好像并没有什么实际的价值，为什么这么长时间也没有退化呢？](http://www.play.hengshemaoyi.cn/kongbu/3845867.htm)
+- [新冠疫情升至中流行水平](http://www.play.hengshemaoyi.cn/xiju/5922119.htm)
+- [九寨沟突发泥石流 大批游客滞留](http://www.daogukj.com/7623786)
+- [《年会不能停 2！》开点映了，看过的都来说说，如何评价这部电影？](http://www.play.hengshemaoyi.cn/kongbu/9393809.htm)
+- [甘肃渭源山洪](http://www.daogukj.com/9177301)
+- [美对伊空袭突然叫停有何考量](http://www.daogukj.com/pxvagscl/)
+- [电影功夫女足](http://www.play.hengshemaoyi.cn/kongbu/6726990.htm)
+- [很难想象这车是怎么开过来的](http://www.daogukj.com/5743277)
+- [嫌停车贵 男子跟车逃费183次被刑拘](http://www.movie.hkepx.cn/xiju/7321735.htm)
 
 </details>
 
 ## 原始来源
 
-- [螃蟹挑战赛](https://b23.tv/BV1oXgD6NEqJ)
+- [当年国内最火的特摄！是多少人心中整整30年的白月光？](https://b23.tv/BV1gV3j6ZEGg)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 25d5f5c6b52c8e9755bb -->
+<!-- content-fingerprint: 7ae41ac9a7cd9215bbc4 -->
