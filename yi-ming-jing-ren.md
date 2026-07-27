@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 国家发的电用不完的，国家电网会储存起来吗，还是浪费了？
+# 和解剖了4000具尸体的法医，一起看了影片中的尸体...
 
-> 来源：知乎热榜 · 排名：第 8 位 · 热度：79 万热度 · 分类：问答 · 更新：2026-07-27T07:35:56+08:00
+> 来源：哔哩哔哩热门 · 排名：第 8 位 · 热度：298808 · 分类：影视杂谈 · 更新：2026-07-27T20:00:45+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“国家发的电用不完的，国家电网会储存起来吗，还是浪费了？”位列第 8 位，公开热度指标为 79 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“和解剖了4000具尸体的法医，一起看了影片中的尸体...”位列第 8 位，公开热度指标为 298808，榜单分类为“影视杂谈”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：相关问题电网上没用掉的电去哪里了？
+来源公开摘要显示：在各种影视作品中，我们经常会看到各种各样的凶杀案和尸体，但影片中对于“死亡”的呈现，和现实中的情况真的一样吗？这一次，我们请到了法医刘良老师来和我们一起拉片，看看这些影视作品中的“尸体”……如果你对这期节目感兴趣，请多多支持我们，并把视频分享给你的朋友们一起看看！ *本期内容涉及法医专业知识，部分画面及讲述内容可能导致不适，请谨慎观看。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `影视杂谈`
 
 ## 相关热点
 
-- [当年国内最火的特摄！是多少人心中整整30年的白月光？](yi-jian-shuang-diao.md)
-- [重庆山体崩塌救援发现中巴车残骸](shou-zhu-dai-tu.md)
-- [原来请假是不需要理由的](wang-mei-zhi-ke.md)
-- [浙大两大热门专业没录满](wen-ji-qi-wu.md)
+- [女子连拿6次海鲜未付款 警方介入处置](yi-jian-shuang-diao.md)
+- [越来越多中国人不去日本旅游](shou-zhu-dai-tu.md)
+- [东野圭吾遗作](wang-mei-zhi-ke.md)
+- [员工女儿考上北大获公司10万元奖励](wen-ji-qi-wu.md)
 
 ## 站内推荐
 
-- [邓煜获得了2026年菲尔兹奖，其研究成果与物理学之间有很强的关联性，他会获得诺贝尔物理学奖吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [为何《新三国》孙策（沙溢）那句「恭喜爹可以称帝了！」那么让人难绷？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [如何看待儿子沉迷游戏吞药入院，父亲因此起诉腾讯、网易、米哈游和三七互娱，并且索赔10元？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [这挑战迪迦干完都亮红灯走的](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [别人说倒装句！广西人讲乱装句！这谁能听懂啊！😵](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [24岁女孩正颌手术被做反，变成「鞋拔子脸」，武汉卫健部门介入，医院和医生各得担哪些责？女孩还能恢复吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [这 一 钓 会 很 帅](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [“西藏千年古碉遭强拆”系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [电影《八仙！》总票房破8亿](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [梁文锋打新长鑫浮盈8.27亿](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [胖东来回应售卖的西瓜上有圆圈](http://www.daogukj.com/fudrdubx/)
-- [浙大两大热门专业没录满](http://www.daogukj.com/jnybznkv/)
-- [极氪回应跨境自驾遭远程锁车，上线「跨境守护」功能、优化安全功能，你觉得该调整怎样？能回应此前质疑吗？](http://www.daogukj.com/4844384)
-- [奇怪的玩具工厂 第五章 Part1](http://www.daogukj.com/sgrsjaxr/)
-- [生物军团vs泰坦傀儡！](http://www.play.hengshemaoyi.cn/xiju/2709685.htm)
-- [王一博第二名](http://www.daogukj.com/2157977)
-- [男子回乡奔丧途中遇害 嫌犯一审无罪](http://www.play.hengshemaoyi.cn/kongbu/7420321.htm)
-- [「新宿决战」雨爱版](http://www.movie.hkepx.cn/xiju/8620011.htm)
-- [重庆山体崩塌救援发现中巴车残骸](http://www.play.hengshemaoyi.cn/kongbu/8118071.htm)
-- [《明日方舟》EP - 酸橙色信笺](http://www.daogukj.com/ybylltrh/)
-- [如何评价章笛沙执导，黄渤、吴磊、高叶等主演的电影《群星闪耀时》？](http://www.play.hengshemaoyi.cn/xiju/7207629.htm)
-- [为什么感觉现在小孩越来越笨了？](http://www.play.hengshemaoyi.cn/xiju/8320007.htm)
-- [又一女生称被gmm工作人员污蔑插队](http://www.play.hengshemaoyi.cn/kongbu/8567673.htm)
-- [九寨沟景区通报泥石流致游客滞留](http://www.movie.hkepx.cn/xiju/6034585.htm)
-- [女子手臂被烫伤用水冲了4小时](http://www.movie.hkepx.cn/xiju/6364290.htm)
-- [很难想象这车是怎么开过来的](http://www.movie.hkepx.cn/xiju/0846089.htm)
-- [昔日“数学天才”柳智宇谈邓煜获奖](http://www.daogukj.com/1651835)
-- [长鑫科技周边酒店一房难求](http://www.daogukj.com/amghneqm/)
-- [油车不香了吗](http://www.movie.hkepx.cn/xiju/4371729.htm)
-- [年客流1800万的顶流IP为何不赚钱](http://www.daogukj.com/gzlhbupb/)
-- [Tiny Giant (Remix) | Zenless Zone Zero](http://www.daogukj.com/dhxrjyno/)
-- [奇瑞董事长：我们不再参加内卷](http://www.play.hengshemaoyi.cn/kongbu/0642618.htm)
-- [红霞成为本世纪登陆广东最强初台](http://www.play.hengshemaoyi.cn/xiju/9001524.htm)
-- [这挑战迪迦干完都亮红灯走的](http://www.movie.hkepx.cn/xiju/9522798.htm)
-- [跨次元空间改造大作战！MC搭子闯关途中触及盲区⚡能顺利通关吗？](http://www.play.hengshemaoyi.cn/xiju/7270146.htm)
-- [张柏芝接机大儿子谢振轩](http://www.movie.hkepx.cn/xiju/6713581.htm)
-- [群星闪耀时撤档](http://www.movie.hkepx.cn/xiju/1107922.htm)
-- [俄乌迟迟不停战在等什么](http://www.play.hengshemaoyi.cn/kongbu/1709616.htm)
-- [甘肃渭源山洪](http://www.daogukj.com/1746327)
-- [李宏毅是第一个起诉李登科的](http://www.movie.hkepx.cn/xiju/9443648.htm)
-- [现在的电影扑街就撤档](http://www.movie.hkepx.cn/movie/6311095.htm)
-- [“上海一商业街发生命案”系谣言](http://www.play.hengshemaoyi.cn/xiju/1238840.htm)
-- [罗永浩炮轰智能电视「长辈模式」与「套娃收费」，为何能引发集体共鸣？这种过度商业化正在怎样影响电视行业？](http://www.daogukj.com/5649815)
-- [人类幼崽开机使用说明书](http://www.movie.hkepx.cn/movie/6082292.htm)
-- [不要长期向AI倾泻心事](http://www.daogukj.com/7096702)
-- [为何《新三国》孙策（沙溢）那句「恭喜爹可以称帝了！」那么让人难绷？](http://www.movie.hkepx.cn/xiju/6645727.htm)
-- [当年国内最火的特摄！是多少人心中整整30年的白月光？](http://www.play.hengshemaoyi.cn/xiju/6625835.htm)
-- [16岁女生服刑期发现漏罪被判12年](http://www.daogukj.com/qkznereg/)
-- [自己吓自己～](http://www.movie.hkepx.cn/xiju/8695048.htm)
-- [日本机器人格斗赛没开打就撞门跑路](http://www.play.hengshemaoyi.cn/xiju/6994271.htm)
-- [一口气看懂王虹获菲尔兹奖：挂谷猜想到底有多难？](http://www.play.hengshemaoyi.cn/kongbu/9150882.htm)
-- [亲密关系容易产生轻视](http://www.movie.hkepx.cn/xiju/4430995.htm)
-- [【MAFG】MC动画：于是，我们的故事开始了......](http://www.play.hengshemaoyi.cn/xiju/0984127.htm)
-- [杭州已经发展成这样了吗](http://www.play.hengshemaoyi.cn/kongbu/0936148.htm)
-- [带薪陪娃 “这才是最好的招工简章”](http://www.movie.hkepx.cn/xiju/8400822.htm)
-- [甘肃省委书记省长赶赴山洪现场](http://www.daogukj.com/ogibyscz/)
-- [新冠疫情升至中流行水平](http://www.daogukj.com/1532292)
-- [伊朗称暂停对等打击美行动](http://www.movie.hkepx.cn/xiju/9678115.htm)
-- [朱志鑫凌晨发博回复粉丝](http://www.movie.hkepx.cn/movie/0181516.htm)
-- [甘肃山洪救援人员：30多辆车冲成一堆](http://www.movie.hkepx.cn/movie/7964895.htm)
+- [不要和楼下大爷大妈混熟](http://www.daogukj.com/fudrdubx/)
+- [员工女儿考上北大获公司10万元奖励](http://www.daogukj.com/jnybznkv/)
+- [奇怪的玩具工厂 第五章 Part1](http://www.daogukj.com/4844384)
+- [敢想敢不同](http://www.daogukj.com/sgrsjaxr/)
+- [丧 尸 下 乡](http://www.play.hengshemaoyi.cn/xiju/2709685.htm)
+- [周星驰重返故地回忆达叔](http://www.daogukj.com/2157977)
+- [【终末地】向 渊 行 前 传.exe](http://www.play.hengshemaoyi.cn/kongbu/7420321.htm)
+- [男子3年骗同学8.3万致其自杀被判刑](http://www.movie.hkepx.cn/xiju/8620011.htm)
+- [越来越多中国人不去日本旅游](http://www.play.hengshemaoyi.cn/kongbu/8118071.htm)
+- [新婚夫妻蜜月中在悬崖边救了一车人](http://www.daogukj.com/ybylltrh/)
+- [A股一哥易主 中国科技能否长兴](http://www.play.hengshemaoyi.cn/xiju/7207629.htm)
+- [巴西一水豚身上插着箭淡定蹲在水中](http://www.play.hengshemaoyi.cn/xiju/8320007.htm)
+- [印度男子在祖母火化时钻入焚尸炉](http://www.play.hengshemaoyi.cn/kongbu/8567673.htm)
+- [坏了！家里出烟酒生了！](http://www.movie.hkepx.cn/xiju/6034585.htm)
+- [如何看待科幻电影《群星闪耀时》宣布撤档？](http://www.movie.hkepx.cn/xiju/6364290.htm)
+- [拉里古斯像家长偷看王虹做报告](http://www.movie.hkepx.cn/xiju/0846089.htm)
+- [现在就出发4三亚开录](http://www.daogukj.com/1651835)
+- [多名公职人员被举报2元买走8亿股权](http://www.daogukj.com/amghneqm/)
+- [耐克终止线上合作后，滔搏被曝暴力打折甩卖库存，如何解读此现象？](http://www.movie.hkepx.cn/xiju/4371729.htm)
+- [广东一女子被大水冲走 当地全力搜救](http://www.daogukj.com/gzlhbupb/)
+- [北京迎来绝美晚霞](http://www.daogukj.com/dhxrjyno/)
+- [突然理解一生要出片的女人了](http://www.play.hengshemaoyi.cn/kongbu/0642618.htm)
+- [中方回应美拟制裁中国人工智能企业](http://www.play.hengshemaoyi.cn/xiju/9001524.htm)
+- [电影《八仙！》总票房破8亿](http://www.movie.hkepx.cn/xiju/9522798.htm)
+- [《电话簿是你的谎言》](http://www.play.hengshemaoyi.cn/xiju/7270146.htm)
+- [极客湾手机续航大横评：电池锁容？电量缩水？谁在浑水摸鱼？](http://www.movie.hkepx.cn/xiju/6713581.htm)
+- [官方回应河南三支一扶成绩争议](http://www.movie.hkepx.cn/xiju/1107922.htm)
+- [“听泉赏宝”宣布彻底告别股市](http://www.play.hengshemaoyi.cn/kongbu/1709616.htm)
+- [有微信之前人是可以不用一直在线的](http://www.daogukj.com/1746327)
+- [美财政部威胁制裁中国模型，硅谷 200 家企业联名反对，硅谷的态度反弹说明了什么？](http://www.movie.hkepx.cn/xiju/9443648.htm)
+- [为什么现在初中生越来越不聪明了？](http://www.movie.hkepx.cn/movie/6311095.htm)
+- [网民编造重庆大足火灾谣言被处罚](http://www.play.hengshemaoyi.cn/xiju/1238840.htm)
+- [某博主制作知了猴馅水饺，结果知了猴集体出逃、活蹦乱跳，如何看待这一烹饪做法？你怎么看？](http://www.daogukj.com/5649815)
+- [张慧雯去黄灿灿超话晒美甲挑衅](http://www.movie.hkepx.cn/movie/6082292.htm)
+- [日本作家东野圭吾去世，如何评价他的作品？你与他初相遇是从哪本书开始的？最推荐他的哪部作品？](http://www.daogukj.com/7096702)
+- [这 一 钓 会 很 帅](http://www.movie.hkepx.cn/xiju/6645727.htm)
+- [女子连拿6次海鲜未付款 警方介入处置](http://www.play.hengshemaoyi.cn/xiju/6625835.htm)
+- [如何评价恐怖电影《痴迷》（Obsession）？](http://www.daogukj.com/qkznereg/)
+- [南京环卫工穿上“空调马甲”](http://www.movie.hkepx.cn/xiju/8695048.htm)
+- [长鑫科技挂牌上市，员工称「上市和我们没啥关系」，更关心未来薪资、待遇，上市对员工有哪些隐藏的好处吗？](http://www.play.hengshemaoyi.cn/xiju/6994271.htm)
+- [虞书欣疑似被AI融脸和声音](http://www.play.hengshemaoyi.cn/kongbu/9150882.htm)
+- [电影《年会不能停 2！》点映后口碑如何，它有哪些看点值得期待？](http://www.movie.hkepx.cn/xiju/4430995.htm)
+- [东野圭吾 最年轻的是今天](http://www.play.hengshemaoyi.cn/xiju/0984127.htm)
+- [肠癌很多人发现就是中晚期](http://www.play.hengshemaoyi.cn/kongbu/0936148.htm)
+- [林志颖回应Kimi网上照片](http://www.movie.hkepx.cn/xiju/8400822.htm)
+- [山洪前男子拍到乌云 带孩子提前撤离](http://www.daogukj.com/ogibyscz/)
+- [在线峰值四千人！我做出来了三角洲第一个全自动改枪...](http://www.daogukj.com/1532292)
+- [麦田怪圈的真相是什么？](http://www.movie.hkepx.cn/xiju/9678115.htm)
+- [那英吐槽冉莹颖败家](http://www.movie.hkepx.cn/movie/0181516.htm)
+- [张柏芝家里墙上都是三个儿子的照片](http://www.movie.hkepx.cn/movie/7964895.htm)
 
 </details>
 
 ## 原始来源
 
-- [国家发的电用不完的，国家电网会储存起来吗，还是浪费了？](https://www.zhihu.com/question/320833834)
+- [和解剖了4000具尸体的法医，一起看了影片中的尸体...](https://b23.tv/BV1QEgZ6rEGj)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 74a9a567655baded7a06 -->
+<!-- content-fingerprint: 2154de1b6ed2516c1153 -->
