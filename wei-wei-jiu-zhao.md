@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 入伏以来多名市民赤裸上身去公园「晒背」，是个人自由还是不文明行为？对身体健康有什么好处吗？
+# 曝《流浪地球 3》导演版素材750分钟，公映版125分钟，郭帆称「我也不知道时长」，哪些看点值得期待？
 
-> 来源：知乎热榜 · 排名：第 6 位 · 热度：122 万热度 · 分类：问答 · 更新：2026-07-31T07:46:19+08:00
+> 来源：知乎热榜 · 排名：第 6 位 · 热度：267 万热度 · 分类：问答 · 更新：2026-07-31T18:02:36+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“入伏以来多名市民赤裸上身去公园「晒背」，是个人自由还是不文明行为？对身体健康有什么好处吗？”位列第 6 位，公开热度指标为 122 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“曝《流浪地球 3》导演版素材750分钟，公映版125分钟，郭帆称「我也不知道时长」，哪些看点值得期待？”位列第 6 位，公开热度指标为 267 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：入伏以来，申城持续高温，公园里又出现了“晒背族”的身影。入伏以来，申城持续高温，公园里又出现了“晒背族”的身影。和平公园的部分区域，每天都能看到市民晒背的身影，有人穿着背心，有人直接撩起上衣。这一幕也引发了一个老话题的讨论：公共场合，个人行为的边界在哪里？ 赤膊晒背，旁人怎么看 上午9点多，和平公园的广场上，几名中老年男士赤裸上身穿短裤，一字排开，背对着太阳。 经过的游客中，有人多看两眼，有人加快脚步，也有年轻家长低声提醒孩子“不要看”。一位女士对记者说：“公园是公共场合，女孩子看到会觉得尴尬，小孩问我也不知道怎么说。”也有人觉得“这是个人自由，无所谓。
+来源公开摘要显示：此前刘慈欣在公开采访时就透露，《流浪地球3》预计将在2027年春节期间上映，从当前项目推进的各项进度来看，也完全契合此前对外公布的排期节奏。 从最新流出的行业消息来看，《流浪地球3》已经成功完成全片审核流程，正式确认将在2027年2月6日举办全球首映礼，正好搭上春节档的黄金观影窗口。 有长期跟进国产科幻产业动态的相关博主晒出的内部信息显示，《流浪地球3》的导演版原始素材总时长竟然高达750分钟，差不多相当于12.5个小时的容量，足见整个创作团队前期积累的拍摄素材体量十分庞大。 经过多轮反复精剪和叙事逻辑打磨，最终确定的院线公映版时长锁定在125分钟，兼顾
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [奇怪的玩具工厂 第五章 Part2，结局](wan-bi-gui-zhao.md)
-- [美股收盘：满屏都是两位数涨幅](fu-jing-qing-zui.md)
-- [丈夫和第三者胚胎是婚姻耻辱](mao-sui-zi-jian.md)
-- [广州台播出纪录片《三大起义》](san-gu-mao-lu.md)
+- [古罗马离谱习俗——两千年前的古罗马，开放程度与市井智慧，完全颠覆现代人的认知。](wan-bi-gui-zhao.md)
+- [新人结婚将高铁作婚车排面拉满](fu-jing-qing-zui.md)
+- [消防云梯气垫](mao-sui-zi-jian.md)
+- [50℃高温来了](san-gu-mao-lu.md)
 
 ## 站内推荐
 
-- [王虹为什么懂法语，以及王虹的英语（包含口语）是什么时候学的？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [媒体曝因AI裁员企业超半数承认决策失误，是真的吗？为啥这些企业光速反悔了？AI裁员浪潮结束了吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [【花小烙】游隼：地球上俯冲速度最快的“鸟中战斗机”是如何炼成的？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [跨次元空间改造大作战！MC搭子闯关途中触及盲区⚡能顺利通关吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [这扳机纪律你就学吧](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [保时捷女销冠回应被AI合成不雅视频](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [如何看待王虹在大学期间因为数学难度陡增，「felt a little discouraged」?](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [特斯拉否认「剥离或出售中国业务」，中国业务对其有多重要？怎样从商业角度解读？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [国内极具挑战性的五大玩命景区，你敢来挑战吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [日韩股市“疯狂星期五”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [黑鲨官宣全面停止手机官方售后，其巅峰时期占据游戏手机 47% 市场份额，游戏手机是不是阶段性伪需求？](http://www.play.hengshemaoyi.cn/xiju/4420977.htm)
-- [日本震后老年人睡地板民众哭喊怕余震](http://www.play.hengshemaoyi.cn/kongbu/6290781.htm)
-- [丈夫和第三者胚胎是婚姻耻辱](http://www.play.hengshemaoyi.cn/xiju/1162679.htm)
-- [豆包究竟见过多少人的糗事](http://www.play.hengshemaoyi.cn/xiju/9289380.htm)
-- [龚宝冬遇难 西南政法大学官网变黑白](http://www.play.hengshemaoyi.cn/xiju/6272185.htm)
-- [长江十年行](http://www.daogukj.com/pjwrhddu/)
-- [小米澎程N90价格](http://www.movie.hkepx.cn/movie/5053706.htm)
-- [中国“黄金大外环”要来了](http://www.movie.hkepx.cn/xiju/7285942.htm)
-- [李小璐首度公开真实离婚时间](http://www.movie.hkepx.cn/xiju/7103473.htm)
-- [孙继海和董路所带领的少年足球队相互交手的结果说明了什么？](http://www.daogukj.com/4576080)
-- [小米澎程技术发布会上发布了什么值得关注的新技术？有哪些亮点？](http://www.play.hengshemaoyi.cn/xiju/8196743.htm)
-- [为什么周星驰的声誉突然好了？](http://www.daogukj.com/1630471)
-- [别对着陌生人的手机念数字](http://www.movie.hkepx.cn/xiju/0613701.htm)
-- [小米澎程N90 Max预售价29.99万元](http://www.daogukj.com/7876238)
-- [马斯克最新预言来了](http://www.daogukj.com/scqpktqq/)
-- [《灰境行者》全新预告丨PC测试定档9月](http://www.movie.hkepx.cn/movie/1554482.htm)
-- [晋江喊话番茄](http://www.play.hengshemaoyi.cn/xiju/0772044.htm)
-- [在课堂上搞笑被抓了](http://www.movie.hkepx.cn/movie/3835091.htm)
-- [曾舜晞吴老狗上线4分钟热度破亿](http://www.movie.hkepx.cn/movie/1956900.htm)
-- [广州台播出纪录片《三大起义》](http://www.play.hengshemaoyi.cn/kongbu/9186735.htm)
-- [“沙漠”的“沙”为什么不是石字旁的“砂”？](http://www.movie.hkepx.cn/movie/2541991.htm)
-- [欧足联宣布抵制所有国际足联赛事](http://www.movie.hkepx.cn/movie/5129374.htm)
-- [彭水山体崩塌的 00 后网格员龚宝冬遗骸被找到，因组织群众转移未及时撤离遇难，他的行为让你有哪些感触？](http://www.play.hengshemaoyi.cn/kongbu/1343141.htm)
-- [跨次元空间改造大作战！MC搭子闯关途中触及盲区⚡能顺利通关吗？](http://www.daogukj.com/ewserevh/)
-- [1.55升“哑铃矿泉水”走红 厂家回应](http://www.movie.hkepx.cn/movie/2272129.htm)
-- [男孩挡电梯门近2分钟被家长“制裁”](http://www.daogukj.com/9822826)
-- [双胞胎哥哥考上清华弟弟考上北大](http://www.daogukj.com/dscmsufj/)
-- [2026乒超联赛王楚钦/周启豪1-2林诗栋/赵钊彦，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/5951111.htm)
-- [莲子切开里面有个小娃娃](http://www.daogukj.com/tnivesrf/)
-- [中际旭创股东减持公告](http://www.play.hengshemaoyi.cn/xiju/4490303.htm)
-- [媒体称三大运营商将于 7 月 31 日前全面取消网络代理渠道，释放了哪些行业信号？对消费者有什么影响？](http://www.daogukj.com/1235102)
-- [日本广岛现新物质 系原子弹爆炸形成](http://www.daogukj.com/rpvaskok/)
-- [美股收盘：满屏都是两位数涨幅](http://www.daogukj.com/3380276)
-- [兰州一高校录取通知书上「身份证」印成「身证份」，为什么会出现这么明显的错误？会影响新生对学校的观感吗？](http://www.daogukj.com/delpozze/)
-- [化身Superman！摩托老哥解锁新技能](http://www.movie.hkepx.cn/movie/3925230.htm)
-- [《蜘蛛侠：崭新之日》好看吗](http://www.play.hengshemaoyi.cn/kongbu/7751069.htm)
-- [微软创近18年以来最大单日涨幅](http://www.play.hengshemaoyi.cn/kongbu/6834788.htm)
-- [这扳机纪律你就学吧](http://www.movie.hkepx.cn/xiju/6554047.htm)
-- [陈伟霆九门老九门出场对比](http://www.daogukj.com/7914276)
-- [菲尔兹奖如何防止高龄数学家将自己的成果偷偷传授给不满 40 岁的年轻数学家以获奖？](http://www.movie.hkepx.cn/movie/9563353.htm)
-- [女子被公公强奸丈夫称父亲喝醉了](http://www.movie.hkepx.cn/movie/6888942.htm)
-- [苹果库克的最后一份财报亮相](http://www.play.hengshemaoyi.cn/xiju/7362106.htm)
-- [奇怪的玩具工厂 第五章 Part2，结局](http://www.play.hengshemaoyi.cn/xiju/5372734.htm)
-- [小时候看不懂，长大后已是局中人](http://www.play.hengshemaoyi.cn/kongbu/8641789.htm)
-- [雷军：澎程从北京到上海无需补能](http://www.play.hengshemaoyi.cn/xiju/8026453.htm)
-- [曝BLG联系不到Bin](http://www.daogukj.com/lpbahrjj/)
-- [一组数据读懂我国能源转型新趋势](http://www.play.hengshemaoyi.cn/kongbu/0335371.htm)
-- [女子做检查时身亡丈夫称麻醉师玩手机](http://www.daogukj.com/iomkliqb/)
-- [洪水中锁死狮子该不该](http://www.daogukj.com/9403181)
-- [当所有人随机获得英雄联盟的一个技能...【AI全民制作人】](http://www.movie.hkepx.cn/xiju/8965411.htm)
+- [浙江一大爷用铲子斩断剧毒眼镜蛇，5 分钟后用手捡起蛇头，突然被咬中毒，蛇头断了为什么还能咬人？](http://www.play.hengshemaoyi.cn/xiju/4420977.htm)
+- [如何看待解放军在黄岩岛动用新装备](http://www.play.hengshemaoyi.cn/kongbu/6290781.htm)
+- [消防云梯气垫](http://www.play.hengshemaoyi.cn/xiju/1162679.htm)
+- [百花奖](http://www.play.hengshemaoyi.cn/xiju/9289380.htm)
+- [钧正平：99+1=？](http://www.play.hengshemaoyi.cn/xiju/6272185.htm)
+- [读懂好感度攀升背后的中国魅力](http://www.daogukj.com/pjwrhddu/)
+- [高三学生被邻居撞死前曾躲3次](http://www.movie.hkepx.cn/movie/5053706.htm)
+- [地球正在发烧 50°C高温来了](http://www.movie.hkepx.cn/xiju/7285942.htm)
+- [代拍发的田曦薇生图](http://www.movie.hkepx.cn/xiju/7103473.htm)
+- [一道小学数学题难住三名医学博士，现在的小学数学试题到底有多难？如何评价这一难度设计？](http://www.daogukj.com/4576080)
+- [DeepSeek V4 flash 正式版发布，有哪些亮点值得关注？](http://www.play.hengshemaoyi.cn/xiju/8196743.htm)
+- [女子多次遭家暴后杀夫逃亡20年](http://www.daogukj.com/1630471)
+- [连云港火灾母女坠楼 3岁女童身亡](http://www.movie.hkepx.cn/xiju/0613701.htm)
+- [我国基本养老保险覆盖范围继续扩大](http://www.daogukj.com/7876238)
+- [卫健委回应原配申请销毁婚外胚胎](http://www.daogukj.com/scqpktqq/)
+- [争夺蜜瓜的修行【绝区零生日会】](http://www.movie.hkepx.cn/movie/1554482.htm)
+- [全国高温闷热持续 多地将破历史极值](http://www.play.hengshemaoyi.cn/xiju/0772044.htm)
+- [挑战从东北徒步到西藏( 十倍速1小时5分版）](http://www.movie.hkepx.cn/movie/3835091.htm)
+- [陆军某旅演练教官发实弹](http://www.movie.hkepx.cn/movie/1956900.htm)
+- [50℃高温来了](http://www.play.hengshemaoyi.cn/kongbu/9186735.htm)
+- [西班牙北非飞地休达遭遇大规模移民涌入，负责人直言边境已「完全崩溃」，目前情况如何?](http://www.movie.hkepx.cn/movie/2541991.htm)
+- [千万不要把自己的身体当做耗材](http://www.movie.hkepx.cn/movie/5129374.htm)
+- [柯洁在王中王围棋争霸赛决赛中，从 1%胜率逆转夺冠，有多难？如何评价他本次比赛的表现？](http://www.play.hengshemaoyi.cn/kongbu/1343141.htm)
+- [国内极具挑战性的五大玩命景区，你敢来挑战吗？](http://www.daogukj.com/ewserevh/)
+- [054B护卫舰首次亮相黄岩岛](http://www.movie.hkepx.cn/movie/2272129.htm)
+- [男子穿拖鞋夜钓被黄辣丁扎穿鞋底](http://www.daogukj.com/9822826)
+- [巡查组当场质问：是这么规定的吗](http://www.daogukj.com/dscmsufj/)
+- [伊朗称击毁驻约旦美军基地 3 架 F-35，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/5951111.htm)
+- [张雅琪送客人孔明锁](http://www.daogukj.com/tnivesrf/)
+- [敖瑞鹏工作室回应接中剧](http://www.play.hengshemaoyi.cn/xiju/4490303.htm)
+- [为什么高校行政人员的脾气普遍不好甚至态度恶劣？](http://www.daogukj.com/1235102)
+- [最佳理财全家桶](http://www.daogukj.com/rpvaskok/)
+- [新人结婚将高铁作婚车排面拉满](http://www.daogukj.com/3380276)
+- [我国电力系统迎来结构性转变](http://www.daogukj.com/delpozze/)
+- [来吧，互相伤害吧](http://www.movie.hkepx.cn/movie/3925230.htm)
+- [男子用私密视频勒索前女友50多次获刑](http://www.play.hengshemaoyi.cn/kongbu/7751069.htm)
+- [5年期大额存单返场 部分利率破2%](http://www.play.hengshemaoyi.cn/kongbu/6834788.htm)
+- [日韩股市“疯狂星期五”](http://www.movie.hkepx.cn/xiju/6554047.htm)
+- [C罗晒与16岁儿子肌肉合照](http://www.daogukj.com/7914276)
+- [消耗40亿token，我做了个AI军官监督我学习【B站AI创造公开赛】](http://www.movie.hkepx.cn/movie/9563353.htm)
+- [连云港火灾坠楼女童身亡](http://www.movie.hkepx.cn/movie/6888942.htm)
+- [张绍刚打断周深](http://www.play.hengshemaoyi.cn/xiju/7362106.htm)
+- [古罗马离谱习俗——两千年前的古罗马，开放程度与市井智慧，完全颠覆现代人的认知。](http://www.play.hengshemaoyi.cn/xiju/5372734.htm)
+- [抵抗者2026实机演示](http://www.play.hengshemaoyi.cn/kongbu/8641789.htm)
+- [连云港小区火灾母女坠楼，女童身亡，网友质疑救援人员用水柱喷射、未见云梯及气垫，这种情况怎样救援最合理？](http://www.play.hengshemaoyi.cn/xiju/8026453.htm)
+- [DeepSeekV4Flash正式版上线](http://www.daogukj.com/lpbahrjj/)
+- [超60城优化公积金政策](http://www.play.hengshemaoyi.cn/kongbu/0335371.htm)
+- [男子买错机票 7分钟后退票被扣2千多](http://www.daogukj.com/iomkliqb/)
+- [蛋糕配送途中损毁 母女放弃索赔](http://www.daogukj.com/9403181)
+- [《非霸凌不可吗》](http://www.movie.hkepx.cn/xiju/8965411.htm)
 
 </details>
 
 ## 原始来源
 
-- [入伏以来多名市民赤裸上身去公园「晒背」，是个人自由还是不文明行为？对身体健康有什么好处吗？](https://www.zhihu.com/question/2065749316019532347)
+- [曝《流浪地球 3》导演版素材750分钟，公映版125分钟，郭帆称「我也不知道时长」，哪些看点值得期待？](https://www.zhihu.com/question/2064704539450782573)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5a01aac03e5e15d1c3a8 -->
+<!-- content-fingerprint: b0db4184af15a670d06b -->
