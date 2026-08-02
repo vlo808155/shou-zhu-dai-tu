@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 全家频繁生病 揭开墙布全屋发霉
+# 【命运-冠位指定×上美影】简中版十周年专属PV——行迹
 
-> 来源：百度热搜 · 排名：第 7 位 · 热度：7138517 · 更新：2026-08-02T07:42:27+08:00
+> 来源：哔哩哔哩热门 · 排名：第 7 位 · 热度：4596084 · 分类：手机游戏 · 更新：2026-08-02T15:53:11+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“全家频繁生病 揭开墙布全屋发霉”位列第 7 位，公开热度指标为 7138517。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【命运-冠位指定×上美影】简中版十周年专属PV——行迹”位列第 7 位，公开热度指标为 4596084，榜单分类为“手机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，广东深圳的李女士反映，全家人频繁生病，就医却始终查不出原因。直到近期遭遇连日降雨，她发现家中墙布出现霉斑，揭开后才发现，整个屋子大面积发霉了。
+来源公开摘要显示：对你来说，这是一段怎样的旅途呢？ 命运-冠位指定×@上海美术电影制片厂 简中版10周年专属PV——《行迹》，正式公开！ 这是邂逅与别离交织的观星之旅 每一段“回忆”都将成为独属于你的星辰，指引前行 献给旅途中的所有再会，以及还未能再会之人 向仍将继续前进的你，致意！ 【动画团队】 动画制作：上海美术电影制片厂 导演：Glen Gao 制片人：沈鼐 执行制片 ：邹正天 作画监督：徐茜芸 PV制作：上海美术电影制片厂 【配乐】 曲名： Fate/Grand Order 开端~精灵圆桌领域：阿
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `手机游戏`
 
 ## 相关热点
 
-- [女儿说房主任愧疚式教育](yi-gu-zuo-qi.md)
-- [媒体评小伙贷100万开制冰厂月赚30万](yi-zi-qian-jin.md)
-- [少年捐日军侵华罪证遭「销户」威胁，警方已立案并启动保护，这些发布死亡威胁的人该承担怎样的法律责任？](yi-fan-feng-shun.md)
-- [我发现了一个诡异的论坛....](yi-ming-jing-ren.md)
+- [北京的雨已下到模糊](yi-gu-zuo-qi.md)
+- [一看就想睡的装修风格](yi-zi-qian-jin.md)
+- [张国伟说自己肯定是天才](yi-fan-feng-shun.md)
+- [三大运营商新规被指变相涨价，或涉嫌违反《中华人民共和国反垄断法》，是这样吗？具体内容和影响有哪些？](yi-ming-jing-ren.md)
 
 ## 站内推荐
 
 - [⚡️宗 主 连 携 技⚡️](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [第5集丨“零号大坝开满了鲜花？”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [赵心童不敌威尔逊无缘决赛](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [莫斯科市中心爆炸已致3死21伤](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [存储芯片利好来了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [关于鼠鼠怎么活到现在](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [我们拍到了水下风暴](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [59岁陈小春称不敢退休](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [代入房主任女儿视角真的好崩溃](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [女儿说房主任愧疚式教育](http://www.play.hengshemaoyi.cn/kongbu/5269516.htm)
-- [【TF家族练习生】《突围II破局》EP06：我们把彼此留下来（上）](http://www.daogukj.com/pqasrvfj/)
-- [三大运营商停止第三方互联网渠道号卡办理，低价大流量卡将集体退场，出于哪些考量？对普通消费者有什么影响？](http://www.play.hengshemaoyi.cn/kongbu/6953634.htm)
-- [父母眼中让人笑话的一生belike](http://www.play.hengshemaoyi.cn/xiju/4182468.htm)
-- [贫困生是否一定要过极度简朴的生活，才配得上助学金？](http://www.daogukj.com/1017431)
-- [“不是吧？让一只羊来搞擦边”](http://www.movie.hkepx.cn/xiju/1919727.htm)
-- [越来越多中国人不去日本旅游](http://www.play.hengshemaoyi.cn/kongbu/2389385.htm)
-- [「白海豚」爆发式增强，已成超强台风，中心最大风力17级，或直奔华东，最新动向如何？应做好哪些应对？](http://www.daogukj.com/eczaycvr/)
-- [请放过喜羊羊吧](http://www.daogukj.com/yesbcxgy/)
-- [8000米高峰雪崩 中国登山家仍失联](http://www.play.hengshemaoyi.cn/kongbu/2268821.htm)
-- [海警在黄岩岛模拟拖离侵权船只](http://www.daogukj.com/1514619)
-- [超5万非法移民闯西班牙后4.8万人返程](http://www.daogukj.com/7229320)
-- [如何看待在柯洁夺冠后，围棋主播张学斌称「柯洁夺冠对职业围棋未必是好事」？](http://www.daogukj.com/9862646)
-- [《四驱兄弟》骗了我20年，直到我把真车改成了四驱车](http://www.play.hengshemaoyi.cn/xiju/2879856.htm)
-- [美以计划“猛烈轰炸”伊能源设施](http://www.movie.hkepx.cn/xiju/0680178.htm)
-- [一喝水就尿多说明肾脏不好吗](http://www.play.hengshemaoyi.cn/xiju/0371775.htm)
-- [中国新型战机超视距猎杀](http://www.play.hengshemaoyi.cn/xiju/1127717.htm)
-- [丈夫出轨做试管亲友劝原配接受现实](http://www.daogukj.com/xtnnkhps/)
-- [【命运-冠位指定×上美影】简中版十周年专属PV——行迹](http://www.play.hengshemaoyi.cn/kongbu/7644899.htm)
-- [莫斯科一餐饮店发生爆炸造成人员伤亡](http://www.play.hengshemaoyi.cn/xiju/5097167.htm)
-- [如何看待董宇辉称自己看过至少500遍《大话西游》，看500遍《大话西游》是什么概念？](http://www.movie.hkepx.cn/xiju/7245859.htm)
-- [万人涌入西班牙飞地为何吓坏欧盟](http://www.movie.hkepx.cn/xiju/0748643.htm)
-- [曾舜晞说孟子义拍戏动过真感情](http://www.daogukj.com/7402023)
-- [【合唱】千本樱（100000人） 【B萌应援】](http://www.play.hengshemaoyi.cn/kongbu/5443100.htm)
-- [餐馆211暑假工变家教把孩子上崩溃](http://www.daogukj.com/aftpkacm/)
-- [一个小孩两天吃饭要花659元？家长投诉](http://www.movie.hkepx.cn/movie/2312956.htm)
-- [偷偷开通女友亲密付…假大方花一万让她当富婆！看到余额她直接破防！](http://www.play.hengshemaoyi.cn/kongbu/4823974.htm)
-- [发现赚钱方式对人影响很大](http://www.daogukj.com/zoxyezyv/)
-- [郑钦文无缘多伦多站正赛](http://www.daogukj.com/2322655)
-- [对 抗 路 迎 来 大 变20.0](http://www.movie.hkepx.cn/movie/3668600.htm)
-- [男子明知女方是军嫂仍同居 获刑两年](http://www.daogukj.com/6111077)
-- [赵心童不敌威尔逊无缘决赛](http://www.movie.hkepx.cn/xiju/1768070.htm)
-- [房价还能重新上涨吗](http://www.movie.hkepx.cn/xiju/4446306.htm)
-- [多家大行重启 5 年期大额存单，利率最高 1.8%，20 万起存，释放什么信号？普通储户值得入手吗？](http://www.movie.hkepx.cn/movie/3688649.htm)
-- [为什么DeepSeek-V4-Flash-0731的后训练如此有效？](http://www.play.hengshemaoyi.cn/kongbu/4226971.htm)
-- [只有真母单才懂这段吐槽有多真实](http://www.daogukj.com/8802551)
-- [最高检、公安部联合发布涉已满 12 周岁未满 14 周岁未成年人严重暴力犯罪的新规，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/6879576.htm)
-- [致敬最可爱的人](http://www.movie.hkepx.cn/movie/3363630.htm)
-- [如何评价凡人修仙传185集在线人数创新低？](http://www.daogukj.com/gflssozy/)
-- [直观感受到什么是家道中落](http://www.daogukj.com/qvclnbfi/)
-- [一部老片为何17年后在中国卖了5000万](http://www.movie.hkepx.cn/movie/5025610.htm)
-- [马斯克关注DeepSeek账号](http://www.movie.hkepx.cn/movie/4923761.htm)
-- [气象局称发生超强厄尔尼诺概率在增大](http://www.play.hengshemaoyi.cn/xiju/3290638.htm)
-- [董璇也怀疑周也是自己女儿](http://www.play.hengshemaoyi.cn/kongbu/3540195.htm)
-- [杭州足管获“2034杯”亚军](http://www.daogukj.com/heymhest/)
-- [出生时被抱错两女子错换37年人生](http://www.daogukj.com/4552622)
-- [寒武纪给超 8 成员工发放股票激励，人均 160 万元，为什么要如此「重赏」？对企业发展有何影响？](http://www.play.hengshemaoyi.cn/kongbu/2437413.htm)
-- [这是一只美人鱼，你敢和她直视10秒吗？](http://www.daogukj.com/1018065)
-- [第5集丨“零号大坝开满了鲜花？”](http://www.movie.hkepx.cn/xiju/1684044.htm)
-- [【warma】我为1000亿奖金挑战天才作者谜题！](http://www.movie.hkepx.cn/xiju/3549037.htm)
+- [北京的雨已下到模糊](http://www.play.hengshemaoyi.cn/kongbu/5269516.htm)
+- [“连坐制”，一款如今人人都在玩的热门游戏](http://www.daogukj.com/pqasrvfj/)
+- [湖南衡阳一公职人员停车受阻，暴力踹坏他人车位上的地锁，多方回应将调解与调查，此事反映出哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/6953634.htm)
+- [【TF家族练习生】《异常加载中》 MV](http://www.play.hengshemaoyi.cn/xiju/4182468.htm)
+- [五十年后，数学家和物理学家会否是最后一群还坚持使用黑板进行教学和学术讨论的人？](http://www.daogukj.com/1017431)
+- [我发现了一个诡异的论坛....](http://www.movie.hkepx.cn/xiju/1919727.htm)
+- [深化扫黑除恶 中央政法委发声](http://www.play.hengshemaoyi.cn/kongbu/2389385.htm)
+- [A股“追光者”一月亏光336万](http://www.daogukj.com/eczaycvr/)
+- [【TF家族练习生】《突围II破局》EP06：我们把彼此留下来（上）](http://www.daogukj.com/yesbcxgy/)
+- [恶搞余承东视频被华为投诉下架](http://www.play.hengshemaoyi.cn/kongbu/2268821.htm)
+- [歼20实弹发射罕见曝光](http://www.daogukj.com/1514619)
+- [利润最高涨700倍 半导体产业全线爆发](http://www.daogukj.com/7229320)
+- [韩国股市 38 天跌掉韩国一年 GDP，韩股「去杠杆」结束了吗？这场杠杆风暴给全球散户带来哪些警示？](http://www.daogukj.com/9862646)
+- [当你假装单词考过了...](http://www.play.hengshemaoyi.cn/xiju/2879856.htm)
+- [林青霞现身施南生追思会](http://www.movie.hkepx.cn/xiju/0680178.htm)
+- [男演员因穷意外翻红后跪地磕头致谢](http://www.play.hengshemaoyi.cn/xiju/0371775.htm)
+- [新一代通信网建设加快](http://www.play.hengshemaoyi.cn/xiju/1127717.htm)
+- [瑞幸员工对嘴喷奶油](http://www.daogukj.com/xtnnkhps/)
+- [【独家】《记忆管理局》第1集 在世界末日前回到过去吧【8月国创】](http://www.play.hengshemaoyi.cn/kongbu/7644899.htm)
+- [天才女友 AI片头](http://www.play.hengshemaoyi.cn/xiju/5097167.htm)
+- [南通队换帅破局拿下“关键战”](http://www.movie.hkepx.cn/xiju/7245859.htm)
+- [四大行5年期大额存单集体回归](http://www.movie.hkepx.cn/xiju/0748643.htm)
+- [情侣是一种很诡异的亲密关系](http://www.daogukj.com/7402023)
+- [如何评价哈工大自2026级开始取消统考研究生学业奖学金？](http://www.play.hengshemaoyi.cn/kongbu/5443100.htm)
+- [李小璐回应“一手好牌打得稀巴烂”](http://www.daogukj.com/aftpkacm/)
+- [这五家经开区被退出“国家队”](http://www.movie.hkepx.cn/movie/2312956.htm)
+- [如何评价凡人修仙传185集在线人数创新低？](http://www.play.hengshemaoyi.cn/kongbu/4823974.htm)
+- [王虹一句寄语戳中了不少人的内心](http://www.daogukj.com/zoxyezyv/)
+- [女孩截图假付款](http://www.daogukj.com/2322655)
+- [老广「看不惯」的点都德每到暑假又火了，为什么本地和游客评价差异大？](http://www.movie.hkepx.cn/movie/3668600.htm)
+- [男演员因“穷”翻红 跪地磕头致谢](http://www.daogukj.com/6111077)
+- [我们拍到了水下风暴](http://www.movie.hkepx.cn/xiju/1768070.htm)
+- [明星 哭穷](http://www.movie.hkepx.cn/xiju/4446306.htm)
+- [陈小春称不敢退休](http://www.movie.hkepx.cn/movie/3688649.htm)
+- [因两年卖 340 台保时捷走红的女销冠遭造谣网暴，目前她已向法院立案，她维权的难点有哪些？](http://www.play.hengshemaoyi.cn/kongbu/4226971.htm)
+- [刘耀文的手被P没了](http://www.daogukj.com/8802551)
+- [华强北商户确认显卡全面封仓，价格大涨约 30%，封仓可能持续多久？价格还会上涨吗？](http://www.play.hengshemaoyi.cn/xiju/6879576.htm)
+- [2026暑期档票房突破70亿](http://www.movie.hkepx.cn/movie/3363630.htm)
+- [最高检、公安部联合发布涉已满 12 周岁未满 14 周岁未成年人严重暴力犯罪的新规，哪些信息值得关注？](http://www.daogukj.com/gflssozy/)
+- [集中供冷真的来了](http://www.daogukj.com/qvclnbfi/)
+- ["大狗？？老吴！！"](http://www.movie.hkepx.cn/movie/5025610.htm)
+- [婚外胚胎案当事人女儿刚考上一本](http://www.movie.hkepx.cn/movie/4923761.htm)
+- [天总曝一线明星一部戏收入仅一百多万](http://www.play.hengshemaoyi.cn/xiju/3290638.htm)
+- [瑞幸回应门店员工被曝用奶油枪喂食](http://www.play.hengshemaoyi.cn/kongbu/3540195.htm)
+- [正宗大盘鸡到底有没有土豆？？【主播说三农】](http://www.daogukj.com/heymhest/)
+- [甘肃渭源山洪已致25死23伤](http://www.daogukj.com/4552622)
+- [为什么董宇辉能坚持看500多遍《大话西游》？真有人能同一部电影看 500 遍吗？](http://www.play.hengshemaoyi.cn/kongbu/2437413.htm)
+- [究竟怎样的终点，才配得上这一路的颠沛流离](http://www.daogukj.com/1018065)
+- [关于鼠鼠怎么活到现在](http://www.movie.hkepx.cn/xiju/1684044.htm)
+- [乌合之众：一个流传百年的心理学谎言](http://www.movie.hkepx.cn/xiju/3549037.htm)
 
 </details>
 
 ## 原始来源
 
-- [全家频繁生病 揭开墙布全屋发霉](https://www.baidu.com/s?wd=%E5%85%A8%E5%AE%B6%E9%A2%91%E7%B9%81%E7%94%9F%E7%97%85+%E6%8F%AD%E5%BC%80%E5%A2%99%E5%B8%83%E5%85%A8%E5%B1%8B%E5%8F%91%E9%9C%89&sa=fyb_news&rsv_dl=fyb_news)
+- [【命运-冠位指定×上美影】简中版十周年专属PV——行迹](https://b23.tv/BV1xAK865ESF)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7d7dbb77a631a99e4214 -->
+<!-- content-fingerprint: c10e1cf31b42092acdce -->

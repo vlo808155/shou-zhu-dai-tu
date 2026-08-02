@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 赞达亚戴3000年历史耳环被批
+# 莫斯科市中心爆炸已致3死21伤
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7425221 · 更新：2026-08-02T07:42:27+08:00
+> 来源：百度热搜 · 排名：第 4 位 · 热度：7427867 · 更新：2026-08-02T15:53:11+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“赞达亚戴3000年历史耳环被批”位列第 4 位，公开热度指标为 7425221。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“莫斯科市中心爆炸已致3死21伤”位列第 4 位，公开热度指标为 7427867。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，外国电影《奥德赛》演员赞达亚在宣传活动上佩戴的一副耳环，意外引起了考古学界的关注。考古界有不少声音批评，如此珍贵且具有文化意义的古波斯文物，如今却被好莱坞明星拿来公开佩戴，参加商业大片的宣传活动，实乃针对伊朗历史与文化的“劫持”。
+来源公开摘要显示：当地时间8月1日，据俄罗斯国家反恐委员会消息，莫斯科市中心一家餐厅当天发生爆炸，截至目前事故已造成3人死亡、21人受伤。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [曾舜晞说孟子义拍戏动过真感情](wang-mei-zhi-ke.md)
-- [越来越多中国人不去日本旅游](wen-ji-qi-wu.md)
-- [贫困生是否一定要过极度简朴的生活，才配得上助学金？](wo-xin-chang-dan.md)
-- [第5集丨“零号大坝开满了鲜花？”](po-fu-chen-zhou.md)
+- [情侣是一种很诡异的亲密关系](wang-mei-zhi-ke.md)
+- [深化扫黑除恶 中央政法委发声](wen-ji-qi-wu.md)
+- [五十年后，数学家和物理学家会否是最后一群还坚持使用黑板进行教学和学术讨论的人？](wo-xin-chang-dan.md)
+- [关于鼠鼠怎么活到现在](po-fu-chen-zhou.md)
 
 ## 站内推荐
 
-- [这四个字读懂上半年中国经济](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [公职人员停车受阻暴力损坏地锁](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [房价还能重新上涨吗](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [只有真母单才懂这段吐槽有多真实](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [边检劝返瞒着父母出国的高考毕业生](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [中国AI大模型的优势在哪里](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [“黑色黄金”价格打下来了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [明星 哭穷](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [刘耀文的手被P没了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [登山公司称10人探险队全部遇难](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [直-20J亮剑黄岩岛](http://www.daogukj.com/srmtipfy/)
-- [个贷新规8月1日起实施，银行个贷综合融资成本上限公布，所有息费统一折算年化，对普通人借钱意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
-- [莫斯科一餐饮店发生爆炸造成人员伤亡](http://www.daogukj.com/5764219)
-- [赵露思演唱会服装丢失 公司：已报案](http://www.daogukj.com/5051205)
-- [【命运-冠位指定×上美影】简中版十周年专属PV——行迹](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
-- [《原神》至冬交响音乐现场](http://www.movie.hkepx.cn/movie/3745200.htm)
-- [发现赚钱方式对人影响很大](http://www.daogukj.com/eptgayul/)
-- [对 抗 路 迎 来 大 变20.0](http://www.daogukj.com/zzzmzdnw/)
-- [出生时被抱错两女子错换37年人生](http://www.daogukj.com/2895651)
-- [「白海豚」爆发式增强，已成超强台风，中心最大风力17级，或直奔华东，最新动向如何？应做好哪些应对？](http://www.daogukj.com/bmrafxkl/)
-- [海警在黄岩岛模拟拖离侵权船只](http://www.movie.hkepx.cn/movie/6678209.htm)
-- [刚才发错了](http://www.daogukj.com/2230415)
-- [王一博曾是YG第一](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
-- [一部老片为何17年后在中国卖了5000万](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
-- [如何评价董润年导演，张若昀、白客主演的喜剧电影《年会不能停！2》？](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
-- [杭州足管获“2034杯”亚军](http://www.movie.hkepx.cn/xiju/6217864.htm)
-- [女子快递站恶意扔别人包裹还骂人](http://www.movie.hkepx.cn/movie/4778790.htm)
-- [如何看待董宇辉称自己看过至少500遍《大话西游》，看500遍《大话西游》是什么概念？](http://www.movie.hkepx.cn/movie/7470449.htm)
-- [如何评价凡人修仙传185集在线人数创新低？](http://www.movie.hkepx.cn/movie/6111499.htm)
-- [越来越多中国人不去日本旅游](http://www.movie.hkepx.cn/xiju/2348853.htm)
-- [一喝水就尿多说明肾脏不好吗](http://www.daogukj.com/fygnbifa/)
-- [直观感受到什么是家道中落](http://www.daogukj.com/9070712)
-- [万人涌入西班牙飞地为何吓坏欧盟](http://www.daogukj.com/hoflukum/)
-- [只有真母单才懂这段吐槽有多真实](http://www.daogukj.com/3336484)
-- [为什么DeepSeek-V4-Flash-0731的后训练如此有效？](http://www.movie.hkepx.cn/movie/3675931.htm)
-- [肖战怎么瘦了这么多](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
-- [边检劝返瞒着父母出国的高考毕业生](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
-- [如何看待在柯洁夺冠后，围棋主播张学斌称「柯洁夺冠对职业围棋未必是好事」？](http://www.daogukj.com/xljzrgjc/)
-- [偷偷开通女友亲密付…假大方花一万让她当富婆！看到余额她直接破防！](http://www.daogukj.com/sfjdsknb/)
-- [郑钦文无缘多伦多站正赛](http://www.movie.hkepx.cn/xiju/0712256.htm)
-- [少年捐日军侵华罪证遭「销户」威胁，警方已立案并启动保护，这些发布死亡威胁的人该承担怎样的法律责任？](http://www.daogukj.com/blhofduy/)
-- [存储芯片利好来了](http://www.daogukj.com/qdmxuvra/)
-- [房价还能重新上涨吗](http://www.daogukj.com/3062862)
-- [餐馆211暑假工变家教把孩子上崩溃](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
-- [赵心童止步上海大师赛四强](http://www.daogukj.com/4819328)
-- [“洪灾后广西道路现持枪男子”不实](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
-- [找对象的尽头是初高中同学](http://www.movie.hkepx.cn/xiju/6449274.htm)
-- [【warma】我为1000亿奖金挑战天才作者谜题！](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
-- [超5万非法移民闯西班牙后4.8万人返程](http://www.movie.hkepx.cn/xiju/8624591.htm)
-- [全家频繁生病 揭开墙布全屋发霉](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
-- [个贷新规](http://www.daogukj.com/2518516)
-- [专家提醒奥司他韦对新冠无效](http://www.movie.hkepx.cn/movie/2625646.htm)
-- [贫困生是否一定要过极度简朴的生活，才配得上助学金？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
-- [男子明知女方是军嫂仍同居 获刑两年](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
-- [小伙辞职贷款百万开制冰厂月赚30万](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
-- [😊什么样的结局才配得上这一路的颠沛流离……【一口气看完】](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
-- [【合唱】千本樱（100000人） 【B萌应援】](http://www.movie.hkepx.cn/xiju/9162988.htm)
-- [最高检、公安部联合发布涉已满 12 周岁未满 14 周岁未成年人严重暴力犯罪的新规，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
-- [BLG 豪取五连胜，Bin 回归面临挑战，这对他职业生涯有何影响？](http://www.daogukj.com/xfhybzga/)
-- [女儿说房主任愧疚式教育](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
+- [歼-20王牌旅长为何说耻辱牌永不摘下](http://www.daogukj.com/srmtipfy/)
+- [特朗普家族资本欲染指世界杯遭抵制](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
+- [天才女友 AI片头](http://www.daogukj.com/5764219)
+- [机械美学的开山之作《变形金刚》，多年过去依旧是无法超越的开篇](http://www.daogukj.com/5051205)
+- [【独家】《记忆管理局》第1集 在世界末日前回到过去吧【8月国创】](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
+- [老乡鸡五年五次冲击上市失败，其上市之路为何如此艰难？](http://www.movie.hkepx.cn/movie/3745200.htm)
+- [王虹一句寄语戳中了不少人的内心](http://www.daogukj.com/eptgayul/)
+- [老广「看不惯」的点都德每到暑假又火了，为什么本地和游客评价差异大？](http://www.daogukj.com/zzzmzdnw/)
+- [甘肃渭源山洪已致25死23伤](http://www.daogukj.com/2895651)
+- [A股“追光者”一月亏光336万](http://www.daogukj.com/bmrafxkl/)
+- [歼20实弹发射罕见曝光](http://www.movie.hkepx.cn/movie/6678209.htm)
+- [第5集丨“零号大坝开满了鲜花？”](http://www.daogukj.com/2230415)
+- [省长到镇政府突击检查](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
+- ["大狗？？老吴！！"](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
+- [7月零跑交付超 10 万台，小鹏交付 3.8 万台，理想、小米、极氪超 3 万台，如何评价各家表现？](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
+- [正宗大盘鸡到底有没有土豆？？【主播说三农】](http://www.movie.hkepx.cn/xiju/6217864.htm)
+- [仅凭假结婚证试管不足构成重婚](http://www.movie.hkepx.cn/movie/4778790.htm)
+- [南通队换帅破局拿下“关键战”](http://www.movie.hkepx.cn/movie/7470449.htm)
+- [最高检、公安部联合发布涉已满 12 周岁未满 14 周岁未成年人严重暴力犯罪的新规，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/6111499.htm)
+- [深化扫黑除恶 中央政法委发声](http://www.movie.hkepx.cn/xiju/2348853.htm)
+- [男演员因穷意外翻红后跪地磕头致谢](http://www.daogukj.com/fygnbifa/)
+- [集中供冷真的来了](http://www.daogukj.com/9070712)
+- [四大行5年期大额存单集体回归](http://www.daogukj.com/hoflukum/)
+- [刘耀文的手被P没了](http://www.daogukj.com/3336484)
+- [因两年卖 340 台保时捷走红的女销冠遭造谣网暴，目前她已向法院立案，她维权的难点有哪些？](http://www.movie.hkepx.cn/movie/3675931.htm)
+- [日本地震灾区呼吁不要再送千纸鹤](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
+- [登山公司称10人探险队全部遇难](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
+- [韩国股市 38 天跌掉韩国一年 GDP，韩股「去杠杆」结束了吗？这场杠杆风暴给全球散户带来哪些警示？](http://www.daogukj.com/xljzrgjc/)
+- [如何评价凡人修仙传185集在线人数创新低？](http://www.daogukj.com/sfjdsknb/)
+- [女孩截图假付款](http://www.movie.hkepx.cn/xiju/0712256.htm)
+- [张国伟说自己肯定是天才](http://www.daogukj.com/blhofduy/)
+- [代入房主任女儿视角真的好崩溃](http://www.daogukj.com/qdmxuvra/)
+- [明星 哭穷](http://www.daogukj.com/3062862)
+- [李小璐回应“一手好牌打得稀巴烂”](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
+- [家属未做尸检火化遗体 保险公司拒赔](http://www.daogukj.com/4819328)
+- [网传成都三岔湖水干了 当地辟谣](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
+- [提醒！请在未成年人的陪同下观看本文](http://www.movie.hkepx.cn/xiju/6449274.htm)
+- [乌合之众：一个流传百年的心理学谎言](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
+- [利润最高涨700倍 半导体产业全线爆发](http://www.movie.hkepx.cn/xiju/8624591.htm)
+- [【命运-冠位指定×上美影】简中版十周年专属PV——行迹](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
+- [突然发现摆烂才是最强的谈判技巧](http://www.daogukj.com/2518516)
+- [直-20J亮剑黄岩岛](http://www.movie.hkepx.cn/movie/2625646.htm)
+- [五十年后，数学家和物理学家会否是最后一群还坚持使用黑板进行教学和学术讨论的人？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
+- [男演员因“穷”翻红 跪地磕头致谢](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
+- [宋威龙新头像](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
+- [【独家】牧神记 第94集 厉天行与皇帝](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
+- [如何评价哈工大自2026级开始取消统考研究生学业奖学金？](http://www.movie.hkepx.cn/xiju/9162988.htm)
+- [华强北商户确认显卡全面封仓，价格大涨约 30%，封仓可能持续多久？价格还会上涨吗？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
+- [卫健委回应原配申请销毁婚外胚胎，称无相应职责销毁，且尚无证据表明医院存在违法违规行为，如何看待此事？](http://www.daogukj.com/xfhybzga/)
+- [北京的雨已下到模糊](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
 
 </details>
 
 ## 原始来源
 
-- [赞达亚戴3000年历史耳环被批](https://www.baidu.com/s?wd=%E8%B5%9E%E8%BE%BE%E4%BA%9A%E6%88%B43000%E5%B9%B4%E5%8E%86%E5%8F%B2%E8%80%B3%E7%8E%AF%E8%A2%AB%E6%89%B9&sa=fyb_news&rsv_dl=fyb_news)
+- [莫斯科市中心爆炸已致3死21伤](https://www.baidu.com/s?wd=%E8%8E%AB%E6%96%AF%E7%A7%91%E5%B8%82%E4%B8%AD%E5%BF%83%E7%88%86%E7%82%B8%E5%B7%B2%E8%87%B43%E6%AD%BB21%E4%BC%A4&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ec9f63b112673095fca6 -->
+<!-- content-fingerprint: 0bcbc438743be3bd740e -->
