@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 李在明：韩国进入国家灾难状态
+# 大领导来视察，直属领导把我的功劳说成自己的，我该当场补充还是闭嘴？
 
-> 来源：今日头条热榜 · 排名：第 7 位 · 热度：4251867 · 更新：2026-08-05T14:14:12+08:00
+> 来源：知乎热榜 · 排名：第 7 位 · 热度：158 万热度 · 分类：问答 · 更新：2026-08-05T20:28:19+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“李在明：韩国进入国家灾难状态”位列第 7 位，公开热度指标为 4251867。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“大领导来视察，直属领导把我的功劳说成自己的，我该当场补充还是闭嘴？”位列第 7 位，公开热度指标为 158 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：咱干活还算认真，领导交代的事基本都能按时完成。跟直属领导关系不冷不热，没有特别近，但也没什么矛盾。 上周发生了一件事，让我特别纠结。 事情的经过是这样的： 大领导来我们部门视察，问到一个项目的情况。这个项目是我牵头做的，前前后后忙了两个月，数据、方案、执行全是跟下来的。直属领导在汇报的时候，大领导问“这个方案是谁想的”，他接话说：“这个是我带着团队一起梳理的，整体方向我们讨论过很多轮。” 他说的“团队”，其实就是我。但他在大领导面前没有提我的名字。我当时站在旁边，想开口补充一句“这个项目是我在负责”，但话到嘴边又咽回去了。 我怕自己一开口，显得在抢直属领
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [如果把新概念英语四册书全部背熟并吃透，那可以无障碍与英语母语者交流吗？](feng-sheng-he-li.md)
-- [【非遗】AE特效——战斗鸡](ru-huo-ru-tu.md)
-- [男子健身2年从90斤涨到120斤](yi-gu-zuo-qi.md)
-- [韩媒称「韩国赌场应把中国游客当作博彩业主要客源」，中使馆批驳，中国公民在境外参与赌博有哪些风险？](yi-zi-qian-jin.md)
+- [赢出定义，我即定义｜烽火职业联赛夏季赛宣传片](feng-sheng-he-li.md)
+- [给南京大屠杀改名？30万亡灵不答应](ru-huo-ru-tu.md)
+- [AI做的动物尺度太大了](yi-gu-zuo-qi.md)
+- [女孩摆摊卖菌子时收到北大录取通知书](yi-zi-qian-jin.md)
 
 ## 站内推荐
 
-- [“白海豚”体型堪比东三省](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [女生预约参观北大没成功后考上北大](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [8月份返校的高三生](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [发现了一种很新的老人](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [中国人能飞](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [广东一事业单位笔试第一考生被第二名花钱劝弃考，教育局已开展核查，反映了哪些教育管理问题？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [怎么看待 82 岁老人为公益骑行横穿澳大利亚，抵达终点后次日安详去世？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [如何评价微信的翻译功能？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [内存什么时候能迎来降价？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [什么东西大学应该学习却没有人教？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [男子健身2年从90斤涨到120斤](http://www.play.hengshemaoyi.cn/kongbu/8543260.htm)
-- [为啥卸载软件要叫「残忍卸载」，付一百是「小额支付」，领一毛红包却是「大额补贴」？这是什么文字套路？](http://www.movie.hkepx.cn/movie/4724518.htm)
-- [从电影《奥德赛》的成绩来看，荷马史诗是有市场的，为什么当年的《特洛伊》票房不达预期？](http://www.play.hengshemaoyi.cn/kongbu/0028042.htm)
-- [男子长红斑掉皮屑5年查出皮肤癌](http://www.play.hengshemaoyi.cn/xiju/3193472.htm)
-- [瘦了后感受到了朋友微妙的恶意](http://www.movie.hkepx.cn/xiju/5695874.htm)
-- [发现了一种很新的老人](http://www.play.hengshemaoyi.cn/kongbu/9716007.htm)
-- [你家楼下的兰州拉面要改名字了](http://www.play.hengshemaoyi.cn/kongbu/6976710.htm)
-- [十年之后，再筑新馆](http://www.daogukj.com/6389351)
-- [《雾海之下》首曝PV｜贪吃无罪，撤离万岁！](http://www.movie.hkepx.cn/xiju/4891708.htm)
-- [为什么领导很少请假](http://www.movie.hkepx.cn/xiju/9183020.htm)
-- [全国新冠感染人数仍将持续增加，核酸检测阳性率突破 20.3%，后续走势如何？该如何防护？](http://www.daogukj.com/mgeudand/)
-- [传销头目出狱后开办书院 家长被洗脑](http://www.daogukj.com/thgbmsar/)
-- [选了冷门专业后发现工作也很香](http://www.movie.hkepx.cn/movie/7141685.htm)
-- [“至此，神性已成！！！”](http://www.movie.hkepx.cn/movie/8285250.htm)
-- [孙俪晒女儿化的妆](http://www.play.hengshemaoyi.cn/kongbu/8845063.htm)
-- [《凡人修仙传》动画被很多人不满，它会就此走向下坡路吗？](http://www.play.hengshemaoyi.cn/xiju/1186264.htm)
-- [韩国宣布国家灾难状态](http://www.movie.hkepx.cn/xiju/0249486.htm)
-- [“白海豚”体型堪比东三省](http://www.daogukj.com/7987932)
-- [居然有HR分不清本科和前科](http://www.play.hengshemaoyi.cn/xiju/9727864.htm)
-- [外媒称美国拟禁止进口中国新型号的光收发模块，此举将对中美科技竞争及全球数据产业带来哪些影响？](http://www.daogukj.com/1491749)
-- [如何看待奇瑞集团成为中国首个单月出口突破 20 万辆的车企？它的全球化布局有哪些可复制的经验？](http://www.play.hengshemaoyi.cn/xiju/5312952.htm)
-- [完蛋！我被男同学包围了](http://www.movie.hkepx.cn/movie/1704748.htm)
-- [美国启动史上最大规模撤籍行动](http://www.movie.hkepx.cn/movie/6434749.htm)
-- [河南：领导干部要带头休假](http://www.movie.hkepx.cn/xiju/3903629.htm)
-- [中国首批高快速迎到期免费潮](http://www.play.hengshemaoyi.cn/kongbu/1169569.htm)
-- [如果把新概念英语四册书全部背熟并吃透，那可以无障碍与英语母语者交流吗？](http://www.movie.hkepx.cn/movie/4527568.htm)
-- [TF五代首次公式照](http://www.play.hengshemaoyi.cn/xiju/6189163.htm)
-- [3.23亿老人成各地政府的香饽饽了吗](http://www.daogukj.com/0521779)
-- [22名中国乘客遭拒载 泰国机场致歉](http://www.daogukj.com/5716979)
-- [你说偷吃零食被发现会死是吗？](http://www.movie.hkepx.cn/movie/6813612.htm)
-- [物业费4次涨价 九成业主赞成](http://www.play.hengshemaoyi.cn/kongbu/0013525.htm)
-- [有些善意当时没有声音，但总有一天，你会听到它的回响。](http://www.daogukj.com/sijbwiiz/)
-- [8月重点关注这些极端天气](http://www.movie.hkepx.cn/xiju/5793926.htm)
-- [如何看待国家这一次的扫黑除恶专项行动？](http://www.movie.hkepx.cn/movie/5566595.htm)
-- [梁文峰会不会成为中国AI里程碑人物？](http://www.movie.hkepx.cn/movie/7078471.htm)
-- [《哪吒》之后为何又是《八仙！》](http://www.play.hengshemaoyi.cn/kongbu/3140322.htm)
-- [《最讨厌复联の一集》](http://www.play.hengshemaoyi.cn/kongbu/9870126.htm)
-- [女子在少林寺一比一还原武术动作](http://www.movie.hkepx.cn/movie/3347353.htm)
-- [为什么大多数年轻人都很迷茫？](http://www.play.hengshemaoyi.cn/xiju/4013867.htm)
-- [顾客结账把钱扔地上服务员找零扔回，老板：双方没任何交流，服务员是我儿子，他没做错](http://www.daogukj.com/neoiosto/)
-- [创新药凭什么成中国新名片](http://www.daogukj.com/2254144)
-- [游客睡自己车里被酒店收150元住宿费](http://www.play.hengshemaoyi.cn/xiju/2382409.htm)
-- [京东外卖推出 AI 头盔，能语音接单、规划路线、解析备注，对骑手安全和效率有提升吗？会成为外卖标配吗？](http://www.daogukj.com/9886230)
-- [【非遗】AE特效——战斗鸡](http://www.play.hengshemaoyi.cn/kongbu/5207966.htm)
-- [鸿蒙智行回应“竹知了”争议](http://www.movie.hkepx.cn/movie/7743518.htm)
-- [这是哑巴还是啥子？「谁是伪人？！」](http://www.daogukj.com/dzqtqzgj/)
-- [5层楼高SpaceX火箭残骸今天撞月球](http://www.play.hengshemaoyi.cn/kongbu/2288019.htm)
-- [马斯克回应一个月亏掉2.45万亿元](http://www.play.hengshemaoyi.cn/xiju/9678725.htm)
-- [二手车迎来补贴扶持](http://www.play.hengshemaoyi.cn/kongbu/9902985.htm)
-- [张凌赫让章若楠金靖别扯衣服](http://www.play.hengshemaoyi.cn/kongbu/8033858.htm)
+- [AI做的动物尺度太大了](http://www.play.hengshemaoyi.cn/kongbu/8543260.htm)
+- [【独家】有兽焉 第六季 第1集 寻母之路【总第61集】](http://www.movie.hkepx.cn/movie/4724518.htm)
+- [山体滑坡前村里9户19人全部转移](http://www.play.hengshemaoyi.cn/kongbu/0028042.htm)
+- [一朝悟道见真我，何惧昔日旧加锁](http://www.play.hengshemaoyi.cn/xiju/3193472.htm)
+- [特朗普所乘直升机遭遇飞行安全事件](http://www.movie.hkepx.cn/xiju/5695874.htm)
+- [内存什么时候能迎来降价？](http://www.play.hengshemaoyi.cn/kongbu/9716007.htm)
+- [时代少年团演唱会节目单](http://www.play.hengshemaoyi.cn/kongbu/6976710.htm)
+- [嘲讽周星驰无儿女没朋友 李修贤道歉](http://www.daogukj.com/6389351)
+- [河南试行周五半天+周末+年假模式](http://www.movie.hkepx.cn/xiju/4891708.htm)
+- [长鑫拒绝苹果压价](http://www.movie.hkepx.cn/xiju/9183020.htm)
+- [我们从网上买来了一些泡面尝了尝…](http://www.daogukj.com/mgeudand/)
+- [瓜子水饺究竟威胁了美国什么](http://www.daogukj.com/thgbmsar/)
+- [日本《防卫白皮书》将中国列为「最大战略挑战」，中方已向日方严正交涉，日本此举会对东亚局势有哪些影响？](http://www.movie.hkepx.cn/movie/7141685.htm)
+- [怪不得淋雨后要洗澡换衣服](http://www.movie.hkepx.cn/movie/8285250.htm)
+- [如何看待郭帆表示《流浪地球3》不会走《流浪地球1》的半爆米花风格?](http://www.play.hengshemaoyi.cn/kongbu/8845063.htm)
+- [一姐姐在肯德基干了30年](http://www.play.hengshemaoyi.cn/xiju/1186264.htm)
+- [苹果要求长鑫降价反遭涨价](http://www.movie.hkepx.cn/xiju/0249486.htm)
+- [广东一事业单位笔试第一考生被第二名花钱劝弃考，教育局已开展核查，反映了哪些教育管理问题？](http://www.daogukj.com/7987932)
+- [假结婚证做出真胚胎 法律为何管不了](http://www.play.hengshemaoyi.cn/xiju/9727864.htm)
+- [当我被外星人取代](http://www.daogukj.com/1491749)
+- [未成年人“偷开”汽车致2死3伤](http://www.play.hengshemaoyi.cn/xiju/5312952.htm)
+- [央视曝光午夜色情直播间乱象](http://www.movie.hkepx.cn/movie/1704748.htm)
+- [为什么说华为旗舰技术看尊界？如何看待尊界 V800 首发多项「华为黑科技」？](http://www.movie.hkepx.cn/movie/6434749.htm)
+- [这一秒过火全员be](http://www.movie.hkepx.cn/xiju/3903629.htm)
+- [SpaceX火箭残骸撞上月球了](http://www.play.hengshemaoyi.cn/kongbu/1169569.htm)
+- [赢出定义，我即定义｜烽火职业联赛夏季赛宣传片](http://www.movie.hkepx.cn/movie/4527568.htm)
+- [为什么健身房有很多会员宁愿自己练了很久没变化也不请教练？](http://www.play.hengshemaoyi.cn/xiju/6189163.htm)
+- [王俊凯 南京](http://www.daogukj.com/0521779)
+- [为什么必须有残疾证才能证明是残疾人？](http://www.daogukj.com/5716979)
+- [中国“预制房”是怎样爆单的](http://www.movie.hkepx.cn/movie/6813612.htm)
+- [丈夫称已销毁胚胎妻子不知情](http://www.play.hengshemaoyi.cn/kongbu/0013525.htm)
+- [演唱会音乐总监回应周杰伦私生子传闻](http://www.daogukj.com/sijbwiiz/)
+- [余承东称手机将大规模涨价](http://www.movie.hkepx.cn/xiju/5793926.htm)
+- [柯洁VS党毅飞（不可能的逆转）](http://www.movie.hkepx.cn/movie/5566595.htm)
+- [周杰伦晒打网球图 配文：照打](http://www.movie.hkepx.cn/movie/7078471.htm)
+- [甜瓜竟是“隐形护心果”](http://www.play.hengshemaoyi.cn/kongbu/3140322.htm)
+- [回到家饭菜已上桌 掌勺的是放假的娃](http://www.play.hengshemaoyi.cn/kongbu/9870126.htm)
+- [你常吃的兰州拉面要改名了](http://www.movie.hkepx.cn/movie/3347353.htm)
+- [华为发布新款折叠电脑售价24999元起](http://www.play.hengshemaoyi.cn/xiju/4013867.htm)
+- [刘耀文拍了正太扭腰](http://www.daogukj.com/neoiosto/)
+- [火遍全球的Chinamaxxing是什么](http://www.daogukj.com/2254144)
+- [为啥卸载软件要叫「残忍卸载」，付一百是「小额支付」，领一毛红包却是「大额补贴」？这是什么文字套路？](http://www.play.hengshemaoyi.cn/xiju/2382409.htm)
+- [你说偷吃零食被发现会死是吗？](http://www.daogukj.com/9886230)
+- [给南京大屠杀改名？30万亡灵不答应](http://www.play.hengshemaoyi.cn/kongbu/5207966.htm)
+- [曼玉火山主题SPA日](http://www.movie.hkepx.cn/movie/7743518.htm)
+- [迪丽热巴直播](http://www.daogukj.com/dzqtqzgj/)
+- [客车行车途中被淹 乘客爬车顶自救](http://www.play.hengshemaoyi.cn/kongbu/2288019.htm)
+- [SUV腾空后挂树上 起飞瞬间被拍下](http://www.play.hengshemaoyi.cn/xiju/9678725.htm)
+- [男子承包山林无证伐木2公顷获刑3年](http://www.play.hengshemaoyi.cn/kongbu/9902985.htm)
+- [反制美国！中方公布5项措施](http://www.play.hengshemaoyi.cn/kongbu/8033858.htm)
 
 </details>
 
 ## 原始来源
 
-- [李在明：韩国进入国家灾难状态](https://www.toutiao.com/trending/7669975409655808036/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%220%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227669975409655808036%22%2C%22hot_board_impr_id%22%3A%22202608051414119A17C5A9F67C75222A97%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [大领导来视察，直属领导把我的功劳说成自己的，我该当场补充还是闭嘴？](https://www.zhihu.com/question/2065724478156547318)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0622a7177e71220eb12a -->
+<!-- content-fingerprint: 743030ea43f1d9739164 -->
