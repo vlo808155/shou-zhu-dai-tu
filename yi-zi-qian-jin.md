@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 泸溪河发布「桃酥出现金属牙冠」调查结论，排除生产带入可能性，消费者已澄清视频情况不属实，如何看待此事？
+# 今日立秋你咬秋了吗
 
-> 来源：知乎热榜 · 排名：第 8 位 · 热度：198 万热度 · 分类：问答 · 更新：2026-08-07T14:01:02+08:00
+> 来源：今日头条热榜 · 排名：第 8 位 · 热度：7009818 · 分类：新事件上榜 · 更新：2026-08-07T17:38:59+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“泸溪河发布「桃酥出现金属牙冠」调查结论，排除生产带入可能性，消费者已澄清视频情况不属实，如何看待此事？”位列第 8 位，公开热度指标为 198 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“今日立秋你咬秋了吗”位列第 8 位，公开热度指标为 7009818，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月7日，泸溪河官方发布关于网传“泸溪河桃酥出现金属牙冠”事件调查结论的声明。 声明表示，经自查，排除金属牙冠异物混入坚果桃酥产品的可能性。政府监管部门对工厂进行检查，未发现金属牙冠异物混入坚果桃酥产品的可能。第三方权威检测机构SGS对工厂进行全面审核，可以排除金属牙冠异物在生产过程中带入的可能性。消费者张女士已澄清，所发视频情况不属实，已主动删除相关视频并致歉。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
 
 ## 相关热点
 
-- [高中尊者？本科圣人？小明修仙传25分钟优化纯享版【AI全民制作人】](yi-fan-feng-shun.md)
-- [泰国校园枪击案死亡人数升至7人](yi-ming-jing-ren.md)
-- [百花奖](yi-jian-shuang-diao.md)
-- [情绪冷漠症](shou-zhu-dai-tu.md)
+- [公司实行「上四休三」，但要降薪 1000 元，员工不接受只能辞职，这样合理吗？换做是你会如何选择？](yi-fan-feng-shun.md)
+- [听说洛克王国的精灵原型很难猜？](yi-ming-jing-ren.md)
+- [公司“上四休三”但要降薪1000元](yi-jian-shuang-diao.md)
+- [商家称1小时被20条差评后门店倒闭](shou-zhu-dai-tu.md)
 
 ## 站内推荐
 
-- [9岁120斤啦啦队女孩跳舞火出圈](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
-- [孩子准备上大一了，一个月跟我要1500的生活费，会不会太多了？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
-- [多家手机品牌回应将大规模涨价，OPPO、荣耀、小米等部分机型已上调价格，如何看待此次手机涨价潮？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
-- [5个天才高中生做的高中生活游戏](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
-- [《原神》奥黛塔角色PV——「柔雪的幻象」](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
+- [河南三支一扶考试存规模性组织作弊](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [虞书欣工作室晒小兰花未公开照](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [从731部队交易到海外实验室网络](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [网红峰哥8月份三天“回血”46万](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [立秋三问](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [男子赴曼谷收“生意回款”失联58天](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
-- [《原神》奥黛塔角色PV——「柔雪的幻象」](http://www.daogukj.com/cmyxzqtz/)
-- [5个天才高中生做的高中生活游戏](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
-- [周生辰西安又下时宜了](http://www.movie.hkepx.cn/movie/2501356.htm)
-- [BLACKPINK全员确认出席十周年](http://www.daogukj.com/ojwknvji/)
-- [《蜘蛛侠：崭新之日》大爆，前三部导演乔恩·瓦茨遭网暴「永远别再执导蜘蛛侠了」，客观来说前三部质量如何？](http://www.daogukj.com/2178083)
-- [台风白海豚云系庞大面积堪比东三省](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
-- [第三集 |🐧赛伊德：“雷斯也变成女孩了？！”🐧](http://www.play.hengshemaoyi.cn/xiju/1338838.htm)
-- [狗子坐在酒馆台上突然“跟唱”](http://www.daogukj.com/1763072)
-- [男子杀人后逃进深山21年活得像野人](http://www.daogukj.com/8155971)
-- [情绪冷漠症](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
-- [为何年轻人不愿学医了](http://www.daogukj.com/6164330)
-- [空调效果可视化了](http://www.movie.hkepx.cn/movie/1564233.htm)
-- [今日立秋](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
-- [越来越多高分考生放弃985选警校](http://www.daogukj.com/agvcmxmf/)
-- [戚薇AI短剧 雷霆视角](http://www.daogukj.com/qklffuer/)
-- [汪峰阻止14岁女儿买大牌](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
-- [高中尊者？本科圣人？小明修仙传25分钟优化纯享版【AI全民制作人】](http://www.daogukj.com/0737886)
-- [知乎开放平台近期新推出的Zhihu CLI 能力，有哪些值得探索的玩法？](http://www.movie.hkepx.cn/xiju/7431665.htm)
-- [新生儿入住月子会所 4 天后颅内出血进ICU，监控现护理人员拍打、吼叫行为，相关方应承担怎样责任？](http://www.daogukj.com/igpatdfc/)
-- [好演员从不无缝进组](http://www.daogukj.com/4475902)
-- [27岁女子成组织卖淫集团主犯被通缉](http://www.daogukj.com/6579509)
-- [泰国校园枪击案死亡人数升至7人](http://www.movie.hkepx.cn/xiju/5461514.htm)
-- [宜宾地震](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
-- [孩子准备上大一了，一个月跟我要1500的生活费，会不会太多了？](http://www.daogukj.com/2214905)
-- [晚自习的消遣方式！](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
-- [老乡鸡主动邀约求职者，得知二人同名后又直接拒绝，称喊一个名字会有两个人答应，仅因同名就拒绝录用合理吗？](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
-- [山东菏泽一件元青花杯失踪](http://www.daogukj.com/4430972)
-- [如何评价GPT-5.6Luna免费不限量，后续基础大模型都会走向免费吗？](http://www.movie.hkepx.cn/xiju/8019376.htm)
-- [提离职被知道要裁员的领导硬留下](http://www.movie.hkepx.cn/movie/0123120.htm)
-- [泸溪河牙冠事件消费者已致歉](http://www.movie.hkepx.cn/xiju/8033346.htm)
-- [“中国蔬菜之乡”最高温达41.8℃](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
-- [DeepSeek豪掷1.4亿护航宇树IPO](http://www.daogukj.com/8763764)
-- [“不建议大家买深色蛋糕”](http://www.daogukj.com/jqstllvn/)
-- [本想简单吃个见手青小炒，却被云南厨师火焰魔法吓晕了...](http://www.daogukj.com/1298524)
-- [宇树科技IPO 一批90后千万富豪或诞生](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
-- [《别接我，我改！》](http://www.daogukj.com/3314823)
-- [【独家】《将夜》第17集 痛其不通【4月国创】](http://www.play.hengshemaoyi.cn/kongbu/1318289.htm)
-- [韩国被爆性贿赂世预赛裁判](http://www.movie.hkepx.cn/xiju/6376636.htm)
+- [现在的小学生已经是庞然大物了](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
+- [立秋三问](http://www.daogukj.com/cmyxzqtz/)
+- [网红峰哥8月份三天“回血”46万](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
+- [离谱！狗子被催五万网贷](http://www.movie.hkepx.cn/movie/2501356.htm)
+- [Who is the Boss?](http://www.daogukj.com/ojwknvji/)
+- [被洪水泡过的瓶装水能喝？别冒险](http://www.daogukj.com/2178083)
+- [1 岁宝宝碰坏纸巾盒被三亚酒店索赔924元，采购价仅 462 元酒店索赔超 900 合理吗？](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
+- [如何看待蜘蛛侠荷兰弟替身「河南弟」误导舆论、造假抢功、疑似还遭剧组开除一事？](http://www.play.hengshemaoyi.cn/xiju/1338838.htm)
+- [张春香退休后被查](http://www.daogukj.com/1763072)
+- [3种发圈正确戴法！轻松解锁夏日氛围感造型](http://www.daogukj.com/8155971)
+- [商家称1小时被20条差评后门店倒闭](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
+- [胖东来宣布暂别行业会议和帮扶，是否意味着中国零售业「向胖东来学习」的热潮正在退去？](http://www.daogukj.com/6164330)
+- [河南三支一扶笔试成绩作废 将重考](http://www.movie.hkepx.cn/movie/1564233.htm)
+- [电影《八仙！》里为什么把汉钟离的名字改成了钟离权？](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
+- [聪明猫在一起久了也会有一些共同点……](http://www.daogukj.com/agvcmxmf/)
+- [提醒：汛期受污染食品不能食用](http://www.daogukj.com/qklffuer/)
+- [孩子准备上大一了，一个月跟我要1500的生活费，会不会太多了？](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
+- [公司实行「上四休三」，但要降薪 1000 元，员工不接受只能辞职，这样合理吗？换做是你会如何选择？](http://www.daogukj.com/0737886)
+- [韩国被爆性贿赂世预赛裁判](http://www.movie.hkepx.cn/xiju/7431665.htm)
+- [我国货物贸易进出口超30万亿元](http://www.daogukj.com/igpatdfc/)
+- [雀巢工作室VS小潮team](http://www.daogukj.com/4475902)
+- [高中尊者？本科圣人？小明修仙传25分钟优化纯享版【AI全民制作人】](http://www.daogukj.com/6579509)
+- [听说洛克王国的精灵原型很难猜？](http://www.movie.hkepx.cn/xiju/5461514.htm)
+- [日本救灾能有多抽象](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
+- [虞书欣工作室晒小兰花未公开照](http://www.daogukj.com/2214905)
+- [女孩南太行山失联超11天 直击搜寻](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
+- [不要空腹吃龙口粉丝](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
+- [“立秋的第一杯奶茶”又爆单了](http://www.daogukj.com/4430972)
+- [绣春刀3动了](http://www.movie.hkepx.cn/xiju/8019376.htm)
+- [河南三支一扶笔试存在组织作弊犯罪](http://www.movie.hkepx.cn/movie/0123120.htm)
+- [最尊重立秋的城市出现了](http://www.movie.hkepx.cn/xiju/8033346.htm)
+- [立秋的仪式感](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
+- [“今天得有40℃了吧 为啥还不预警”](http://www.daogukj.com/8763764)
+- [如何评价GPT-5.6Luna免费不限量，后续基础大模型都会走向免费吗？](http://www.daogukj.com/jqstllvn/)
+- [不要“做”挑战？（第二十一期）](http://www.daogukj.com/1298524)
+- [刚果（金）正式禁止铜、钴精矿出口，全球 70% 钴供给将受影响，国际铜价应声上涨，将产生哪些影响？](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
+- [多家手机品牌回应将大规模涨价，OPPO、荣耀、小米等部分机型已上调价格，如何看待此次手机涨价潮？](http://www.daogukj.com/3314823)
+- [如何看待梁文锋旗下幻方量化多只产品收益转负，单月跌幅超 20%？](http://www.play.hengshemaoyi.cn/kongbu/1318289.htm)
+- [向鹏0-3不敌张本智和](http://www.movie.hkepx.cn/xiju/6376636.htm)
 - [今年是闭眼秋](http://www.play.hengshemaoyi.cn/kongbu/4440369.htm)
-- [面试面出了吃火锅的感觉](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
-- [离谱！狗子被催五万网贷](http://www.daogukj.com/pcyxvqcb/)
-- [周 处 除 三 害 现实版](http://www.daogukj.com/7344740)
-- [逆天！1.9元套餐收60元服务费，老板要起诉勇哥并报警！【网络狠人111】](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
-- [汪峰公司因AI从1100人减到400人](http://www.daogukj.com/okofdfns/)
-- [中国在黄岩岛的组合拳释放什么信号](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
-- [泰国校园枪击已致7死](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
-- [打破国外垄断！中国重磅科技集中上新](http://www.movie.hkepx.cn/movie/3905354.htm)
-- [“至此，神性已成！！！”](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
-- [专家建议落实双休、增加假期，称「剪头发看电影等消费需要时间」，如何看待此建议？增加假期能带动消费吗？](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
+- [让老师读烂梗，憋笑加砖挑战](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
+- [直击泰国校园6死枪击案现场](http://www.daogukj.com/pcyxvqcb/)
+- [新生儿入住月子会所 4 天后颅内出血进ICU，监控现护理人员拍打、吼叫行为，相关方应承担怎样责任？](http://www.daogukj.com/7344740)
+- [前日本奥运举重选手便利店偷鸡蛋，推倒店员致其骨折，被当场逮捕，为什么会做出此举？日本运动员的处境如何？](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
+- [男子结婚 8 年发现 3 娃非亲生，要求离婚、返还抚育开支并赔偿精神抚慰金，如何从法律角度解读？](http://www.daogukj.com/okofdfns/)
+- [女孩摆摊卖菌子时收到北大通知书](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
+- [当我让弟弟模仿我的日常第六弹](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
+- [绷得住挑战·谁是老绷家｜2026 VCT CN 第二赛段 特别节目](http://www.movie.hkepx.cn/movie/3905354.htm)
+- [官方通报教师招聘笔试前13名被淘汰](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
+- [女儿卖房定价9000被母亲7500签约](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
 
 </details>
 
 ## 原始来源
 
-- [泸溪河发布「桃酥出现金属牙冠」调查结论，排除生产带入可能性，消费者已澄清视频情况不属实，如何看待此事？](https://www.zhihu.com/question/2069020073851983605)
+- [今日立秋你咬秋了吗](https://www.toutiao.com/trending/7670927462168428570/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227670927462168428570%22%2C%22hot_board_impr_id%22%3A%222026080717385861D5A84C0C89CB071612%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: fe3ee02555c9d265c7a9 -->
+<!-- content-fingerprint: ce3d48fbca253b7428a6 -->
