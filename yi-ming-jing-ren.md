@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 女子带娃漂流落水 教练员称不敢捞
+# 14 岁男生带病跑步心脏骤停后成一级伤残，校内 AED 未启用，这起事故中校方是否失责？
 
-> 来源：百度热搜 · 排名：第 8 位 · 热度：7043307 · 更新：2026-08-08T07:52:09+08:00
+> 来源：知乎热榜 · 排名：第 8 位 · 热度：166 万热度 · 分类：问答 · 更新：2026-08-08T12:18:22+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“女子带娃漂流落水 教练员称不敢捞”位列第 8 位，公开热度指标为 7043307。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“14 岁男生带病跑步心脏骤停后成一级伤残，校内 AED 未启用，这起事故中校方是否失责？”位列第 8 位，公开热度指标为 166 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，浙江温州一女子带女儿在楠溪江玩桨板漂流时意外落水，事发后教练称水域有漩涡不敢下水施救，女子被水流带入近15米深水区，手机也掉落江中无法打捞。
+来源公开摘要显示：“出事那天，离他15岁生日只有两天。这是个封闭式学校，大量学生流感请假，他往外送换洗衣服时，留了纸条让家里送感冒药。”8月5日，湖北孝感的左先生哽咽着回忆儿子小阳出事前的细节。 2024年11月20日晚，高一学生小阳在晚自习后到操场跑步，没跑多久出现心跳骤停、呼吸骤停。辗转多家医院后，小阳的说话能力消失，智力如同几个月的婴儿，被鉴定为器质性痴呆，一级精神伤残，需要终身护理。 左先生认为，学校未尽到监护责任，出事后未启用配备的AED除颤仪，延误了抢救。今年5月，孝南区人民法院一审判决认为，小阳自行到操场跑步属个人行为，校方尽到了管理义务、安全保障义务，无法
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [湖人 詹姆斯](yi-jian-shuang-diao.md)
-- [原来戴泳帽真的会影响颜值](shou-zhu-dai-tu.md)
-- [男子工地坠亡百万赔偿金妻女仅得3万](wang-mei-zhi-ke.md)
-- [《楚门的世界》中，妻子既然不爱楚门为什么反复提及要与楚门生一个孩子？](wen-ji-qi-wu.md)
+- [时停/欧拉！达摩空条承太郎皮肤，三形态白金之星打穿峡谷！自制联动皮肤特效！](yi-jian-shuang-diao.md)
+- [张本智和：零封向鹏不意外](shou-zhu-dai-tu.md)
+- [多个明星演唱会取消](wang-mei-zhi-ke.md)
+- [以媒：穆杰塔巴被紧急送医情况危急](wen-ji-qi-wu.md)
 
 ## 站内推荐
 
-- [如何看待张一鸣与梁文峰被评「正以完全不同的方向迈向 AGI」？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [《凡应》EP02测试全新PV——与巨兽彼此依存，和鸣共生！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [“新疆阿勒泰八月能滑雪”不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [黄金](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [男子结婚 8 年发现 3 娃非亲生，要求离婚、返还抚育开支并赔偿精神抚慰金，如何从法律角度解读？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [北大数院 07 级苏炜杰获颁「统计学界的诺贝尔奖」，2026年度考普斯奖，如何理解他的成果和获奖意义？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [你最难忘的旅行经历是怎样的？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [我一个人承担部门指标 50%以上工作，领导一直在贬低我，说我在原来领导手下干的比现在好，该怎么破局？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [实时追踪台风白海豚](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [36岁男演员成景区NPC后人气爆棚](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [医生回应女子被狗舔脚确诊三级暴露](http://www.daogukj.com/fudrdubx/)
-- [《楚门的世界》中，妻子既然不爱楚门为什么反复提及要与楚门生一个孩子？](http://www.daogukj.com/jnybznkv/)
-- [时停/欧拉！达摩空条承太郎皮肤，三形态白金之星打穿峡谷！自制联动皮肤特效！](http://www.daogukj.com/4844384)
+- [女子生下4胞胎被全家“宠上天”](http://www.daogukj.com/fudrdubx/)
+- [以媒：穆杰塔巴被紧急送医情况危急](http://www.daogukj.com/jnybznkv/)
+- [宇树科技发行价150.80元/股，总市值突破600亿，中一签需缴款 7.54 万元，如何看待这个估值？](http://www.daogukj.com/4844384)
 - [发烧梗](http://www.daogukj.com/sgrsjaxr/)
-- [不要“做”挑战？（第二十一期）](http://www.play.hengshemaoyi.cn/xiju/2709685.htm)
-- [今年上大一了，父母要挣多少我才能拿3000的生活费？](http://www.daogukj.com/2157977)
-- [一首演奏给喵喵汪汪的🎶 我们是天下第一好～](http://www.play.hengshemaoyi.cn/kongbu/7420321.htm)
-- [23岁博士回应确诊胃癌晚期](http://www.movie.hkepx.cn/xiju/8620011.htm)
-- [原来戴泳帽真的会影响颜值](http://www.play.hengshemaoyi.cn/kongbu/8118071.htm)
-- [2名小孩玩手机低头幅度近乎折叠](http://www.daogukj.com/ybylltrh/)
-- [泰国校园枪击事件已致8死30余伤](http://www.play.hengshemaoyi.cn/xiju/7207629.htm)
-- [柯洁和战鹰谁对于围棋的出圈和推广贡献更大?](http://www.play.hengshemaoyi.cn/xiju/8320007.htm)
-- [《中餐厅10》中张雅琪是用力过猛还是摸鱼摆烂？](http://www.play.hengshemaoyi.cn/kongbu/8567673.htm)
-- [微信新功能：你可以“撤回”你的撤回](http://www.movie.hkepx.cn/xiju/6034585.htm)
-- [《死》死亡是什么？](http://www.movie.hkepx.cn/xiju/6364290.htm)
-- [防汛女干部哽咽：宁听骂声不听哭声](http://www.movie.hkepx.cn/xiju/0846089.htm)
-- [网友饲养2000条食人鱼](http://www.daogukj.com/1651835)
-- [土耳其总统签防务协议竖大拇指](http://www.daogukj.com/amghneqm/)
-- [如何评价网传DeepSeek V4 Flash完成任务后写了个游戏玩一上午？为什么会出现这样的现象？](http://www.movie.hkepx.cn/xiju/4371729.htm)
-- [中医教你一招提升气血](http://www.daogukj.com/gzlhbupb/)
-- [女儿卖房定价9000被母亲7500签约](http://www.daogukj.com/dhxrjyno/)
-- [看完鸟类正脸秒懂证件照](http://www.play.hengshemaoyi.cn/kongbu/0642618.htm)
-- [越来越多高分考生放弃985选警校](http://www.play.hengshemaoyi.cn/xiju/9001524.htm)
-- [黄金](http://www.movie.hkepx.cn/xiju/9522798.htm)
-- [23岁博士确诊胃癌晚期：常熬夜压力大](http://www.play.hengshemaoyi.cn/xiju/7270146.htm)
-- [云南发现眼镜王蛇一家38口](http://www.movie.hkepx.cn/xiju/6713581.htm)
-- [胡彦斌歌王](http://www.movie.hkepx.cn/xiju/1107922.htm)
-- [美总统冷淡回应基辅遭袭：没掺和](http://www.play.hengshemaoyi.cn/kongbu/1709616.htm)
-- [泰国初中生饮弹自尽前开了26枪](http://www.daogukj.com/1746327)
-- [滑铲全向移动？自动吸附瞄准！原神射击玩法太爽了吧！](http://www.movie.hkepx.cn/xiju/9443648.htm)
-- [00后新老师被值周生为难](http://www.movie.hkepx.cn/movie/6311095.htm)
-- [太原一乘客质疑出租车绕路准备投诉，被司机持铁棍打伤缝 13 针，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/1238840.htm)
-- [【剧情】昭阳公主（2026）18【孔雪儿/李宏毅】（按姓氏笔画排序）](http://www.daogukj.com/5649815)
-- [王楚然大一形体课越扒越有](http://www.movie.hkepx.cn/movie/6082292.htm)
-- [刚果（金）正式禁止铜、钴精矿出口，全球 70% 钴供给将受影响，国际铜价应声上涨，将产生哪些影响？](http://www.daogukj.com/7096702)
-- [《凡应》EP02测试全新PV——与巨兽彼此依存，和鸣共生！](http://www.movie.hkepx.cn/xiju/6645727.htm)
-- [湖人 詹姆斯](http://www.play.hengshemaoyi.cn/xiju/6625835.htm)
-- [啥都能修的异世界修理铺——顾客差点把我店烧了？【首届全国高校AIGC优才创作营】](http://www.daogukj.com/qkznereg/)
-- [国乒男单 梯队建设](http://www.movie.hkepx.cn/xiju/8695048.htm)
-- [住宅低频噪音现场溯源-山东4家](http://www.play.hengshemaoyi.cn/xiju/6994271.htm)
-- [一个没有空调外挂机的城市](http://www.play.hengshemaoyi.cn/kongbu/9150882.htm)
-- [中国要用5万亿织一张网](http://www.movie.hkepx.cn/xiju/4430995.htm)
-- [九门陈皮阿四被师娘拴住](http://www.play.hengshemaoyi.cn/xiju/0984127.htm)
-- [丈夫坠亡后百万赔偿款妻女仅得3万](http://www.play.hengshemaoyi.cn/kongbu/0936148.htm)
-- [男子将外卖员砍成植物人获刑8年](http://www.movie.hkepx.cn/xiju/8400822.htm)
-- [3人租车无实体钥匙被困野外10余小时](http://www.daogukj.com/ogibyscz/)
-- [在东方明珠玩100人躲猫猫！奖金10万元](http://www.daogukj.com/1532292)
-- [公司实行「上四休三」，但要降薪 1000 元，员工不接受只能辞职，这样合理吗？换做是你会如何选择？](http://www.movie.hkepx.cn/xiju/9678115.htm)
-- [河南「三支一扶」考试存组织作弊犯罪，作弊团伙主要成员被抓，哪些人将面临法律追责？暴露了哪些监管失灵？](http://www.movie.hkepx.cn/movie/0181516.htm)
-- [四大会计事务所的研究报告集体陷入「AI 幻觉」，对咨询行业的公信力会造成怎样的冲击？暴露了什么问题？](http://www.movie.hkepx.cn/movie/7964895.htm)
+- [住宅低频噪音现场溯源-山东4家](http://www.play.hengshemaoyi.cn/xiju/2709685.htm)
+- [泰国初中生饮弹自尽前开了26枪](http://www.daogukj.com/2157977)
+- [如果吃一小勺中子星会怎么样？](http://www.play.hengshemaoyi.cn/kongbu/7420321.htm)
+- [滑铲全向移动？自动吸附瞄准！原神射击玩法太爽了吧！](http://www.movie.hkepx.cn/xiju/8620011.htm)
+- [张本智和：零封向鹏不意外](http://www.play.hengshemaoyi.cn/kongbu/8118071.htm)
+- [家里的旧光盘，为什么播不出来了？](http://www.daogukj.com/ybylltrh/)
+- [《鸣潮》3.6版本PV | 蜃云灯影，凡尘剑心](http://www.play.hengshemaoyi.cn/xiju/7207629.htm)
+- [啥都能修的异世界修理铺——顾客差点把我店烧了？【首届全国高校AIGC优才创作营】](http://www.play.hengshemaoyi.cn/xiju/8320007.htm)
+- [确诊胃癌晚期博士父母发声](http://www.play.hengshemaoyi.cn/kongbu/8567673.htm)
+- [怎么看待黄山一位老人手机拍照被疯狂弹广告的事件？](http://www.movie.hkepx.cn/xiju/6034585.htm)
+- [宇树王兴兴被问了360多个问题](http://www.movie.hkepx.cn/xiju/6364290.htm)
+- [公务员医生休假了 窗口谁来值班](http://www.movie.hkepx.cn/xiju/0846089.htm)
+- [这个暑假“预制娃”火了](http://www.daogukj.com/1651835)
+- [关晓彤已到最佳赏味期](http://www.daogukj.com/amghneqm/)
+- [东方电气原董事宋致远被查](http://www.movie.hkepx.cn/xiju/4371729.htm)
+- [暑期档 撤档](http://www.daogukj.com/gzlhbupb/)
+- [全网首发！藏宝图/宝藏箱全部点位来啦！记得先领口令联动红！](http://www.daogukj.com/dhxrjyno/)
+- [浙江最强风雨时段已锁定](http://www.play.hengshemaoyi.cn/kongbu/0642618.htm)
+- [张本智和 零封不算意外](http://www.play.hengshemaoyi.cn/xiju/9001524.htm)
+- [实时追踪台风白海豚](http://www.movie.hkepx.cn/xiju/9522798.htm)
+- [青春没有售价！面包车？ 直达拉萨！！](http://www.play.hengshemaoyi.cn/xiju/7270146.htm)
+- [太原一乘客质疑出租车绕路准备投诉，被司机持铁棍打伤缝 13 针，如何看待此事？](http://www.movie.hkepx.cn/xiju/6713581.htm)
+- [白海豚已闭眼](http://www.movie.hkepx.cn/xiju/1107922.htm)
+- [台风白海豚已进入24小时警戒线](http://www.play.hengshemaoyi.cn/kongbu/1709616.htm)
+- [张本智和说面对国乒年轻选手压力消失了](http://www.daogukj.com/1746327)
+- [陈思诚零点晒照为佟丽娅庆生](http://www.movie.hkepx.cn/xiju/9443648.htm)
+- [白鹿柳智敏 蛇塑](http://www.movie.hkepx.cn/movie/6311095.htm)
+- [网络谣言的3种典型“伪装套路”](http://www.play.hengshemaoyi.cn/xiju/1238840.htm)
+- [《楚门的世界》中，妻子既然不爱楚门为什么反复提及要与楚门生一个孩子？](http://www.daogukj.com/5649815)
+- [【剧情】昭阳公主（2026）18【孔雪儿/李宏毅】（按姓氏笔画排序）](http://www.movie.hkepx.cn/movie/6082292.htm)
+- [金价突破4400美元](http://www.daogukj.com/7096702)
+- [你最难忘的旅行经历是怎样的？](http://www.movie.hkepx.cn/xiju/6645727.htm)
+- [时停/欧拉！达摩空条承太郎皮肤，三形态白金之星打穿峡谷！自制联动皮肤特效！](http://www.play.hengshemaoyi.cn/xiju/6625835.htm)
+- [四大会计事务所的研究报告集体陷入「AI 幻觉」，对咨询行业的公信力会造成怎样的冲击？暴露了什么问题？](http://www.daogukj.com/qkznereg/)
+- [《青春期土豆幻想物语》](http://www.movie.hkepx.cn/xiju/8695048.htm)
+- [台风白海豚或携极端暴雨重创多省市](http://www.play.hengshemaoyi.cn/xiju/6994271.htm)
+- [台风白海豚闭眼了](http://www.play.hengshemaoyi.cn/kongbu/9150882.htm)
+- [北京足协主席：百队杯规模盛大](http://www.movie.hkepx.cn/xiju/4430995.htm)
+- [女子带娃漂流落水 教练员称不敢捞](http://www.play.hengshemaoyi.cn/xiju/0984127.htm)
+- [富婆硬加吻戏短剧已下架](http://www.play.hengshemaoyi.cn/kongbu/0936148.htm)
+- [薛之谦8月8日9日杭州演唱会取消](http://www.movie.hkepx.cn/xiju/8400822.htm)
+- [白海豚或携极端暴雨重创东部多省市](http://www.daogukj.com/ogibyscz/)
+- [河南回应带薪错峰休假通知引争议，文章相关表述不够准确，程序审签不规范，待修改后予以印发，如何看待此事？](http://www.daogukj.com/1532292)
+- [夏立言：郑丽文两岸路线很清楚](http://www.movie.hkepx.cn/xiju/9678115.htm)
+- [齐豫回应和毛阿敏的合作](http://www.movie.hkepx.cn/movie/0181516.htm)
+- [王楚然大一形体课越扒越有](http://www.movie.hkepx.cn/movie/7964895.htm)
 
 </details>
 
 ## 原始来源
 
-- [女子带娃漂流落水 教练员称不敢捞](https://www.baidu.com/s?wd=%E5%A5%B3%E5%AD%90%E5%B8%A6%E5%A8%83%E6%BC%82%E6%B5%81%E8%90%BD%E6%B0%B4+%E6%95%99%E7%BB%83%E5%91%98%E7%A7%B0%E4%B8%8D%E6%95%A2%E6%8D%9E&sa=fyb_news&rsv_dl=fyb_news)
+- [14 岁男生带病跑步心脏骤停后成一级伤残，校内 AED 未启用，这起事故中校方是否失责？](https://www.zhihu.com/question/2068768070089420997)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 666d8f4cf354059af2f7 -->
+<!-- content-fingerprint: d193ecbed96029f0e11c -->
