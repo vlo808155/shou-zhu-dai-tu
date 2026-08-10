@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 台湾不是国家不存在“国格”
+# 百万粉丝网红姜小柔去世 年仅24岁
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7427667 · 更新：2026-08-11T07:20:31+08:00
+> 来源：百度热搜 · 排名：第 4 位 · 热度：7428008 · 更新：2026-08-11T07:56:52+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“台湾不是国家不存在“国格””位列第 4 位，公开热度指标为 7427667。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“百万粉丝网红姜小柔去世 年仅24岁”位列第 4 位，公开热度指标为 7428008。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月10日，中国驻日本大使馆发言人在回答记者有关台湾地区所谓“驻日代表”声明时表示，台湾不是一个国家，不存在“国格”一说。自不量力四处刷存在感，只会自取其辱。世界上只有一个中国，台湾是中国领土不可分割的一部分，中华人民共和国政府是代表全中国的唯一合法政府。这是国际社会的基本共识。
+来源公开摘要显示：拥有超百万粉丝的24岁女网红姜小柔（本名李某某），7月15日从广西返程广州途中遭遇严重车祸，送医后经全力抢救无效不幸离世。家属因无力承担ICU巨额费用发起求助，其湖南蓝山老家的新村慈善会为她提供了2000元帮扶救助，村干部也向媒体确认了她去世的消息。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,80 +19,80 @@
 ## 相关热点
 
 - [无冕影帝](wang-mei-zhi-ke.md)
-- [百余名菲律宾公民在中国被依法处理](wen-ji-qi-wu.md)
-- [科学史上有哪些令人惋惜的遗憾？](wo-xin-chang-dan.md)
-- [发烧梗](po-fu-chen-zhou.md)
+- [百花奖获奖全名单](wen-ji-qi-wu.md)
+- [演员秦焰去世，享年 72 岁，曾出演《狂飙》《庆余年第二季》等多部剧集，你对他塑造的角色有哪些记忆？](wo-xin-chang-dan.md)
+- [白海豚大拐弯：江浙沪多地特大暴雨破纪录，北方暴雨启动或有三个重点](po-fu-chen-zhou.md)
 
 ## 站内推荐
 
 - [农业“变酷”只是第一步](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [易烊千玺获百花奖最佳男主角](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [浙江温州一建筑被台风吹塌不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [沈腾最大的奖 微博King](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [56岁刘奕君跟13岁女儿合跳](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [白海豚突然大拐弯](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [陈思诚在家里气哭了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [台风天别被路上水面骗了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [短剧演员王译磊谈参加百花奖感受](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [外交部：百余名菲律宾公民被依法处理](http://www.daogukj.com/srmtipfy/)
-- [地球一次自转需要23小时56分钟，剩下的4分钟去哪儿了呢？](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
-- [小孩哥脱口而出解放军是全球最帅的人](http://www.daogukj.com/5764219)
-- [中使馆：重大涉诈逃犯檀某落网](http://www.daogukj.com/5051205)
-- [在墨西哥，你甚至可以和神父摔角?!](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
-- [沈腾新片《欢迎来龙餐馆》点映口碑爆棚，如何评价沈腾此番演技？喜剧演员要打破观众的固有印象难度在哪？](http://www.movie.hkepx.cn/movie/3745200.htm)
-- [百花奖完整获奖名单公布](http://www.daogukj.com/eptgayul/)
-- [😨"后室里的乌鲁鲁"😰](http://www.daogukj.com/zzzmzdnw/)
-- [孙亚龙喊话Bin来德云色](http://www.daogukj.com/2895651)
-- [同济大学取消教师长期聘任，科研教职岗位面临更大的压力，为什么行政工作相对更简单反而没有这种不稳定性？](http://www.daogukj.com/bmrafxkl/)
-- [第一次见有人撸台风羊毛](http://www.movie.hkepx.cn/movie/6678209.htm)
-- [自学五天做出来的神人游戏](http://www.daogukj.com/2230415)
-- [陈丽君获百花奖最佳新人](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
-- [王健林现在怎么样了? 万达什么情况?](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
-- [山东一中学让新生填家长职务和车价，校方称用于贫困补助甄别，学校该不该收集这类信息？你遇到过类似情况吗？](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
+- [第一次见有人撸台风羊毛](http://www.daogukj.com/srmtipfy/)
+- [适度的「懒」对身体是不是一种保护机制？](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
+- [印度为何突然在经济上对华开绿灯](http://www.daogukj.com/5764219)
+- [武契奇列数据：德国已经落后于中国](http://www.daogukj.com/5051205)
+- [史上最难！只有一块黑曜石该如何通关？](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
+- [靠这锅沙子烤玉米，他在印度街头撑起了尊严](http://www.movie.hkepx.cn/movie/3745200.htm)
+- [泰国 电诈园区](http://www.daogukj.com/eptgayul/)
+- [我们需要更多异头团建ദ്ദി ꙾ ꒳ ꙾ )✧](http://www.daogukj.com/zzzmzdnw/)
+- [江苏一商场积水展车随水漂动](http://www.daogukj.com/2895651)
+- [硬盘、内存价格还会降回去吗？](http://www.daogukj.com/bmrafxkl/)
+- [河南22岁女孩南太行山失联，手机最后信号不在山林，现已确认遇难，遗体在悬崖被找到，有哪些信息值得关注？](http://www.movie.hkepx.cn/movie/6678209.htm)
+- [高铁双人座被免票儿童挤成3人座](http://www.daogukj.com/2230415)
+- [原来这才是金项链的正确戴法](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
+- [百花奖完整获奖名单公布](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
+- [淀粉：碳基压缩科技](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
 - [宋佳马丽落泪祝贺萨日娜获奖](http://www.movie.hkepx.cn/xiju/6217864.htm)
-- [温瑞博3比1巴德](http://www.movie.hkepx.cn/movie/4778790.htm)
-- [多地高分生扎堆填报「3+4」中本贯通，为什么会这样？中本贯通有哪些优势？](http://www.movie.hkepx.cn/movie/7470449.htm)
+- [胖东来为何宁愿关店也不妥协](http://www.movie.hkepx.cn/movie/4778790.htm)
+- [同济大学取消教师长期聘任，科研教职岗位面临更大的压力，为什么行政工作相对更简单反而没有这种不稳定性？](http://www.movie.hkepx.cn/movie/7470449.htm)
 - [于东来回应关闭胖东来生活广场店，因早年租约失误造成租户租金失衡，门店盈利上亿仍闭店，如何看待他的选择？](http://www.movie.hkepx.cn/movie/6111499.htm)
-- [百余名菲律宾公民在中国被依法处理](http://www.movie.hkepx.cn/xiju/2348853.htm)
-- [数名男子捞起大鱼就跑 公园已报警](http://www.daogukj.com/fygnbifa/)
+- [百花奖获奖全名单](http://www.movie.hkepx.cn/xiju/2348853.htm)
+- [为什么情绪波动时总会感到莫名的恐惧？](http://www.daogukj.com/fygnbifa/)
 - [以后救市别求沈腾王宝强了](http://www.daogukj.com/9070712)
-- [卫诗雅获百花奖最佳女主角](http://www.daogukj.com/hoflukum/)
-- [沈腾最大的奖 微博King](http://www.daogukj.com/3336484)
-- [适度的「懒」对身体是不是一种保护机制？](http://www.movie.hkepx.cn/movie/3675931.htm)
-- [王宝强首次入围百花奖却以0票收场](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
-- [56岁刘奕君跟13岁女儿合跳](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
-- [演员秦焰去世，享年 72 岁，曾出演《狂飙》《庆余年第二季》等多部剧集，你对他塑造的角色有哪些记忆？](http://www.daogukj.com/xljzrgjc/)
-- [白海豚大拐弯：江浙沪多地特大暴雨破纪录，北方暴雨启动或有三个重点](http://www.daogukj.com/sfjdsknb/)
-- [百万粉丝女网红姜小柔因车祸去世](http://www.movie.hkepx.cn/xiju/0712256.htm)
-- [印度为何突然在经济上对华开绿灯](http://www.daogukj.com/blhofduy/)
-- [刘耀文看到易烊千玺拿影帝的反应](http://www.daogukj.com/qdmxuvra/)
-- [浙江温州一建筑被台风吹塌不实](http://www.daogukj.com/3062862)
-- [刘晓庆75岁状态](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
-- [百花奖获奖全名单](http://www.daogukj.com/4819328)
-- [大理百元豪车租赁乱象调查：186元租的保时捷是重大事故车，游客拒买高价保险遭敲诈【探照灯计划】](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
-- [竟然不是高叶](http://www.movie.hkepx.cn/xiju/6449274.htm)
-- [不打游戏这件事害惨了我](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
-- [外交部：藏南地区是中国领土](http://www.movie.hkepx.cn/xiju/8624591.htm)
-- [淀粉：碳基压缩科技](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
-- [易烊千玺金鸡百花双料影帝](http://www.daogukj.com/2518516)
+- [王宝强首次入围百花奖却以0票收场](http://www.daogukj.com/hoflukum/)
+- [台风天别被路上水面骗了](http://www.daogukj.com/3336484)
+- [发烧梗](http://www.movie.hkepx.cn/movie/3675931.htm)
+- [赵丽颖百花奖首提即中](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
+- [短剧演员王译磊谈参加百花奖感受](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
+- [科学史上有哪些令人惋惜的遗憾？](http://www.daogukj.com/xljzrgjc/)
+- [一百年前拍电影，没特效没替身没电脑，到底咋拍的？](http://www.daogukj.com/sfjdsknb/)
+- [王宝强0票](http://www.movie.hkepx.cn/xiju/0712256.htm)
+- [沈腾新片《欢迎来龙餐馆》点映口碑爆棚，如何评价沈腾此番演技？喜剧演员要打破观众的固有印象难度在哪？](http://www.daogukj.com/blhofduy/)
+- [胡锡进警惕AI消灭行业剥夺饭碗](http://www.daogukj.com/qdmxuvra/)
+- [陈思诚在家里气哭了](http://www.daogukj.com/3062862)
+- [韩信为什么连让他钻裤裆的恶霸都委以重任，但是却拿百钱羞辱让他吃大半年白饭的亭长呢？](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
+- [外交部：藏南地区是中国领土](http://www.daogukj.com/4819328)
+- [浙江温州一建筑被台风吹塌不实](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
+- [流浪](http://www.movie.hkepx.cn/xiju/6449274.htm)
+- [美股收盘：芯片股、光通信概念重挫](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
+- [多地公安机关打掉1000多个犯罪团伙](http://www.movie.hkepx.cn/xiju/8624591.htm)
+- [卫诗雅获百花奖最佳女主角](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
+- [刘晓庆75岁状态](http://www.daogukj.com/2518516)
 - [24岁网红姜小柔去世](http://www.movie.hkepx.cn/movie/2625646.htm)
-- [科学史上有哪些令人惋惜的遗憾？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
-- [假面骑士祥子 01.沉默的骑士](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
-- [同桌同考690分1个去清华1个去北大](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
-- [热身第二场，中国女篮69-65尼日利亚，张子宇23分13篮板，14投10中，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
-- [靠这锅沙子烤玉米，他在印度街头撑起了尊严](http://www.movie.hkepx.cn/xiju/9162988.htm)
-- [河南22岁女孩南太行山失联，手机最后信号不在山林，现已确认遇难，遗体在悬崖被找到，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
-- [独闯南太行失联女子遗体已找到](http://www.daogukj.com/xfhybzga/)
-- [五角大楼再公布UFO视频](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
+- [演员秦焰去世，享年 72 岁，曾出演《狂飙》《庆余年第二季》等多部剧集，你对他塑造的角色有哪些记忆？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
+- [五角大楼再公布UFO视频](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
+- [医保个人账户里的钱怎么用才不浪费](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
+- [赛博家居？我把客厅升级成了智能机械空间！](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
+- [《穿越三国，复活五虎北伐》第一季1-10集大合集！【AI全民制作人】](http://www.movie.hkepx.cn/xiju/9162988.htm)
+- [山东一中学让新生填家长职务和车价，校方称用于贫困补助甄别，学校该不该收集这类信息？你遇到过类似情况吗？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
+- [伯克希尔Q2净利润256.67亿美元，时隔3年首次净买入股票，现金储备降至3655亿美元，如何解读？](http://www.daogukj.com/xfhybzga/)
+- [iPhone18Pro等7款新品彻底泄密](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
 
 </details>
 
 ## 原始来源
 
-- [台湾不是国家不存在“国格”](https://www.baidu.com/s?wd=%E5%8F%B0%E6%B9%BE%E4%B8%8D%E6%98%AF%E5%9B%BD%E5%AE%B6%E4%B8%8D%E5%AD%98%E5%9C%A8%E2%80%9C%E5%9B%BD%E6%A0%BC%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [百万粉丝网红姜小柔去世 年仅24岁](https://www.baidu.com/s?wd=%E7%99%BE%E4%B8%87%E7%B2%89%E4%B8%9D%E7%BD%91%E7%BA%A2%E5%A7%9C%E5%B0%8F%E6%9F%94%E5%8E%BB%E4%B8%96+%E5%B9%B4%E4%BB%8524%E5%B2%81&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 37ad7f07ffd73de8154d -->
+<!-- content-fingerprint: 485a551040dfa41861cb -->
