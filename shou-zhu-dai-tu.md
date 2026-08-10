@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 钟睒睒：必须限制电商平台权利
+# 演员秦焰去世 曾出演《狂飙》
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7427829 · 更新：2026-08-10T13:11:25+08:00
+> 来源：百度热搜 · 排名：第 4 位 · 热度：7428199 · 更新：2026-08-10T18:02:50+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“钟睒睒：必须限制电商平台权利”位列第 4 位，公开热度指标为 7427829。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“演员秦焰去世 曾出演《狂飙》”位列第 4 位，公开热度指标为 7428199。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，农夫山泉创始人、董事长钟睒睒做客央视财经《对话》栏目。节目中，在讨论电商平台时，钟睒睒称电商平台是一种特殊的中间商，这个中间商无处不在，把城市的很多零售商都“杀”光了，并呼吁限制平台权力。
+百度热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [这届年轻人真的在整顿婚礼](wang-mei-zhi-ke.md)
-- [5万元以下微型代步车集体遇冷](wen-ji-qi-wu.md)
-- [为什么程序员大多都拥抱AI，而音乐人却抗拒并隔离AI音乐池？](wo-xin-chang-dan.md)
-- [王从天降](po-fu-chen-zhou.md)
+- [百花奖红毯](wang-mei-zhi-ke.md)
+- [A股“股王”大跌](wen-ji-qi-wu.md)
+- [台风「白海豚」疯狂倒水，上海内涝严重，地铁多条线路停运，你的出行和生活受影响了吗？今天有居家办公吗？](wo-xin-chang-dan.md)
+- [2026和平精英刺激之夜完整高清回放](po-fu-chen-zhou.md)
 
 ## 站内推荐
 
-- [这些中国风热词上新了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [梅婷12岁女儿百花奖发言](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [“上海女子在台风中坠楼”不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [乘客讲述可乐爆瓶击伤空乘眼部](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [演员表演期间裙摆着火 景区回应](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [APEC峰会倒计时100天](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [这届大学新生快买不起电脑了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [限时返场《畅安青岛》云泥之别](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [连胜越高，对局反而简单了，这都是我努力的结果](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [王从天降](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [上海一下沉式广场遭雨水倒灌](http://www.daogukj.com/srmtipfy/)
-- [武汉天桥摊主 先动手](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
-- [4.2平卫生间补漏注胶花1.55万](http://www.daogukj.com/5764219)
-- [多地中小银行下调存款利率，国有四大行重启大额存单，存款市场为何两极分化？](http://www.daogukj.com/5051205)
-- [发烧梗](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
-- [受台风「白海豚」影响，8 月 10 日上海地铁多条线路停运，你早高峰出行受影响了吗？今天有居家办公吗？](http://www.movie.hkepx.cn/movie/3745200.htm)
-- [暑期档电影再次迎来“神仙打架”](http://www.daogukj.com/eptgayul/)
-- [加沙约14万栋建筑被完全摧毁](http://www.daogukj.com/zzzmzdnw/)
-- [DeepSeek会偷偷给人取外号](http://www.daogukj.com/2895651)
-- [iPhone18Pro发布会时间](http://www.daogukj.com/bmrafxkl/)
-- [衡水中学发文贺校友任央视主持人](http://www.movie.hkepx.cn/movie/6678209.htm)
-- [👊一 拳 超 人👊](http://www.daogukj.com/2230415)
-- [在东方明珠玩100人躲猫猫！奖金10万元](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
-- [打骂乡村兽医的后果？？？](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
+- [白海豚突然大拐弯 走出罕见路线](http://www.daogukj.com/srmtipfy/)
+- [女子瘫痪10年重新站起称爱是奇迹](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
+- [😨"后室里的乌鲁鲁"😰](http://www.daogukj.com/5764219)
+- [苏州河水抢排翻泄至黄浦江](http://www.daogukj.com/5051205)
+- [山海兽医 第三集](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
+- [67岁农户听信AI喷农药致150亩地一夜枯萎，老人听AI翻车的事层出不穷，有啥办法能帮助他们辨别吗？](http://www.movie.hkepx.cn/movie/3745200.htm)
+- [经销商证实雪佛兰暂停在华新车销售](http://www.daogukj.com/eptgayul/)
+- [杨幂五穿祖海高定](http://www.daogukj.com/zzzmzdnw/)
+- [四代同框](http://www.daogukj.com/2895651)
+- [大瓶啤酒为何卖疯了](http://www.daogukj.com/bmrafxkl/)
+- [伊朗最高领袖与总统会谈](http://www.movie.hkepx.cn/movie/6678209.htm)
+- [自学五天做出来的神人游戏](http://www.daogukj.com/2230415)
+- [横滨女队三人围剿也没能阻挡张本美和夺冠，是哪里出了问题?](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
+- [多位大疆员工离职后创业成功](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
 - [网传数据显示广东人吃肉量是山西的4倍以上，是真是假？](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
-- [如何看待钟睒睒称电商平台把城市的很多零售商都「杀」光了，并呼吁限制其能力？电商平台究竟带来了哪些影响？](http://www.movie.hkepx.cn/xiju/6217864.htm)
-- [成毅音乐节延时疑似被催下台](http://www.movie.hkepx.cn/movie/4778790.htm)
-- [孟子义这个背](http://www.movie.hkepx.cn/movie/7470449.htm)
-- [武汉司门口黄鹤楼天桥市容管理人员与占道摊贩发生激烈肢体冲突，3 人被刑拘，有哪些信息值得关注？](http://www.movie.hkepx.cn/movie/6111499.htm)
-- [5万元以下微型代步车集体遇冷](http://www.movie.hkepx.cn/xiju/2348853.htm)
-- [荷兰弟赞达亚好吓人的点赞量](http://www.daogukj.com/fygnbifa/)
-- [贺涵 能来接我吗](http://www.daogukj.com/9070712)
-- [“还不如不放假”](http://www.daogukj.com/hoflukum/)
-- [乘客讲述可乐爆瓶击伤空乘眼部](http://www.daogukj.com/3336484)
-- [直击台风“白海豚”](http://www.movie.hkepx.cn/movie/3675931.htm)
-- [男子出轨有私生子离婚留下6千万债务](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
-- [演员表演期间裙摆着火 景区回应](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
-- [宇树科技 8 月 10 日申购，中一签需缴 7.54 万，打新性价比如何？高预期背后哪些风险值得警惕？](http://www.daogukj.com/xljzrgjc/)
-- [伊朗最高领袖与总统会谈](http://www.daogukj.com/sfjdsknb/)
-- [C罗婚礼闹乌龙](http://www.movie.hkepx.cn/xiju/0712256.htm)
-- [上海中心城区暴雨预警升级为橙色](http://www.daogukj.com/blhofduy/)
-- [2026和平精英刺激之夜完整高清回放](http://www.daogukj.com/qdmxuvra/)
-- [“上海女子在台风中坠楼”不实](http://www.daogukj.com/3062862)
-- [张本美和夺冠美了球迷不舒服了](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
-- [上海谁家三文鱼吹窗户上了](http://www.daogukj.com/4819328)
-- [【独家】《记忆管理局》第4集 燃灯与灰火【8月国创】](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
-- [我们需要更多异头团建ദ്ദി ꙾ ꒳ ꙾ )✧](http://www.movie.hkepx.cn/xiju/6449274.htm)
-- [天蚕土豆新书《神通者》到底如何？](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
-- [台风白海豚最新路径](http://www.movie.hkepx.cn/xiju/8624591.htm)
-- [西语Vlog｜我终于来到了巴塔哥尼亚](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
-- [中年吃够碳水的人更可能健康老去](http://www.daogukj.com/2518516)
-- [专家：A股二次探底是大概率事件](http://www.movie.hkepx.cn/movie/2625646.htm)
-- [为什么程序员大多都拥抱AI，而音乐人却抗拒并隔离AI音乐池？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
-- [【重大医疗事故】日本一医院错把患者脑部当肿瘤切除，手术后脑干被切除，脑肿瘤完好无损。](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
-- [广岛长崎的昨日未必不会是日本的明天](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
-- [网友发帖吐槽医院梯控员工作太闲，医院梯控员真的「工作清闲」吗？如何看待当事员工称自己因该帖已被开除？](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
-- [俄称拦截乌克兰无人机并对乌发动空袭](http://www.movie.hkepx.cn/xiju/9162988.htm)
-- [麦积山景区看完所有石窟需2000元，景区称特窟受特别保护，该定价合理吗？保护文物与公众权益有无更优解？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
-- [部分银行上调存款利率](http://www.daogukj.com/xfhybzga/)
-- [5万小车卖不动 微型代步车集体遇冷](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
+- [101岁老人叫82岁儿子吃饭](http://www.movie.hkepx.cn/xiju/6217864.htm)
+- [弗洛伊德的理论那么扯淡为什么他又那么出名？](http://www.movie.hkepx.cn/movie/4778790.htm)
+- [百花奖闭幕式节目单正式揭晓](http://www.movie.hkepx.cn/movie/7470449.htm)
+- [同济大学取消教师长期聘任，科研教职岗位面临更大的压力，为什么行政工作相对更简单反而没有这种不稳定性？](http://www.movie.hkepx.cn/movie/6111499.htm)
+- [A股“股王”大跌](http://www.movie.hkepx.cn/xiju/2348853.htm)
+- [沈腾龙餐馆口碑大爆 出品方一字涨停](http://www.daogukj.com/fygnbifa/)
+- [原来90后这么小众](http://www.daogukj.com/9070712)
+- [相声演员李晓龙因病去世 年仅38岁](http://www.daogukj.com/hoflukum/)
+- [连胜越高，对局反而简单了，这都是我努力的结果](http://www.daogukj.com/3336484)
+- [迪丽热巴曾靠玉米茶叶蛋熬过追梦期](http://www.movie.hkepx.cn/movie/3675931.htm)
+- [西语Vlog｜我终于来到了巴塔哥尼亚](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
+- [王从天降](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
+- [如何看待钟睒睒称电商平台把城市的很多零售商都「杀」光了，并呼吁限制其能力？电商平台究竟带来了哪些影响？](http://www.daogukj.com/xljzrgjc/)
+- [第一批用AI租房的受益者出现了](http://www.daogukj.com/sfjdsknb/)
+- [演员秦焰去世](http://www.movie.hkepx.cn/xiju/0712256.htm)
+- [杨紫琼《流浪地球 3》剧照首度曝光，从中能看出哪些信息？](http://www.daogukj.com/blhofduy/)
+- [如何评价《绝区零》3.1版本拍照活动「咔嚓！焦点对决！」？大家都拍出了哪些有意思的照片？](http://www.daogukj.com/qdmxuvra/)
+- [限时返场《畅安青岛》云泥之别](http://www.daogukj.com/3062862)
+- [台风天居民窗户上惊现海鲜：已吃掉](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
+- [独闯南太行失联女子遗体已找到](http://www.daogukj.com/4819328)
+- [韩信为什么连让他钻裤裆的恶霸都委以重任，但是却拿百钱羞辱让他吃大半年白饭的亭长呢？](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
+- [票房持续走低，《蜘蛛侠：崭新之日》票房为何不见首日辉煌？](http://www.movie.hkepx.cn/xiju/6449274.htm)
+- [母子三人想去郴州结果到了彬州](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
+- [无锡降雨量冲至全国第一](http://www.movie.hkepx.cn/xiju/8624591.htm)
+- [我们需要更多异头团建ദ്ദി ꙾ ꒳ ꙾ )✧](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
+- [【TF家族练习生】《TLOG》15：《异常加载中》MV拍摄花絮](http://www.daogukj.com/2518516)
+- [“老戏骨”秦焰去世](http://www.movie.hkepx.cn/movie/2625646.htm)
+- [台风「白海豚」疯狂倒水，上海内涝严重，地铁多条线路停运，你的出行和生活受影响了吗？今天有居家办公吗？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
+- [特斯拉将建史上最大芯片厂，这对全球芯片产业有何影响？](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
+- [只是一个低脂的校园采访而已](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
+- [泰国被接机女生疑遭带走](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
+- [广岛长崎的昨日未必不会是日本的明天](http://www.movie.hkepx.cn/xiju/9162988.htm)
+- [假如全球所有人同时获得三个选项：立刻变成祖国人、十分钟后变成超人、十五分钟后变成曼哈顿博士，怎么选？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
+- [“上海女子在台风中坠楼”不实](http://www.daogukj.com/xfhybzga/)
+- [Ning爆料Bin彻底不打了](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
 
 </details>
 
 ## 原始来源
 
-- [钟睒睒：必须限制电商平台权利](https://www.baidu.com/s?wd=%E9%92%9F%E7%9D%92%E7%9D%92%EF%BC%9A%E5%BF%85%E9%A1%BB%E9%99%90%E5%88%B6%E7%94%B5%E5%95%86%E5%B9%B3%E5%8F%B0%E6%9D%83%E5%88%A9&sa=fyb_news&rsv_dl=fyb_news)
+- [演员秦焰去世 曾出演《狂飙》](https://www.baidu.com/s?wd=%E6%BC%94%E5%91%98%E7%A7%A6%E7%84%B0%E5%8E%BB%E4%B8%96+%E6%9B%BE%E5%87%BA%E6%BC%94%E3%80%8A%E7%8B%82%E9%A3%99%E3%80%8B&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4aeb09cde266e820fcf3 -->
+<!-- content-fingerprint: a426ef92a2dbb93d68f7 -->
