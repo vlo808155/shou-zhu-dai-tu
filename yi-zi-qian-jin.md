@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 长鑫科技 中国市值最大上市公司
+# 39岁程序员打卡后厕所内猝死
 
-> 来源：微博热搜 · 排名：第 8 位 · 热度：1033781 · 分类：财经,互联网 · 更新：2026-08-13T22:03:05+08:00
+> 来源：微博热搜 · 排名：第 8 位 · 热度：428581 · 分类：民生新闻 · 更新：2026-08-13T23:12:34+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“长鑫科技 中国市值最大上市公司”位列第 8 位，公开热度指标为 1033781，榜单分类为“财经,互联网”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“39岁程序员打卡后厕所内猝死”位列第 8 位，公开热度指标为 428581，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `财经,互联网`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [专家：A股为何早盘冲高午后跳水翻绿](yi-fan-feng-shun.md)
+- [如何看待普京首登俄日争议岛屿](yi-fan-feng-shun.md)
 - [因长期在中东服役，多名水兵试图从美国海军「林肯」号跳海，为什么会这样？美国中东长期部署带来哪些问题？](yi-ming-jing-ren.md)
-- [黑白色经典星空喷漆画，划走你就草率了](yi-jian-shuang-diao.md)
-- [宇树科技遭弃购8734股](shou-zhu-dai-tu.md)
+- [🐧当你打游戏时父母进你房间蹭空调🐧](yi-jian-shuang-diao.md)
+- [广东宣布：上调最低工资标准](shou-zhu-dai-tu.md)
 
 ## 站内推荐
 
-- [四代五公大屏坏了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
-- [张桂源张函瑞 眼鼻嘴](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
-- [EDG管理层](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
-- [刘晓庆袁泉白百何杨紫诠释四代女性](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
-- [河南郏县近500年历史古桥局部垮塌](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
+- [婚外胚胎案男方半年内不能再提离婚](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [冉莹颖说打输了大不了换老公](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [破局 难听](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [为什么过去都说鱼翅和鲍鱼是顶级菜肴，而现在却很少人提了？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [这不是黑历史…是23年 我奋斗的开始…差点gg也得拍视频](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [王曼昱横扫晋级](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
-- [河南郏县近500年历史古桥局部垮塌](http://www.daogukj.com/cmyxzqtz/)
-- [刘晓庆袁泉白百何杨紫诠释四代女性](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
-- [琢磨个把月，用一张纸折出了奥黛塔](http://www.movie.hkepx.cn/movie/2501356.htm)
-- [「直到大地变成一颗烂苹果！！」](http://www.daogukj.com/ojwknvji/)
+- [日全食后“眼睛疼”](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
+- [这不是黑历史…是23年 我奋斗的开始…差点gg也得拍视频](http://www.daogukj.com/cmyxzqtz/)
+- [为什么过去都说鱼翅和鲍鱼是顶级菜肴，而现在却很少人提了？](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
+- [A股直线跳水原因](http://www.movie.hkepx.cn/movie/2501356.htm)
+- [任嘉伦红房子成青岛景点](http://www.daogukj.com/ojwknvji/)
 - [郭麒麟瘦到认不出](http://www.daogukj.com/2178083)
-- [花48万元给子女买事业编没成功，法院判介绍人返还全额，如何从法律角度解读？花钱买编的背后反映哪些问题？](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
+- [美航母250天不靠港 多人崩溃想跳海](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
 - [女子爱生闷气乳腺癌去世 丈夫痛哭](http://www.play.hengshemaoyi.cn/xiju/1338838.htm)
-- [特朗普秘密换乘专机内幕曝光](http://www.daogukj.com/1763072)
+- [刘晓庆袁泉白百何杨紫诠释四代女性](http://www.daogukj.com/1763072)
 - [唐朝女人头上插那么多金钗步摇，走路不累吗，她们到底图什么？](http://www.daogukj.com/8155971)
-- [宇树科技遭弃购8734股](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
+- [广东宣布：上调最低工资标准](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
 - [45 岁邹市明宣布年底重返拳击赛场，怎样看待他的决定？他的复出能解决目前的财务困境吗？](http://www.daogukj.com/6164330)
-- [🐧当你打游戏时父母进你房间蹭空调🐧](http://www.movie.hkepx.cn/movie/1564233.htm)
-- [怎么看 DeepSeek 8 月17 日涨价后的价格，这个峰谷定价你接受吗？](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
-- [路况千千万，总能遇到点新知识，今天是地上的大镜子](http://www.daogukj.com/agvcmxmf/)
+- [长着云台的手机？荣耀Robot Phone上手](http://www.movie.hkepx.cn/movie/1564233.htm)
+- [《癫佬外传》第一季合集](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
+- [猎哥说打绝航能让人眼前一亮【三角洲动画·勇敢者篇】](http://www.daogukj.com/agvcmxmf/)
 - [《顽童戏老叟》](http://www.daogukj.com/qklffuer/)
-- [《寄生虫》里的豪宅，看起来没什么东西，豪在哪里？](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
-- [专家：A股为何早盘冲高午后跳水翻绿](http://www.daogukj.com/0737886)
-- [王安宇走路脖子前倾](http://www.movie.hkepx.cn/xiju/7431665.htm)
+- [油价将迎来年内第五次下调](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
+- [如何看待普京首登俄日争议岛屿](http://www.daogukj.com/0737886)
+- [DeepSeek Harness已发布，如何评价这款产品？](http://www.movie.hkepx.cn/xiju/7431665.htm)
 - [今年以来我国生态环境质量持续向好](http://www.daogukj.com/igpatdfc/)
-- [⚡颅 蹬 的 回 声⚡](http://www.daogukj.com/4475902)
+- [王橹杰对着蓝粉海偷笑](http://www.daogukj.com/4475902)
 - [网传《欢迎来龙餐馆》男主角原定为徐峥，消息靠谱吗？如果是徐峥来演的话你认为效果会比沈腾好吗？](http://www.daogukj.com/6579509)
 - [因长期在中东服役，多名水兵试图从美国海军「林肯」号跳海，为什么会这样？美国中东长期部署带来哪些问题？](http://www.movie.hkepx.cn/xiju/5461514.htm)
-- [来云南必吃，见太奶套餐](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
-- [张桂源张函瑞 眼鼻嘴](http://www.daogukj.com/2214905)
-- [中国证监会原党委委员马忠智逝世](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
-- [39岁程序员打卡后厕所内猝死](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
-- [舍不得买可直接休学退学？校方通报](http://www.daogukj.com/4430972)
-- [深圳女生一天1500专门劝人别买房](http://www.movie.hkepx.cn/xiju/8019376.htm)
-- [婚外胚胎案男方已撤销离婚](http://www.movie.hkepx.cn/movie/0123120.htm)
-- [五公站姐出图](http://www.movie.hkepx.cn/xiju/8033346.htm)
-- [谢震业百米10秒10夺冠](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
-- [美航母250天不靠港 多人崩溃想跳海](http://www.daogukj.com/8763764)
-- [红米新品发布后，小米高管回应网友评论称「内存实在太贵了」，反映了当前手机行业哪些挑战？](http://www.daogukj.com/jqstllvn/)
-- [《影之刃零》预购开启，11分钟实机预告公开](http://www.daogukj.com/1298524)
-- [银行能办结婚证了，天津开放首个银行网点婚姻登记处，这事只是「多一个领证地」这么简单吗？银行有什么盘算？](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
-- [39度高温物业管家喊话全楼关空调](http://www.daogukj.com/3314823)
+- [DeepSeek官宣涨价](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
+- [冉莹颖说打输了大不了换老公](http://www.daogukj.com/2214905)
+- [这些散落在不同作品里的日系旋律，早已不止是耳边流淌的曲调。](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
+- [Bin BLG](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
+- [上海投资超550亿启动吴淞江工程](http://www.daogukj.com/4430972)
+- [上海一员工台风天请假1小时被罚近1500元，公司称其未提前一天申请，人社局表示处罚行为违规，怎样解读？](http://www.movie.hkepx.cn/xiju/8019376.htm)
+- [史上最大IPO或将易主](http://www.movie.hkepx.cn/movie/0123120.htm)
+- [Whiplash直拍](http://www.movie.hkepx.cn/xiju/8033346.htm)
+- [退休236天大姐状态大变样](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
+- [张本智和晋级瑞典大满贯男单32强](http://www.daogukj.com/8763764)
+- [这视频等了五年！](http://www.daogukj.com/jqstllvn/)
+- [河流地貌](http://www.daogukj.com/1298524)
+- [马斯克一句“中国太棒了”刷屏海外](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
+- [中国印尼首次台岛以东联演有何深意](http://www.daogukj.com/3314823)
 - [当年为加入 WTO 做出的让步，今天看来到底有多值？](http://www.play.hengshemaoyi.cn/kongbu/1318289.htm)
-- [猎哥说打绝航能让人眼前一亮【三角洲动画·勇敢者篇】](http://www.movie.hkepx.cn/xiju/6376636.htm)
-- [4岁半女童“满头白发”确诊白癜风](http://www.play.hengshemaoyi.cn/kongbu/4440369.htm)
-- [这些散落在不同作品里的日系旋律，早已不止是耳边流淌的曲调。](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
-- [洪水泡过的瓶装水擦净就能喝？不可](http://www.daogukj.com/pcyxvqcb/)
-- [胖东来、腾讯都曾因涨租金而搬离，有人说房东会视盈利情况涨租，这样做合理吗？对他们有什么影响？](http://www.daogukj.com/7344740)
-- [世界最小鸭子首次现身河北](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
-- [如何评价9999元起售的荣耀RobotPhone，有哪些亮点值得关注？](http://www.daogukj.com/okofdfns/)
-- [二手豪车为啥卖不动了](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
-- [《异环》残虹EP丨Seven Shades of Red](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
-- [河流地貌](http://www.movie.hkepx.cn/movie/3905354.htm)
-- [广东将上调最低工资标准](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
-- [王橹杰 化妆师](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
+- [路况千千万，总能遇到点新知识，今天是地上的大镜子](http://www.movie.hkepx.cn/xiju/6376636.htm)
+- [深圳高温达极端等级](http://www.play.hengshemaoyi.cn/kongbu/4440369.htm)
+- [iPhone18系列发布节奏确认](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
+- [如何评价在 8 月 13 日发布的 DeepSeek Harness？](http://www.daogukj.com/pcyxvqcb/)
+- [新规禁止居民楼开油烟餐饮，这类餐饮业未来将何去何从？居民区的「苍蝇馆子」以后会不会越来越少了？](http://www.daogukj.com/7344740)
+- [28岁快递员突发大面积脑梗死](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
+- [TI2026赛前采访](http://www.daogukj.com/okofdfns/)
+- [手机价格全线暴涨](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
+- [吴越称十分抗拒和年轻男演员演情侣](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
+- [《影之刃零》预购开启，11分钟实机预告公开](http://www.movie.hkepx.cn/movie/3905354.htm)
+- [为什么蚊子没有进化成像猫猫那样特别可爱的样子，让人不忍心拍死？](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
+- [世界最小鸭子首次现身河北](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
 
 </details>
 
 ## 原始来源
 
-- [长鑫科技 中国市值最大上市公司](https://s.weibo.com/weibo?q=%E9%95%BF%E9%91%AB%E7%A7%91%E6%8A%80%20%E4%B8%AD%E5%9B%BD%E5%B8%82%E5%80%BC%E6%9C%80%E5%A4%A7%E4%B8%8A%E5%B8%82%E5%85%AC%E5%8F%B8)
+- [39岁程序员打卡后厕所内猝死](https://s.weibo.com/weibo?q=39%E5%B2%81%E7%A8%8B%E5%BA%8F%E5%91%98%E6%89%93%E5%8D%A1%E5%90%8E%E5%8E%95%E6%89%80%E5%86%85%E7%8C%9D%E6%AD%BB)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7577f3318666925609cb -->
+<!-- content-fingerprint: 94a8e3871ac376d00da1 -->
