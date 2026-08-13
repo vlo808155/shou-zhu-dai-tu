@@ -2,11 +2,11 @@
 
 # 万宁海边挤满上“体校”的人
 
-> 来源：百度热搜 · 排名：第 7 位 · 热度：7143529 · 更新：2026-08-14T00:13:15+08:00
+> 来源：百度热搜 · 排名：第 7 位 · 热度：7139625 · 更新：2026-08-14T01:16:45+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“万宁海边挤满上“体校”的人”位列第 7 位，公开热度指标为 7143529。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“万宁海边挤满上“体校”的人”位列第 7 位，公开热度指标为 7139625。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：过去，年轻人去海岛度假，通常有一套标准动作——看海、拍照、逛景点、住酒店。但万宁不太一样，这里的海不是背景版，是真正的运动场。运动替代景点，成为年轻人判断一次度假是否值得的新标准。白天暴汗，晚上蹦迪，万宁海边挤满上“体校”的年轻人。
 
@@ -18,73 +18,73 @@
 
 ## 相关热点
 
-- [深圳女生一天1500专门劝人别买房](yi-zi-qian-jin.md)
-- [比亚迪秦MAX上市](yi-fan-feng-shun.md)
+- [魏子宸好帅](yi-zi-qian-jin.md)
+- [福建船厂爆炸致1名消防员牺牲](yi-fan-feng-shun.md)
 - [因长期在中东服役，多名水兵试图从美国海军「林肯」号跳海，为什么会这样？美国中东长期部署带来哪些问题？](yi-ming-jing-ren.md)
-- [路况千千万，总能遇到点新知识，今天是地上的大镜子](yi-jian-shuang-diao.md)
+- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](yi-jian-shuang-diao.md)
 
 ## 站内推荐
 
 - [看似很香的低价房产藏重重陷阱](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [亏50万股民借钱缴款中签宇树](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [破局 难听](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [人民日报：电商与线下不是对立关系](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [日本关东地区遭遇强降雨](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [俩孩子将超市内几十种杂粮混掺](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [男子健身房指导女友被要求看结婚证](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [新规：禁止在居民楼开油烟餐饮](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [为什么娱乐圈这么多人得强直性脊柱炎](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [胖东来、腾讯都曾因涨租金而搬离，有人说房东会视盈利情况涨租，这样做合理吗？对他们有什么影响？](http://www.movie.hkepx.cn/xiju/6552474.htm)
-- [路况千千万，总能遇到点新知识，今天是地上的大镜子](http://www.movie.hkepx.cn/movie/8544791.htm)
-- [婚外胚胎案男方半年内不能再提离婚](http://www.daogukj.com/3711177)
-- [高校通报辅导员发布不当言论](http://www.play.hengshemaoyi.cn/kongbu/1559298.htm)
-- [《顽童戏老叟》](http://www.daogukj.com/vxwjdfib/)
-- [比亚迪秦MAX上市](http://www.movie.hkepx.cn/movie/6409275.htm)
-- [Whiplash直拍](http://www.play.hengshemaoyi.cn/xiju/2772698.htm)
-- [专访离职的华为“天才少年”宁博宇](http://www.daogukj.com/dwkhbexl/)
-- [如何评价在 8 月 13 日发布的 DeepSeek Harness？](http://www.daogukj.com/7336913)
-- [梁文锋打新宇树科技 1.8 亿获配 120 万股，账面浮盈或超 7.04 亿元，怎样解读他的这一布局？](http://www.daogukj.com/7257814)
-- [张桂源张函瑞 眼鼻嘴](http://www.movie.hkepx.cn/xiju/4522982.htm)
-- [哥哥借房给侄女上学 房子被弟弟偷卖](http://www.movie.hkepx.cn/movie/5611897.htm)
+- [婚外胚胎案男方已撤销离婚，撤销离婚是否意味此事就此结束？还存在哪些疑点吗？](http://www.movie.hkepx.cn/xiju/6552474.htm)
+- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.movie.hkepx.cn/movie/8544791.htm)
+- [破局 难听](http://www.daogukj.com/3711177)
+- [胖东来闭店一天整条街都没人出摊](http://www.play.hengshemaoyi.cn/kongbu/1559298.htm)
+- [这不是黑历史…是23年 我奋斗的开始…差点gg也得拍视频](http://www.daogukj.com/vxwjdfib/)
+- [福建船厂爆炸致1名消防员牺牲](http://www.movie.hkepx.cn/movie/6409275.htm)
+- [深圳女生一天1500专门劝人别买房](http://www.play.hengshemaoyi.cn/xiju/2772698.htm)
+- [银行能办结婚证了](http://www.daogukj.com/dwkhbexl/)
+- [胖东来、腾讯都曾因涨租金而搬离，有人说房东会视盈利情况涨租，这样做合理吗？对他们有什么影响？](http://www.daogukj.com/7336913)
+- [如何评价在 8 月 13 日发布的 DeepSeek Harness？](http://www.daogukj.com/7257814)
+- [Bin BLG](http://www.movie.hkepx.cn/xiju/4522982.htm)
+- [日全食后“眼睛疼”](http://www.movie.hkepx.cn/movie/5611897.htm)
 - [因长期在中东服役，多名水兵试图从美国海军「林肯」号跳海，为什么会这样？美国中东长期部署带来哪些问题？](http://www.play.hengshemaoyi.cn/xiju/0281070.htm)
-- [黑白色经典星空喷漆画，划走你就草率了](http://www.movie.hkepx.cn/movie/2873114.htm)
-- [《人类史上最绝望事件》](http://www.play.hengshemaoyi.cn/xiju/7985573.htm)
-- [李雪健已完全听不见](http://www.daogukj.com/1201346)
-- [《癫佬外传》第一季合集](http://www.play.hengshemaoyi.cn/xiju/9868547.htm)
-- [如何评价9999元起售的荣耀RobotPhone，有哪些亮点值得关注？](http://www.play.hengshemaoyi.cn/xiju/4472820.htm)
+- [河流地貌](http://www.movie.hkepx.cn/movie/2873114.htm)
+- [猎哥说打绝航能让人眼前一亮【三角洲动画·勇敢者篇】](http://www.play.hengshemaoyi.cn/xiju/7985573.htm)
+- [女子爱生闷气乳腺癌去世 丈夫痛哭](http://www.daogukj.com/1201346)
+- [这些散落在不同作品里的日系旋律，早已不止是耳边流淌的曲调。](http://www.play.hengshemaoyi.cn/xiju/9868547.htm)
+- [为什么过去都说鱼翅和鲍鱼是顶级菜肴，而现在却很少人提了？](http://www.play.hengshemaoyi.cn/xiju/4472820.htm)
 - [《影之刃零》预购开启，11分钟实机预告公开](http://www.daogukj.com/6717907)
-- [亏50万股民借钱缴款中签宇树](http://www.daogukj.com/smbgijxm/)
-- [宇树科技遭弃购8734股](http://www.daogukj.com/ttaxgjnj/)
-- [这不是黑历史…是23年 我奋斗的开始…差点gg也得拍视频](http://www.movie.hkepx.cn/movie/2477961.htm)
+- [俩孩子将超市内几十种杂粮混掺](http://www.daogukj.com/smbgijxm/)
+- [中国印尼首次台岛以东联演有何深意](http://www.daogukj.com/ttaxgjnj/)
+- [⚡颅 蹬 的 回 声⚡](http://www.movie.hkepx.cn/movie/2477961.htm)
 - [田曦薇胡一天吻戏是我能看的吗](http://www.movie.hkepx.cn/movie/7906581.htm)
-- [俩孩子将超市内几十种杂粮混掺](http://www.play.hengshemaoyi.cn/xiju/2898700.htm)
+- [iPhone18系列发布节奏确认](http://www.play.hengshemaoyi.cn/xiju/2898700.htm)
 - [邹市明辟谣](http://www.daogukj.com/8209027)
 - [深圳高温达极端等级](http://www.play.hengshemaoyi.cn/kongbu/8768079.htm)
-- [39度高温管家喊话全楼关空调](http://www.movie.hkepx.cn/movie/0482312.htm)
-- [Angelababy羌族服饰ccd大片](http://www.play.hengshemaoyi.cn/xiju/9281018.htm)
-- [暴雨过后这7类食物一口都别碰](http://www.play.hengshemaoyi.cn/xiju/2910980.htm)
-- [河流地貌](http://www.movie.hkepx.cn/xiju/6292361.htm)
+- [男子补办结婚证发现有两个妻子](http://www.movie.hkepx.cn/movie/0482312.htm)
+- [金鹰奖女主提名](http://www.play.hengshemaoyi.cn/xiju/9281018.htm)
+- [39度高温管家喊话全楼关空调](http://www.play.hengshemaoyi.cn/xiju/2910980.htm)
+- [【半佛】足不出户，背刺满屋](http://www.movie.hkepx.cn/xiju/6292361.htm)
 - [紧急预拨8000万支持3省抢险救灾](http://www.play.hengshemaoyi.cn/xiju/0614862.htm)
-- [当年为加入 WTO 做出的让步，今天看来到底有多值？](http://www.daogukj.com/9979795)
-- [28岁快递员突发大面积脑梗死](http://www.play.hengshemaoyi.cn/kongbu/1433199.htm)
-- [这视频等了五年！](http://www.movie.hkepx.cn/xiju/7129841.htm)
-- [女子虐待女儿致死 入狱后屡次轻生](http://www.play.hengshemaoyi.cn/xiju/9779871.htm)
-- [iPhone18系列发布节奏确认](http://www.play.hengshemaoyi.cn/kongbu/0816683.htm)
+- [新规禁止居民楼开油烟餐饮，这类餐饮业未来将何去何从？居民区的「苍蝇馆子」以后会不会越来越少了？](http://www.daogukj.com/9979795)
+- [宇树科技遭弃购8734股](http://www.play.hengshemaoyi.cn/kongbu/1433199.htm)
+- [站在火堆旁 怎么可能感受不到他的炙热呢](http://www.movie.hkepx.cn/xiju/7129841.htm)
+- [网友晒出自家养的“排骨猪”](http://www.play.hengshemaoyi.cn/xiju/9779871.htm)
+- [为什么胖东来关店比开店还可怕](http://www.play.hengshemaoyi.cn/kongbu/0816683.htm)
 - [中国持续刷新生态“成绩单”](http://www.movie.hkepx.cn/movie/2013477.htm)
-- [男子补办结婚证发现有两个妻子](http://www.play.hengshemaoyi.cn/xiju/7205858.htm)
-- [大巴车悄悄杀回来了吗](http://www.play.hengshemaoyi.cn/kongbu/7066491.htm)
+- [女子虐待女儿致死 入狱后屡次轻生](http://www.play.hengshemaoyi.cn/xiju/7205858.htm)
+- [美林肯号航母上多名水兵试图跳海自杀](http://www.play.hengshemaoyi.cn/kongbu/7066491.htm)
 - [舍不得买可直接休学退学？校方通报](http://www.movie.hkepx.cn/movie/8012853.htm)
-- [任嘉伦红房子成青岛景点](http://www.daogukj.com/6669739)
-- [Bin BLG](http://www.play.hengshemaoyi.cn/xiju/7115036.htm)
-- [手机价格全线暴涨](http://www.movie.hkepx.cn/xiju/8116216.htm)
-- [绿皮火车改建成酒店 每晚上千元](http://www.play.hengshemaoyi.cn/xiju/4734993.htm)
-- [女子爱生闷气乳腺癌去世 丈夫痛哭](http://www.daogukj.com/lwpbikmi/)
-- [哪些房子正失去变现价值](http://www.movie.hkepx.cn/movie/6992838.htm)
-- [7月报告新增新冠确诊病例52.2万例](http://www.movie.hkepx.cn/xiju/0832634.htm)
-- [琢磨个把月，用一张纸折出了奥黛塔](http://www.play.hengshemaoyi.cn/kongbu/7290198.htm)
-- [长着云台的手机？荣耀Robot Phone上手](http://www.daogukj.com/jolmznpt/)
+- [广东9月1日起上调最低工资](http://www.daogukj.com/6669739)
+- [王橹杰 化妆师](http://www.play.hengshemaoyi.cn/xiju/7115036.htm)
+- [陌生人让你读承诺性文字千万要谨慎](http://www.movie.hkepx.cn/xiju/8116216.htm)
+- [成都一男子假冒交警霸气执法被行拘](http://www.play.hengshemaoyi.cn/xiju/4734993.htm)
+- [博主：日本经济深陷无解死局](http://www.daogukj.com/lwpbikmi/)
+- [曝苹果iPhone 18搭载12GB内存](http://www.movie.hkepx.cn/movie/6992838.htm)
+- [“他衣服是破的 却给女儿买新的”](http://www.movie.hkepx.cn/xiju/0832634.htm)
+- [🐧当你打游戏时父母进你房间蹭空调🐧](http://www.play.hengshemaoyi.cn/kongbu/7290198.htm)
+- [《癫佬外传》第一季合集](http://www.daogukj.com/jolmznpt/)
 - [胖东来许昌老店关闭周边商户发声](http://www.play.hengshemaoyi.cn/xiju/2833298.htm)
 
 </details>
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4e94185e08cce8efa0c2 -->
+<!-- content-fingerprint: 1dfe5d33e60edb8944e9 -->
