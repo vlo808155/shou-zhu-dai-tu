@@ -2,11 +2,11 @@
 
 # 万宁海边挤满上“体校”的人
 
-> 来源：百度热搜 · 排名：第 7 位 · 热度：7139974 · 更新：2026-08-14T06:47:04+08:00
+> 来源：百度热搜 · 排名：第 7 位 · 热度：7136987 · 更新：2026-08-14T07:26:27+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“万宁海边挤满上“体校”的人”位列第 7 位，公开热度指标为 7139974。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“万宁海边挤满上“体校”的人”位列第 7 位，公开热度指标为 7136987。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：过去，年轻人去海岛度假，通常有一套标准动作——看海、拍照、逛景点、住酒店。但万宁不太一样，这里的海不是背景版，是真正的运动场。运动替代景点，成为年轻人判断一次度假是否值得的新标准。白天暴汗，晚上蹦迪，万宁海边挤满上“体校”的年轻人。
 
@@ -18,8 +18,8 @@
 
 ## 相关热点
 
-- [WTT欧洲大满贯瑞典站2026](yi-zi-qian-jin.md)
-- [苏州“我听交警的”案判了](yi-fan-feng-shun.md)
+- [中国两大芯片巨头业绩超预期](yi-zi-qian-jin.md)
+- [史上最大IPO或将易主](yi-fan-feng-shun.md)
 - [铃木、雷诺、Jeep、三菱退出中国市场，如今雪佛兰也退出中国市场，说明了什么？](yi-ming-jing-ren.md)
 - [琢磨个把月，用一张纸折出了奥黛塔](yi-jian-shuang-diao.md)
 
@@ -27,9 +27,9 @@
 
 - [看似很香的低价房产藏重重陷阱](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
 - [39度高温管家喊话全楼关空调](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [林诗栋 魔鬼赛程](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [沈腾《欢迎来龙餐馆》热映 谁将获利](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [天然气公司要求壁挂炉满8年必须换](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [白海豚残涡入海后或再度加强](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [女子乳腺癌去世丈夫痛哭](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [月薪三万多，和老公都太忙，都没时间照顾孩子，老公让我回家照顾孩子几年先，如果是你该怎么选？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
@@ -38,22 +38,22 @@
 
 - [新规禁止居民楼开油烟餐饮，这类餐饮业未来将何去何从？居民区的「苍蝇馆子」以后会不会越来越少了？](http://www.movie.hkepx.cn/xiju/6552474.htm)
 - [琢磨个把月，用一张纸折出了奥黛塔](http://www.movie.hkepx.cn/movie/8544791.htm)
-- [深圳女生一天1500专门劝人别买房](http://www.daogukj.com/3711177)
+- [郭麒麟瘦到认不出](http://www.daogukj.com/3711177)
 - [胖东来闭店一天整条街都没人出摊](http://www.play.hengshemaoyi.cn/kongbu/1559298.htm)
 - [《顽童戏老叟》](http://www.daogukj.com/vxwjdfib/)
-- [苏州“我听交警的”案判了](http://www.movie.hkepx.cn/movie/6409275.htm)
+- [史上最大IPO或将易主](http://www.movie.hkepx.cn/movie/6409275.htm)
 - [王橹杰 化妆师](http://www.play.hengshemaoyi.cn/xiju/2772698.htm)
 - [世界最小鸭子首次现身河北](http://www.daogukj.com/dwkhbexl/)
 - [婚外胚胎案男方已撤销离婚，撤销离婚是否意味此事就此结束？还存在哪些疑点吗？](http://www.daogukj.com/7336913)
 - [45 岁邹市明宣布年底重返拳击赛场，怎样看待他的决定？他的复出能解决目前的财务困境吗？](http://www.daogukj.com/7257814)
 - [我人生的存在感和意义](http://www.movie.hkepx.cn/xiju/4522982.htm)
-- [天津消防匍匐滩涂2公里救出游客](http://www.movie.hkepx.cn/movie/5611897.htm)
+- [小狗交朋友不分物种](http://www.movie.hkepx.cn/movie/5611897.htm)
 - [铃木、雷诺、Jeep、三菱退出中国市场，如今雪佛兰也退出中国市场，说明了什么？](http://www.play.hengshemaoyi.cn/xiju/0281070.htm)
 - [🐧当你打游戏时父母进你房间蹭空调🐧](http://www.movie.hkepx.cn/movie/2873114.htm)
 - [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.play.hengshemaoyi.cn/xiju/7985573.htm)
-- [数百架乌无人机来袭 俄军激烈拦截](http://www.daogukj.com/1201346)
-- [【半佛】足不出户，背刺满屋](http://www.play.hengshemaoyi.cn/xiju/9868547.htm)
-- [月薪三万多，和老公都太忙，都没时间照顾孩子，老公让我回家照顾孩子几年先，如果是你该怎么选？](http://www.play.hengshemaoyi.cn/xiju/4472820.htm)
+- [天然气公司要求壁挂炉满8年必须换](http://www.daogukj.com/1201346)
+- [张安达6-4淘汰韦克林晋级8强](http://www.play.hengshemaoyi.cn/xiju/9868547.htm)
+- [“我能否将你比作一个夏天？”](http://www.play.hengshemaoyi.cn/xiju/4472820.htm)
 - [《影之刃零》预购开启，11分钟实机预告公开](http://www.daogukj.com/6717907)
 - [39度高温管家喊话全楼关空调](http://www.daogukj.com/smbgijxm/)
 - [中国印尼首次台岛以东联演有何深意](http://www.daogukj.com/ttaxgjnj/)
@@ -62,30 +62,30 @@
 - [伊拉克人真实评价龙餐馆](http://www.play.hengshemaoyi.cn/xiju/2898700.htm)
 - [邹市明辟谣](http://www.daogukj.com/8209027)
 - [为什么胖东来关店比开店还可怕](http://www.play.hengshemaoyi.cn/kongbu/8768079.htm)
-- [网友晒出自家养的“排骨猪”](http://www.movie.hkepx.cn/movie/0482312.htm)
-- [魏子宸好帅](http://www.play.hengshemaoyi.cn/xiju/9281018.htm)
-- [俩孩子将超市内几十种杂粮混掺](http://www.play.hengshemaoyi.cn/xiju/2910980.htm)
+- [俩孩子将超市内几十种杂粮混掺](http://www.movie.hkepx.cn/movie/0482312.htm)
+- [新规：禁止在居民楼开油烟餐饮](http://www.play.hengshemaoyi.cn/xiju/9281018.htm)
+- [第一次见“骨瘦如柴”的猪](http://www.play.hengshemaoyi.cn/xiju/2910980.htm)
 - [猎哥说打绝航能让人眼前一亮【三角洲动画·勇敢者篇】](http://www.movie.hkepx.cn/xiju/6292361.htm)
 - [紧急预拨8000万支持3省抢险救灾](http://www.play.hengshemaoyi.cn/xiju/0614862.htm)
 - [如何看待娱乐圈大部分明星失业？](http://www.daogukj.com/9979795)
-- [新规：禁止在居民楼开油烟餐饮](http://www.play.hengshemaoyi.cn/kongbu/1433199.htm)
-- [“我能否将你比作一个夏天？”](http://www.movie.hkepx.cn/xiju/7129841.htm)
-- [成都一男子假冒交警霸气执法被行拘](http://www.play.hengshemaoyi.cn/xiju/9779871.htm)
-- [“腿梗”到底有多凶险](http://www.play.hengshemaoyi.cn/kongbu/0816683.htm)
+- [网传《欢迎来龙餐馆》男主角原定为徐峥，消息靠谱吗？如果是徐峥来演的话你认为效果会比沈腾好吗？](http://www.play.hengshemaoyi.cn/kongbu/1433199.htm)
+- [《奥德赛》“最佳尿点”](http://www.movie.hkepx.cn/xiju/7129841.htm)
+- [男子补办结婚证发现有两个妻子](http://www.play.hengshemaoyi.cn/xiju/9779871.htm)
+- [数百架乌无人机来袭 俄军激烈拦截](http://www.play.hengshemaoyi.cn/kongbu/0816683.htm)
 - [中国持续刷新生态“成绩单”](http://www.movie.hkepx.cn/movie/2013477.htm)
-- [男子补办结婚证发现有两个妻子](http://www.play.hengshemaoyi.cn/xiju/7205858.htm)
-- [4岁半女童“满头白发”确诊白癜风](http://www.play.hengshemaoyi.cn/kongbu/7066491.htm)
+- [黄色预警！17省区市部分地区大到暴雨](http://www.play.hengshemaoyi.cn/xiju/7205858.htm)
+- [为什么认知高的人最终都会走向金融市场？](http://www.play.hengshemaoyi.cn/kongbu/7066491.htm)
 - [舍不得买可直接休学退学？校方通报](http://www.movie.hkepx.cn/movie/8012853.htm)
-- [小伙投诉核磁震坏身体影响夫妻生活](http://www.daogukj.com/6669739)
+- [男子健身房指导女友被要求看结婚证](http://www.daogukj.com/6669739)
 - [田曦薇胡一天吻戏是我能看的吗](http://www.play.hengshemaoyi.cn/xiju/7115036.htm)
-- [大巴车悄悄杀回来了吗](http://www.movie.hkepx.cn/xiju/8116216.htm)
-- [日全食后“眼睛疼”](http://www.play.hengshemaoyi.cn/xiju/4734993.htm)
-- [为什么娱乐圈这么多人得强直性脊柱炎](http://www.daogukj.com/lwpbikmi/)
-- [曝苹果iPhone 18搭载12GB内存](http://www.movie.hkepx.cn/movie/6992838.htm)
-- [哥哥借房给侄女上学 房子被弟弟偷卖](http://www.movie.hkepx.cn/xiju/0832634.htm)
+- [苏州“我听交警的”案判了](http://www.movie.hkepx.cn/xiju/8116216.htm)
+- [开推5疑似只剩刘宇宁周柯宇](http://www.play.hengshemaoyi.cn/xiju/4734993.htm)
+- [李雪健已完全听不见](http://www.daogukj.com/lwpbikmi/)
+- [《寄生虫》里的豪宅，看起来没什么东西，豪在哪里？](http://www.movie.hkepx.cn/movie/6992838.htm)
+- [成都一男子假冒交警霸气执法被行拘](http://www.movie.hkepx.cn/xiju/0832634.htm)
 - [「直到大地变成一颗烂苹果！！」](http://www.play.hengshemaoyi.cn/kongbu/7290198.htm)
 - [《人类史上最绝望事件》](http://www.daogukj.com/jolmznpt/)
-- [史上最大IPO或将易主](http://www.play.hengshemaoyi.cn/xiju/2833298.htm)
+- [胖东来许昌老店关闭周边商户发声](http://www.play.hengshemaoyi.cn/xiju/2833298.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: cb2c2b653228795b1354 -->
+<!-- content-fingerprint: 7bd914358e9784e72fc0 -->
