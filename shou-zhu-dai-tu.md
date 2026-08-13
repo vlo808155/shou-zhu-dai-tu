@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 姚安娜真名曝光
+# 媒体曝茶颜悦色入职培训强制收手机、被子叠「豆腐块」，具体什么情况？企业的行为侵犯员工权益了吗？
 
-> 来源：百度热搜 · 排名：第 5 位 · 热度：7328409 · 更新：2026-08-13T08:45:46+08:00
+> 来源：知乎热榜 · 排名：第 5 位 · 热度：196 万热度 · 分类：问答 · 更新：2026-08-13T11:17:29+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“姚安娜真名曝光”位列第 5 位，公开热度指标为 7328409。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“媒体曝茶颜悦色入职培训强制收手机、被子叠「豆腐块」，具体什么情况？企业的行为侵犯员工权益了吗？”位列第 5 位，公开热度指标为 196 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月12日，悬疑剧《烈阳之上》官宣完整演员阵容，该剧角色海报里姚安娜标注为本名姚思为。
+来源公开摘要显示：“裹着军事化外壳的形式主义大秀，恶心程度直接拉满”，近期，茶颜悦色因内部管理等问题引发众多员工不满。 《BUG》栏目获悉，该品牌正要求湖南、江苏等地员工入职前参加“军训”，军训期间的规定十分严苛： 手机必须上交； 内务要求叠“豆腐块”； 就餐全程禁言且有专人检查剩饭情况，不许剩一粒米； 需要背诵学习包括企业文化、服务口播话术等多项内容 … 上述都合格后才能“毕业”。 新员工质疑：“明明是做奶茶的入职培训，却搞着封闭式军事化管理，赤裸裸的服从性测试”。 然而，苛刻的入职只是第一步，在店内想要拿提成更是堪比登天。一线员工透露，提成大体与三部分挂钩，分别是门店
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [流星雨](wang-mei-zhi-ke.md)
-- [电车真的比油车更省钱吗](wen-ji-qi-wu.md)
-- [中国种植的土地那么大，为什么感觉东北大米比较出名又好吃？](wo-xin-chang-dan.md)
-- [深切缅怀！朱总理一路走好！](po-fu-chen-zhou.md)
+- [《癫佬外传》第一季合集](wang-mei-zhi-ke.md)
+- [魏如萱称歌手丑八怪是节目组选的](wen-ji-qi-wu.md)
+- [3万全款买40平房是机会还是坑](wo-xin-chang-dan.md)
+- [《西游记》中猪八戒和沙和尚到底是真的弱还是在摸鱼？](po-fu-chen-zhou.md)
 
 ## 站内推荐
 
-- [据媒体报道部分手机壳疑似采用废弃针管等医疗垃圾加工而成，真的吗？对健康会有多大危害？消费者该如何辨别？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [龙餐馆](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [升学宴35桌无人上桌](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [员工台风天临时请假被罚近1500元](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [大量人员被抓捕！三角洲行动被央视点名](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [新能源汽车新车销量占比首超60%](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [曝曾辉送考人不是韩雨彤了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [比Lululemon还贵的瑜伽服来中国了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [升学宴35桌无人上桌](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [姜潮麦迪娜新疆婚礼含金量太高了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [朱镕基同志逝世](http://www.daogukj.com/srmtipfy/)
-- [员工20多年未到岗 单位登返岗通知书](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
-- [这些散落在不同作品里的日系旋律，早已不止是耳边流淌的曲调。](http://www.daogukj.com/5764219)
-- [谢苗称曾在哈尔滨常驻两个月拍戏](http://www.daogukj.com/5051205)
-- [《癫佬外传》第一季合集](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
-- [百米赛道高难度闯关、只有上过的才知道含金量有多高！](http://www.movie.hkepx.cn/movie/3745200.htm)
-- [网传再见朋友拟邀马天宇张萌](http://www.daogukj.com/eptgayul/)
-- [3孩非亲生当事人自述前妻生活疑点](http://www.daogukj.com/zzzmzdnw/)
-- [中国女篮不敌尼日利亚 杨舒予23分](http://www.daogukj.com/2895651)
-- [这不是黑历史…是23年 我奋斗的开始…差点gg也得拍视频](http://www.daogukj.com/bmrafxkl/)
-- [如何看待媒体曝沃尔特 120 亿美元出售湖人，创历史记录？](http://www.movie.hkepx.cn/movie/6678209.htm)
-- [李雪健已经完全听不见了](http://www.daogukj.com/2230415)
-- [胖东来弃租背后房东的“话事权”转移](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
-- [普京：亚太形成新军事政治集团](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
-- [🔥全看完的可以封神了！三角洲AI夏日晚会🔥](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
-- [《阿嬷》导演看《欢迎来龙餐馆》落泪](http://www.movie.hkepx.cn/xiju/6217864.htm)
-- [梁文锋打新宇树科技有望浮盈超7亿](http://www.movie.hkepx.cn/movie/4778790.htm)
-- [【咒术回战IF】高羽史彦:你觉得未来的英雄来救场会搞笑吗？【B萌应援】](http://www.movie.hkepx.cn/movie/7470449.htm)
-- [60万亿元消费蓝海要来了](http://www.movie.hkepx.cn/movie/6111499.htm)
-- [电车真的比油车更省钱吗](http://www.movie.hkepx.cn/xiju/2348853.htm)
-- [梁文锋财富一年暴涨 3850% ，跻身全球亿万富豪榜，他是如何做到的？](http://www.daogukj.com/fygnbifa/)
-- [DeepSeek重磅更新 V4Pro正式版上线](http://www.daogukj.com/9070712)
-- [DeepSeek V4 Pro 正式版发布，如何评价该模型？](http://www.daogukj.com/hoflukum/)
-- [员工台风天临时请假被罚近1500元](http://www.daogukj.com/3336484)
-- [王健林现在怎么样了? 万达什么情况?](http://www.movie.hkepx.cn/movie/3675931.htm)
-- [普京观摩舰队演习作战图被打码](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
-- [大量人员被抓捕！三角洲行动被央视点名](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
-- [Deepseek V4Pro正式版发布，相比Claude Fable 5等模型，性能如何？性价比高吗？](http://www.daogukj.com/xljzrgjc/)
-- [胖东来关一家店为何全民关注](http://www.daogukj.com/sfjdsknb/)
-- [🐧当你打游戏时父母进你房间蹭空调🐧](http://www.movie.hkepx.cn/xiju/0712256.htm)
-- [威少（维斯布鲁克）宣布退役，结束长达 18 年的 NBA 生涯，如何评价他的职业生涯？](http://www.daogukj.com/blhofduy/)
-- [甄子丹“饰演”《影之刃零》中的角色“魔渊”，通过动捕+面捕参与游戏制作，使用“饰演”描述是否合适？](http://www.daogukj.com/qdmxuvra/)
-- [升学宴35桌无人上桌](http://www.daogukj.com/3062862)
-- [如何看待杨奇回应《黑神话：钟馗》进度「设计阶段会远离 AIGC 工具，诺兰的奥德赛也是古法创作」？](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
-- [机器人手机发布首日官网商城售罄](http://www.daogukj.com/4819328)
-- [浙江一公司收到美国2.62亿元关税退税](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
-- [小菜园就顾客用餐盘喂狗事件致歉](http://www.movie.hkepx.cn/xiju/6449274.htm)
-- [女孩在自家店里完成12部位颠球](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
-- [《影之刃零》预购开启，11分钟实机预告公开](http://www.movie.hkepx.cn/xiju/8624591.htm)
-- [广东又一个千万级机场来了](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
-- [为什么《哪吒之魔童闹海》获百花奖最佳影片无人站起，《惊蛰无声》获优秀影片，现场全体起立？](http://www.daogukj.com/2518516)
-- [第一视角从中国空间站看地球](http://www.movie.hkepx.cn/movie/2625646.htm)
-- [中国种植的土地那么大，为什么感觉东北大米比较出名又好吃？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
-- [宇树科技黄牛收购价涨到410元](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
-- [为什么《蜘蛛侠》能拍「交不起房租」，国产大片却总在拍「光鲜亮丽的拯救世界」？](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
-- [「直到大地变成一颗烂苹果！！」](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
-- [DeepSeek发布V4Pro正式版](http://www.movie.hkepx.cn/xiju/9162988.htm)
-- [上半年全国离婚登记138.3万对](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
-- [武大靖出任中国短道速滑队主教练，他有哪些优势？将面临哪些挑战？](http://www.daogukj.com/xfhybzga/)
-- [一公司收到美国2.62亿元关税退税](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
+- [男子出轨销售买千万保险还转账350万](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
+- [胖东来新乡店旧址如今客流稀少](http://www.daogukj.com/5764219)
+- [诺兰2.5亿巨制！看懂奥德赛](http://www.daogukj.com/5051205)
+- [云南大象睡了一地](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
+- [「直到大地变成一颗烂苹果！！」](http://www.movie.hkepx.cn/movie/3745200.htm)
+- [员工台风天临时请假被罚近1500元](http://www.daogukj.com/eptgayul/)
+- [如何看待郭德纲演出中即兴篡改经典红歌《弹起我心爱的土琵琶》，因未提前报备，遭武汉文旅立案调查？](http://www.daogukj.com/zzzmzdnw/)
+- [李雪健已完全听不见](http://www.daogukj.com/2895651)
+- [机器人手机发布首日官网商城售罄](http://www.daogukj.com/bmrafxkl/)
+- [男子飞两万公里到南美洲以为到四川](http://www.movie.hkepx.cn/movie/6678209.htm)
+- [🔥全看完的可以封神了！三角洲AI夏日晚会🔥](http://www.daogukj.com/2230415)
+- [男子装空调坠亡 家属：免费帮朋友](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
+- [73岁奶奶将成中国首批太空游客](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
+- [威少（维斯布鲁克）宣布退役，结束长达 18 年的 NBA 生涯，如何评价他的职业生涯？](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
+- [《起屁了》红石音乐](http://www.movie.hkepx.cn/xiju/6217864.htm)
+- [威少宣布退役](http://www.movie.hkepx.cn/movie/4778790.htm)
+- [黑龙江二龙湖上演鱼跃龙门奇观](http://www.movie.hkepx.cn/movie/7470449.htm)
+- [第一视角从中国空间站看地球](http://www.movie.hkepx.cn/movie/6111499.htm)
+- [魏如萱称歌手丑八怪是节目组选的](http://www.movie.hkepx.cn/xiju/2348853.htm)
+- [日本“失去的三十年”有些行业却暴涨](http://www.daogukj.com/fygnbifa/)
+- [《顽童戏老叟》](http://www.daogukj.com/9070712)
+- [胖东来许昌老店关闭周边商户发声](http://www.daogukj.com/hoflukum/)
+- [升学宴35桌无人上桌](http://www.daogukj.com/3336484)
+- [苹果被曝正测试长鑫存储芯片，将用于在中国市场销售的设备，双方最终达成合作的可能性有多大？](http://www.movie.hkepx.cn/movie/3675931.htm)
+- [狄仁杰小李飞刀皮肤曝光](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
+- [姜潮麦迪娜新疆婚礼含金量太高了](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
+- [男子分手十多年想要回30克金手镯](http://www.daogukj.com/xljzrgjc/)
+- [华人加密投资者叶俊德被曝全裸从 30 楼坠亡，生前曾管理超 24 亿美元资产，哪些信息值得关注？](http://www.daogukj.com/sfjdsknb/)
+- [DeepSeek V4 Pro 正式版发布，如何评价该模型？](http://www.movie.hkepx.cn/xiju/0712256.htm)
+- [7 月小米 SU7 销量 21,044 辆，连续 4 个月位列 20 万以上轿车销量第一，如何评价？](http://www.daogukj.com/blhofduy/)
+- [男子双腿被绞断 20个月后恢复行走](http://www.daogukj.com/qdmxuvra/)
+- [比Lululemon还贵的瑜伽服来中国了](http://www.daogukj.com/3062862)
+- [湖北老河口小清河河水上涨玉米被淹没](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
+- [梁家辉在《人民日报》撰文](http://www.daogukj.com/4819328)
+- [顾客用餐盘喂狗餐厅致歉 到底是谁错](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
+- [杭州最美厕所走红](http://www.movie.hkepx.cn/xiju/6449274.htm)
+- [深切缅怀！朱总理一路走好！](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
+- [🐧当你打游戏时父母进你房间蹭空调🐧](http://www.movie.hkepx.cn/xiju/8624591.htm)
+- [医护称易烊千玺演刘春和太逼真](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
+- [网传再见朋友拟邀马天宇张萌](http://www.daogukj.com/2518516)
+- [《影之刃零》预购开启，11分钟实机预告公开](http://www.movie.hkepx.cn/movie/2625646.htm)
+- [3万全款买40平房是机会还是坑](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
+- [李雪健已经完全听不见了](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
+- [卢伟冰官宣小米澎湃OS4](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
+- [为纪念逝去的小狗创作的歌曲，却戳中无数人的内心，火了二十多年](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
+- [网友爆料科技圈电商圈的大厂拒收阿里系中高层，是真的吗？反映了什么问题？他们为什么被称为互联网藤壶？](http://www.movie.hkepx.cn/xiju/9162988.htm)
+- [广东又一个千万级机场来了](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
+- [Deepseek V4Pro正式版发布，相比Claude Fable 5等模型，性能如何？性价比高吗？](http://www.daogukj.com/xfhybzga/)
+- [骑行辅警被刺死其父亲发声](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
 
 </details>
 
 ## 原始来源
 
-- [姚安娜真名曝光](https://www.baidu.com/s?wd=%E5%A7%9A%E5%AE%89%E5%A8%9C%E7%9C%9F%E5%90%8D%E6%9B%9D%E5%85%89&sa=fyb_news&rsv_dl=fyb_news)
+- [媒体曝茶颜悦色入职培训强制收手机、被子叠「豆腐块」，具体什么情况？企业的行为侵犯员工权益了吗？](https://www.zhihu.com/question/2070982459156424668)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a05764bed5f8a45ed50b -->
+<!-- content-fingerprint: f5bdd514366220664469 -->
