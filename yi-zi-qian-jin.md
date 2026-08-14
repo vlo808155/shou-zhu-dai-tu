@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 谢霆锋认为糖拌西红柿不能拿来比赛
+# 胖东来闭店一天整条街都没人出摊
 
-> 来源：微博热搜 · 排名：第 8 位 · 热度：525132 · 分类：综艺 · 更新：2026-08-14T15:47:40+08:00
+> 来源：微博热搜 · 排名：第 8 位 · 热度：375917 · 分类：民生新闻 · 更新：2026-08-14T16:52:20+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“谢霆锋认为糖拌西红柿不能拿来比赛”位列第 8 位，公开热度指标为 525132，榜单分类为“综艺”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“胖东来闭店一天整条街都没人出摊”位列第 8 位，公开热度指标为 375917，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `综艺`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [河南一进村桥梁受损 无人机空投物资](yi-fan-feng-shun.md)
-- [胖东来许昌 24 年老店将关闭，对周边商户和商圈发展有哪些影响？](yi-ming-jing-ren.md)
-- [黑白色经典星空喷漆画，划走你就草率了](yi-jian-shuang-diao.md)
-- [油价今晚下调 加满一箱油少花9元](shou-zhu-dai-tu.md)
+- [国产“空中重卡”开展极限测试](yi-fan-feng-shun.md)
+- [戚薇推出数字分身，成为首位内娱开放 AI 授权的艺人，明星拥抱数字分身将带来哪些新变化？](yi-ming-jing-ren.md)
+- [长着云台的手机？荣耀Robot Phone上手](yi-jian-shuang-diao.md)
+- [五粮液不得低于800元抛售](shou-zhu-dai-tu.md)
 
 ## 站内推荐
 
-- [首款折叠iPhone](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
-- [终于懂了亲人离世是一生的潮湿](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
-- [野生狗奶](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
-- [韩国女星被扒曾祖父是韩奸](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
-- [武汉投用100台无人配送车](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
+- [3到5年内社保走向全额实缴](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [谢霆锋认为糖拌西红柿不能拿来比赛](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [常州星巴克 关空调](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [樊振东全新XT5混动初体验](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [牛来票房 7352元没有万](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [虎王发呆被游客吓得“虎躯一震”](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
-- [武汉投用100台无人配送车](http://www.daogukj.com/cmyxzqtz/)
-- [韩国女星被扒曾祖父是韩奸](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
-- [2026瑞满1/4男双林诗栋/温瑞博0-3艾尼克斯·勒布伦/菲尼克斯·勒布伦，如何看待这场比赛？](http://www.movie.hkepx.cn/movie/2501356.htm)
+- [秦焰告别仪式](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
+- [牛来票房 7352元没有万](http://www.daogukj.com/cmyxzqtz/)
+- [樊振东全新XT5混动初体验](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
+- [如何评价零宣发国产动画电影《牛来》上映，建模粗糙惊呆观众，9 天累计票房仅为 7169 元？](http://www.movie.hkepx.cn/movie/2501356.htm)
 - [美国政府设备重新允许使用TikTok，特朗普称其在TikTok上长期霸榜，靠它帮助赢下大选，如何解读？](http://www.daogukj.com/ojwknvji/)
-- [张雅琪 湖南卫视下场](http://www.daogukj.com/2178083)
-- [《人类史上最绝望事件》](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
+- [浙江长兴泥石流致1死3失联](http://www.daogukj.com/2178083)
+- [河南唐河14岁女孩落水失联](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
 - [网上花大钱买神药包治百病？假的](http://www.play.hengshemaoyi.cn/xiju/1338838.htm)
-- [🐧功夫女足🐧](http://www.daogukj.com/1763072)
+- [小米澎湃OS4上手体验：变化如何，优化怎样？](http://www.daogukj.com/1763072)
 - [如何评价 DeepSeek 与北大联合发布的新论文，有哪些亮点？对 Agent 发展有什么影响？](http://www.daogukj.com/8155971)
-- [油价今晚下调 加满一箱油少花9元](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
-- [戚薇推出数字分身，成为首位内娱开放 AI 授权的艺人，明星拥抱数字分身将带来哪些新变化？](http://www.daogukj.com/6164330)
-- [用MC还原《神的随波逐流》 【B萌应援】](http://www.movie.hkepx.cn/movie/1564233.htm)
-- [张雪机车车手德比斯说正在学习中文](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
+- [五粮液不得低于800元抛售](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
+- [中国有什么成语或者典故可以对应「奥德赛」这个词呢？](http://www.daogukj.com/6164330)
+- [猎哥说打绝航能让人眼前一亮【三角洲动画·勇敢者篇】](http://www.movie.hkepx.cn/movie/1564233.htm)
+- [普京登岛是中国怂恿？日网友又说胡话](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
 - [WasteTheFallen丨首曝PV＆实机演示：凝视深渊，人性渐泯](http://www.daogukj.com/agvcmxmf/)
-- [【半佛】足不出户，背刺满屋](http://www.daogukj.com/qklffuer/)
-- [茅台党委原副书记赵书跃被查](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
-- [河南一进村桥梁受损 无人机空投物资](http://www.daogukj.com/0737886)
-- [华为“天才少年”宁博宇回应离职](http://www.movie.hkepx.cn/xiju/7431665.htm)
+- [河流地貌](http://www.daogukj.com/qklffuer/)
+- [A股迎来反弹终点了吗](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
+- [国产“空中重卡”开展极限测试](http://www.daogukj.com/0737886)
+- [周星驰经纪人 《龙餐馆》](http://www.movie.hkepx.cn/xiju/7431665.htm)
 - [我国生态环境持续向好](http://www.daogukj.com/igpatdfc/)
-- [长鑫科技单日市值超越腾讯，成 A 股、港股两市市值最高的中国上市公司，如何看待当下市场给出的估值水平？](http://www.daogukj.com/4475902)
-- [有没有一个瞬间让你失去追求汽车性能的动力？](http://www.daogukj.com/6579509)
-- [胖东来许昌 24 年老店将关闭，对周边商户和商圈发展有哪些影响？](http://www.movie.hkepx.cn/xiju/5461514.htm)
+- [WTT 瑞典大满贯王艺迪/陈熠 1-3 负于张本美和/早田希娜，国乒女双提前出局，如何评价这场比赛？](http://www.daogukj.com/4475902)
+- [胖东来许昌 24 年老店将关闭，对周边商户和商圈发展有哪些影响？](http://www.daogukj.com/6579509)
+- [戚薇推出数字分身，成为首位内娱开放 AI 授权的艺人，明星拥抱数字分身将带来哪些新变化？](http://www.movie.hkepx.cn/xiju/5461514.htm)
 - [男子好想来买111元零食复称仅64元，店员退钱但拒绝道歉，零食店频繁出现少称现象，暴露哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
-- [终于懂了亲人离世是一生的潮湿](http://www.daogukj.com/2214905)
-- [披荆斩棘送考人官宣](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
-- [3到5年内社保走向全额实缴](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
-- [《绝区零》希格莉德角色展示 | 好马识途](http://www.daogukj.com/4430972)
-- [《牛来》 观众想哭](http://www.movie.hkepx.cn/xiju/8019376.htm)
-- [国乒1天输6场外战](http://www.movie.hkepx.cn/movie/0123120.htm)
+- [谢霆锋认为糖拌西红柿不能拿来比赛](http://www.daogukj.com/2214905)
+- [公职人员碾死醉汉赔偿后取得谅解](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
+- [卢昱晓 刺棠](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
+- [“央妈这段运镜太有手法了，完全拍出了什么叫意气风发！”](http://www.daogukj.com/4430972)
+- [广东一地发现展翅约26cm蛇头蛾](http://www.movie.hkepx.cn/xiju/8019376.htm)
+- [221元酒店订单商家到手40.67元](http://www.movie.hkepx.cn/movie/0123120.htm)
 - [胖东来涨租房东不种地摘果子](http://www.movie.hkepx.cn/xiju/8033346.htm)
 - [【恐怖版】PVZ恐怖版：序章宣传片](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
-- [小米澎湃OS4上手体验：变化如何，优化怎样？](http://www.daogukj.com/8763764)
-- [大衣哥为消防安全代言分文不收](http://www.daogukj.com/jqstllvn/)
-- [长着云台的手机？荣耀Robot Phone上手](http://www.daogukj.com/1298524)
-- [99岁新四军老战士叶道清逝世](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
-- [“白海豚”送水为何强度大范围广](http://www.daogukj.com/3314823)
-- [中国有什么成语或者典故可以对应“奥德赛”这个词呢？](http://www.play.hengshemaoyi.cn/kongbu/1318289.htm)
+- [🐧功夫女足🐧](http://www.daogukj.com/8763764)
+- [酒吧多名女子穿近似海航空姐制服跳舞](http://www.daogukj.com/jqstllvn/)
+- [用MC还原《神的随波逐流》 【B萌应援】](http://www.daogukj.com/1298524)
+- [“大衣哥”点燃日照文旅热潮](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
+- [追觅卖出首台手机 售价超20万元](http://www.daogukj.com/3314823)
+- [有没有一个瞬间让你失去追求汽车性能的动力？](http://www.play.hengshemaoyi.cn/kongbu/1318289.htm)
 - [【火遮眼】浪客剑心武指执导，年度最爽打戏！](http://www.movie.hkepx.cn/xiju/6376636.htm)
 - [国乒男女双全军覆没](http://www.play.hengshemaoyi.cn/kongbu/4440369.htm)
-- [为什么玄幻小说里人人争抢功法秘籍，而现实中大量能够改变人生的顶级知识免费公开，却很少有人认真学习？](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
-- [肖战素人时期工作谁能干](http://www.daogukj.com/pcyxvqcb/)
+- [《欢迎来龙餐馆》中那枚发芽的土豆意味着什么？影片中还有哪些容易被忽略的隐喻、象征细节？](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
+- [张雅琪 湖南卫视下场](http://www.daogukj.com/pcyxvqcb/)
 - [小伙为控体重改喝 「0糖」「无糖」饮料一年多，体重不降反增血脂也升高了，这是什么原因？](http://www.daogukj.com/7344740)
-- [广东河源发现翅展超26厘米蛇头蛾](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
-- [电影《牛来》上映9天票房7169元](http://www.daogukj.com/okofdfns/)
-- [网友喊詹青云去支付宝答题晒答案](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
-- [《牛来》画面粗制滥造零物料](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
-- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.movie.hkepx.cn/movie/3905354.htm)
-- [武汉女子离婚反赔非洲丈夫17万](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
-- [小米升降车标专利曝光：提高车辆续航](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
+- [茅台党委原副书记赵书跃被查](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
+- [轿车被老人泼满红色液体 警方介入](http://www.daogukj.com/okofdfns/)
+- [《人类史上最绝望事件》](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
+- [如何看待段永平「我敢抱着茅台跟任何基金赌一个亿」的言论？](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
+- [《影之刃零》预购开启，11分钟实机预告公开](http://www.movie.hkepx.cn/movie/3905354.htm)
+- [宜兴山洪](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
+- [电影《牛来》上映9天票房7169元](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
 
 </details>
 
 ## 原始来源
 
-- [谢霆锋认为糖拌西红柿不能拿来比赛](https://s.weibo.com/weibo?q=%E8%B0%A2%E9%9C%86%E9%94%8B%E8%AE%A4%E4%B8%BA%E7%B3%96%E6%8B%8C%E8%A5%BF%E7%BA%A2%E6%9F%BF%E4%B8%8D%E8%83%BD%E6%8B%BF%E6%9D%A5%E6%AF%94%E8%B5%9B)
+- [胖东来闭店一天整条街都没人出摊](https://s.weibo.com/weibo?q=%E8%83%96%E4%B8%9C%E6%9D%A5%E9%97%AD%E5%BA%97%E4%B8%80%E5%A4%A9%E6%95%B4%E6%9D%A1%E8%A1%97%E9%83%BD%E6%B2%A1%E4%BA%BA%E5%87%BA%E6%91%8A)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 21c129904687f1f82eda -->
+<!-- content-fingerprint: 51087d081e39d07b4bb8 -->
