@@ -2,11 +2,11 @@
 
 # 放弃酒店睡车里 自驾1月省万元住宿费
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7424556 · 更新：2026-08-15T06:37:17+08:00
+> 来源：百度热搜 · 排名：第 4 位 · 热度：7428821 · 更新：2026-08-15T06:58:19+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“放弃酒店睡车里 自驾1月省万元住宿费”位列第 4 位，公开热度指标为 7424556。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“放弃酒店睡车里 自驾1月省万元住宿费”位列第 4 位，公开热度指标为 7428821。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：据报道，不少中国新能源车主放弃入住酒店，选择床车露营的出游方式。他们避开节假日酒店涨价的困扰，享受无需赶路的出行自由，在高速服务区、景区停车场过夜，可就近使用充电、厕所、淋浴等配套。8月14日，记者走访多位自驾游客，有家庭表示，自驾一月省了上万元住宿费。
 
@@ -20,16 +20,16 @@
 
 - [中央汇金证金公司集体清仓贵州茅台](wang-mei-zhi-ke.md)
 - [浙江省博一周内两次道歉](wen-ji-qi-wu.md)
-- [如何评价北京协和医院住院医用AI解决了困扰数学界的难题Crouzeix猜想？](wo-xin-chang-dan.md)
+- [男子健身房指导女友被场馆教练认定为外来私教，要求看结婚证，否则就办理退卡，这合理吗？健身房有权核查吗？](wo-xin-chang-dan.md)
 - [用MC还原《神的随波逐流》 【B萌应援】](po-fu-chen-zhou.md)
 
 ## 站内推荐
 
 - [暴雨洪涝过后 喝水千万别大意](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [慢性压力导致幻想沉溺](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [小沈阳刚开播就把腰闪了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
 - [全民进入纯过日子时代](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [曾辉扛住了内娱镜头](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [房主任女儿发声](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [明天起禁用这类塑料制品](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [日本暴雨中国游客无奈地铁站过夜](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
@@ -37,55 +37,55 @@
 <summary>展开更多相关内容</summary>
 
 - [这些一次性塑料制品禁用](http://www.daogukj.com/srmtipfy/)
-- [台湾岛内出现有利于统一的三个变化](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
+- [小伙瞒着父母去泰国找女友被边检劝返](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
 - [文黛黛假死](http://www.daogukj.com/5764219)
 - [我实现了我儿时的梦想](http://www.daogukj.com/5051205)
 - [【独家】时光代理人 第三季 PartOne 第1集 遗忘的过去【8月国创】](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
-- [【火遮眼】浪客剑心武指执导，年度最爽打戏！](http://www.movie.hkepx.cn/movie/3745200.htm)
+- [如何看待呼兰用三个月让开花俱乐部扭亏为盈，月亏最高 12 万变盈利 7 万？](http://www.movie.hkepx.cn/movie/3745200.htm)
 - [Wenbo受伤](http://www.daogukj.com/eptgayul/)
 - [男子好想来买111元零食复称仅64元，店员退钱但拒绝道歉，零食店频繁出现少称现象，暴露哪些问题？](http://www.daogukj.com/zzzmzdnw/)
 - [乌军为何能4小时摧毁俄装甲集群](http://www.daogukj.com/2895651)
-- [女子连中4瓶1元换购商家拒兑换](http://www.daogukj.com/bmrafxkl/)
-- [如何看待呼兰用三个月让开花俱乐部扭亏为盈，月亏最高 12 万变盈利 7 万？](http://www.movie.hkepx.cn/movie/6678209.htm)
-- [小沈阳刚开播就把腰闪了](http://www.daogukj.com/2230415)
-- [二手豪华车为啥卖不动了](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
+- [5年定期存款利率为何逆势上升](http://www.daogukj.com/bmrafxkl/)
+- [郭德纲西安演出取消](http://www.movie.hkepx.cn/movie/6678209.htm)
+- [《下一个是谁》音乐特辑](http://www.daogukj.com/2230415)
+- [突然走红的韩国冰奶在韩国查无此物](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
 - [王传君19年前就参加过选秀](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
-- [《下一个是谁》音乐特辑](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
+- [为什么大家公认天坑专业是土木而不是化工？](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
 - [河流地貌](http://www.movie.hkepx.cn/xiju/6217864.htm)
-- [5年定期存款利率为何逆势上升](http://www.movie.hkepx.cn/movie/4778790.htm)
+- [国乒男女双全军覆没](http://www.movie.hkepx.cn/movie/4778790.htm)
 - [男子占他人车位忘挪四车门全坏了](http://www.movie.hkepx.cn/movie/7470449.htm)
 - [胖东来生活广场店将关闭，周围商户称超市赚钱房东才涨租，于东来称无论钱多钱少，公平正义是底线，如何解读？](http://www.movie.hkepx.cn/movie/6111499.htm)
 - [浙江省博一周内两次道歉](http://www.movie.hkepx.cn/xiju/2348853.htm)
 - [专访2034杯重庆足球小将团队](http://www.daogukj.com/fygnbifa/)
 - [王传君体脂率25.5%](http://www.daogukj.com/9070712)
 - [河南一传染病医院被淹](http://www.daogukj.com/hoflukum/)
-- [曾辉扛住了内娱镜头](http://www.daogukj.com/3336484)
+- [明天起禁用这类塑料制品](http://www.daogukj.com/3336484)
 - [2026 WTT瑞典大满贯，林诗栋2-3再次不敌艾利克斯·勒布伦，无缘8强，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/3675931.htm)
 - [牛来](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
-- [房主任女儿发声](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
-- [男子健身房指导女友被场馆教练认定为外来私教，要求看结婚证，否则就办理退卡，这合理吗？健身房有权核查吗？](http://www.daogukj.com/xljzrgjc/)
-- [五粮液要求经销商不得低于 800 元卖酒，低价出货将遭处罚，这合法吗？控价政策会给经销商带来哪些影响？](http://www.daogukj.com/sfjdsknb/)
+- [日本暴雨中国游客无奈地铁站过夜](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
+- [如何评价北京协和医院住院医用AI解决了困扰数学界的难题Crouzeix猜想？](http://www.daogukj.com/xljzrgjc/)
+- [中国有什么成语或者典故可以对应「奥德赛」这个词呢？](http://www.daogukj.com/sfjdsknb/)
 - [台风白海豚](http://www.movie.hkepx.cn/xiju/0712256.htm)
-- [为什么大家公认天坑专业是土木而不是化工？](http://www.daogukj.com/blhofduy/)
-- [对着别人手机念数字就可能背上贷款](http://www.daogukj.com/qdmxuvra/)
+- [自动驾驶都用激光雷达等以后自动驾驶车多起来了，路上的激光雷达会不会相互干扰？](http://www.daogukj.com/blhofduy/)
+- [窑洞突然坍塌瞬间掩埋小院 当地回应](http://www.daogukj.com/qdmxuvra/)
 - [全民进入纯过日子时代](http://www.daogukj.com/3062862)
-- [普京登岛是中国怂恿？日网友又说胡话](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
-- [台风白海豚杀了个“回马枪”](http://www.daogukj.com/4819328)
+- [萌娃偷吃大哥冰淇淋 大哥直接送](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
+- [五粮液禁止终端价低于800释放何信号](http://www.daogukj.com/4819328)
 - [许昌暴雨60万人断水停电系谣言](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
-- [突然走红的韩国冰奶在韩国查无此物](http://www.movie.hkepx.cn/xiju/6449274.htm)
+- [二手豪华车为啥卖不动了](http://www.movie.hkepx.cn/xiju/6449274.htm)
 - [“ 奔 跑 吧 五 区 兄 弟 ”](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
-- [五粮液禁止终端价低于800释放何信号](http://www.movie.hkepx.cn/xiju/8624591.htm)
-- [“羊群效应”体现得淋漓尽致](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
-- [税务部门回应社保实缴问题](http://www.daogukj.com/2518516)
+- [台风白海豚杀了个“回马枪”](http://www.movie.hkepx.cn/xiju/8624591.htm)
+- [【火遮眼】浪客剑心武指执导，年度最爽打戏！](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
+- [皇阿玛披哥送考五阿哥](http://www.daogukj.com/2518516)
 - [江泽民诞辰100周年纪念币将发行](http://www.movie.hkepx.cn/movie/2625646.htm)
-- [如何评价北京协和医院住院医用AI解决了困扰数学界的难题Crouzeix猜想？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
+- [男子健身房指导女友被场馆教练认定为外来私教，要求看结婚证，否则就办理退卡，这合理吗？健身房有权核查吗？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
 - [81年前“日本投降矣！”](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
-- [明天起禁用这类塑料制品](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
+- [曾辉扛住了内娱镜头](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
 - [黑白色经典星空喷漆画，划走你就草率了](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
-- [纳斯达克即将开启 23 小时连续交易，对投资者是好事还是坏事？](http://www.movie.hkepx.cn/xiju/9162988.htm)
+- [五粮液要求经销商不得低于 800 元卖酒，低价出货将遭处罚，这合法吗？控价政策会给经销商带来哪些影响？](http://www.movie.hkepx.cn/xiju/9162988.htm)
 - [如何评价零宣发国产动画电影《牛来》上映，建模粗糙惊呆观众，9 天累计票房仅为 7169 元？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
 - [围棋与境界、修养之类的东西毫无关系，能赢是因为计算力强，这么明显的道理在AI以前人们怎么不懂？](http://www.daogukj.com/xfhybzga/)
-- [命好的人本质是主体性强](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
+- [曾辉帮韩雨彤整理衣服](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 92a5dd8e8f6c133a7a1e -->
+<!-- content-fingerprint: 30dd7faa15a429386fca -->
