@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 万宁海边挤满上“体校”的人
+# 中国车企攻入日系车大本营
 
-> 来源：百度热搜 · 排名：第 7 位 · 热度：7136987 · 更新：2026-08-14T07:26:27+08:00
+> 来源：百度热搜 · 排名：第 7 位 · 热度：7144102 · 更新：2026-08-14T08:08:26+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“万宁海边挤满上“体校”的人”位列第 7 位，公开热度指标为 7136987。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“中国车企攻入日系车大本营”位列第 7 位，公开热度指标为 7144102。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：过去，年轻人去海岛度假，通常有一套标准动作——看海、拍照、逛景点、住酒店。但万宁不太一样，这里的海不是背景版，是真正的运动场。运动替代景点，成为年轻人判断一次度假是否值得的新标准。白天暴汗，晚上蹦迪，万宁海边挤满上“体校”的年轻人。
+来源公开摘要显示：喊出“全球第一”目标后，比亚迪正直指丰田汽车的“大本营”——日本市场。挑大梁的产品，是比亚迪日本分公司于7月底向授权经销商开放销售的轻型纯电动车——海獭RACCO。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [中国两大芯片巨头业绩超预期](yi-zi-qian-jin.md)
-- [史上最大IPO或将易主](yi-fan-feng-shun.md)
-- [铃木、雷诺、Jeep、三菱退出中国市场，如今雪佛兰也退出中国市场，说明了什么？](yi-ming-jing-ren.md)
-- [琢磨个把月，用一张纸折出了奥黛塔](yi-jian-shuang-diao.md)
+- [女孩中考692分选择中本贯通](yi-zi-qian-jin.md)
+- [俄演习同时朝鲜发射导弹是巧合吗](yi-fan-feng-shun.md)
+- [新规禁止居民楼开油烟餐饮，这类餐饮业未来将何去何从？居民区的「苍蝇馆子」以后会不会越来越少了？](yi-ming-jing-ren.md)
+- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](yi-jian-shuang-diao.md)
 
 ## 站内推荐
 
-- [看似很香的低价房产藏重重陷阱](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [新一代“人造太阳”要来了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
 - [39度高温管家喊话全楼关空调](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [白海豚残涡入海后或再度加强](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [女子乳腺癌去世丈夫痛哭](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [月薪三万多，和老公都太忙，都没时间照顾孩子，老公让我回家照顾孩子几年先，如果是你该怎么选？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [伊朗：美若敢用核弹 全球基地将成靶子](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [白宫发言人辞职真相是什么](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [亲戚3200卖给我的电脑，他说现在2手能卖4000多，能流畅运行生化危机9类型的游戏吗?](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [新规禁止居民楼开油烟餐饮，这类餐饮业未来将何去何从？居民区的「苍蝇馆子」以后会不会越来越少了？](http://www.movie.hkepx.cn/xiju/6552474.htm)
-- [琢磨个把月，用一张纸折出了奥黛塔](http://www.movie.hkepx.cn/movie/8544791.htm)
-- [郭麒麟瘦到认不出](http://www.daogukj.com/3711177)
+- [西南医科大学要求学生在教务处小程序买教材，导员称舍不得买教材就退学，校方有权要求学生必须买新教材吗？](http://www.movie.hkepx.cn/xiju/6552474.htm)
+- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.movie.hkepx.cn/movie/8544791.htm)
+- [为什么娱乐圈这么多人得强直性脊柱炎](http://www.daogukj.com/3711177)
 - [胖东来闭店一天整条街都没人出摊](http://www.play.hengshemaoyi.cn/kongbu/1559298.htm)
-- [《顽童戏老叟》](http://www.daogukj.com/vxwjdfib/)
-- [史上最大IPO或将易主](http://www.movie.hkepx.cn/movie/6409275.htm)
-- [王橹杰 化妆师](http://www.play.hengshemaoyi.cn/xiju/2772698.htm)
-- [世界最小鸭子首次现身河北](http://www.daogukj.com/dwkhbexl/)
-- [婚外胚胎案男方已撤销离婚，撤销离婚是否意味此事就此结束？还存在哪些疑点吗？](http://www.daogukj.com/7336913)
+- [这视频等了五年！](http://www.daogukj.com/vxwjdfib/)
+- [俄演习同时朝鲜发射导弹是巧合吗](http://www.movie.hkepx.cn/movie/6409275.htm)
+- [中国足球小将战平巴萨](http://www.play.hengshemaoyi.cn/xiju/2772698.htm)
+- [WTT欧洲大满贯国乒男双独苗无缘四强](http://www.daogukj.com/dwkhbexl/)
+- [什么胶水可以把木头和木头粘一起，我的古筝散架了，要自己弄，用502稀稀的就渗到木头里了，粘不住？](http://www.daogukj.com/7336913)
 - [45 岁邹市明宣布年底重返拳击赛场，怎样看待他的决定？他的复出能解决目前的财务困境吗？](http://www.daogukj.com/7257814)
-- [我人生的存在感和意义](http://www.movie.hkepx.cn/xiju/4522982.htm)
+- [田曦薇胡一天吻戏是我能看的吗](http://www.movie.hkepx.cn/xiju/4522982.htm)
 - [小狗交朋友不分物种](http://www.movie.hkepx.cn/movie/5611897.htm)
-- [铃木、雷诺、Jeep、三菱退出中国市场，如今雪佛兰也退出中国市场，说明了什么？](http://www.play.hengshemaoyi.cn/xiju/0281070.htm)
-- [🐧当你打游戏时父母进你房间蹭空调🐧](http://www.movie.hkepx.cn/movie/2873114.htm)
-- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.play.hengshemaoyi.cn/xiju/7985573.htm)
-- [天然气公司要求壁挂炉满8年必须换](http://www.daogukj.com/1201346)
-- [张安达6-4淘汰韦克林晋级8强](http://www.play.hengshemaoyi.cn/xiju/9868547.htm)
-- [“我能否将你比作一个夏天？”](http://www.play.hengshemaoyi.cn/xiju/4472820.htm)
-- [《影之刃零》预购开启，11分钟实机预告公开](http://www.daogukj.com/6717907)
+- [新规禁止居民楼开油烟餐饮，这类餐饮业未来将何去何从？居民区的「苍蝇馆子」以后会不会越来越少了？](http://www.play.hengshemaoyi.cn/xiju/0281070.htm)
+- [琢磨个把月，用一张纸折出了奥黛塔](http://www.movie.hkepx.cn/movie/2873114.htm)
+- [河流地貌](http://www.play.hengshemaoyi.cn/xiju/7985573.htm)
+- [如何看待 10 年期、30 年期美债中标利率都达到 2007 年全球金融危机以来最高水平？](http://www.daogukj.com/1201346)
+- [谷歌推出Gemini 3.7 Flash模型](http://www.play.hengshemaoyi.cn/xiju/9868547.htm)
+- [《人类史上最绝望事件》](http://www.play.hengshemaoyi.cn/xiju/4472820.htm)
+- [WasteTheFallen丨首曝PV＆实机演示：凝视深渊，人性渐泯](http://www.daogukj.com/6717907)
 - [39度高温管家喊话全楼关空调](http://www.daogukj.com/smbgijxm/)
-- [中国印尼首次台岛以东联演有何深意](http://www.daogukj.com/ttaxgjnj/)
-- [这些散落在不同作品里的日系旋律，早已不止是耳边流淌的曲调。](http://www.movie.hkepx.cn/movie/2477961.htm)
-- [这3种面包其实是热量刺客](http://www.movie.hkepx.cn/movie/7906581.htm)
-- [伊拉克人真实评价龙餐馆](http://www.play.hengshemaoyi.cn/xiju/2898700.htm)
+- [王橹杰 化妆师](http://www.daogukj.com/ttaxgjnj/)
+- [第一次见“骨瘦如柴”的猪](http://www.movie.hkepx.cn/movie/2477961.htm)
+- [银行能办结婚证了](http://www.movie.hkepx.cn/movie/7906581.htm)
+- [美将对进口无人机及零部件征收关税](http://www.play.hengshemaoyi.cn/xiju/2898700.htm)
 - [邹市明辟谣](http://www.daogukj.com/8209027)
-- [为什么胖东来关店比开店还可怕](http://www.play.hengshemaoyi.cn/kongbu/8768079.htm)
-- [俩孩子将超市内几十种杂粮混掺](http://www.movie.hkepx.cn/movie/0482312.htm)
-- [新规：禁止在居民楼开油烟餐饮](http://www.play.hengshemaoyi.cn/xiju/9281018.htm)
-- [第一次见“骨瘦如柴”的猪](http://www.play.hengshemaoyi.cn/xiju/2910980.htm)
-- [猎哥说打绝航能让人眼前一亮【三角洲动画·勇敢者篇】](http://www.movie.hkepx.cn/xiju/6292361.htm)
+- [国内多晶硅市场连续两周无成交](http://www.play.hengshemaoyi.cn/kongbu/8768079.htm)
+- [挂弹的轰-6J火了](http://www.movie.hkepx.cn/movie/0482312.htm)
+- [苏州“我听交警的”案判了](http://www.play.hengshemaoyi.cn/xiju/9281018.htm)
+- [张帅组合夺得多伦多站女双冠军](http://www.play.hengshemaoyi.cn/xiju/2910980.htm)
+- [《影之刃零》预购开启，11分钟实机预告公开](http://www.movie.hkepx.cn/xiju/6292361.htm)
 - [紧急预拨8000万支持3省抢险救灾](http://www.play.hengshemaoyi.cn/xiju/0614862.htm)
-- [如何看待娱乐圈大部分明星失业？](http://www.daogukj.com/9979795)
-- [网传《欢迎来龙餐馆》男主角原定为徐峥，消息靠谱吗？如果是徐峥来演的话你认为效果会比沈腾好吗？](http://www.play.hengshemaoyi.cn/kongbu/1433199.htm)
+- [胖东来、腾讯都曾因涨租金而搬离，有人说房东会视盈利情况涨租，这样做合理吗？对他们有什么影响？](http://www.daogukj.com/9979795)
+- [多所高校公寓配共享冰箱，如何看待这一举措？会让大学生们提升住宿幸福感吗？](http://www.play.hengshemaoyi.cn/kongbu/1433199.htm)
 - [《奥德赛》“最佳尿点”](http://www.movie.hkepx.cn/xiju/7129841.htm)
-- [男子补办结婚证发现有两个妻子](http://www.play.hengshemaoyi.cn/xiju/9779871.htm)
-- [数百架乌无人机来袭 俄军激烈拦截](http://www.play.hengshemaoyi.cn/kongbu/0816683.htm)
+- [万宁海边挤满上“体校”的人](http://www.play.hengshemaoyi.cn/xiju/9779871.htm)
+- [我人生的存在感和意义](http://www.play.hengshemaoyi.cn/kongbu/0816683.htm)
 - [中国持续刷新生态“成绩单”](http://www.movie.hkepx.cn/movie/2013477.htm)
-- [黄色预警！17省区市部分地区大到暴雨](http://www.play.hengshemaoyi.cn/xiju/7205858.htm)
-- [为什么认知高的人最终都会走向金融市场？](http://www.play.hengshemaoyi.cn/kongbu/7066491.htm)
+- [中使馆重要提醒：中国公民尽快撤离](http://www.play.hengshemaoyi.cn/xiju/7205858.htm)
+- [如何评价9999元起售的荣耀RobotPhone，有哪些亮点值得关注？](http://www.play.hengshemaoyi.cn/kongbu/7066491.htm)
 - [舍不得买可直接休学退学？校方通报](http://www.movie.hkepx.cn/movie/8012853.htm)
-- [男子健身房指导女友被要求看结婚证](http://www.daogukj.com/6669739)
-- [田曦薇胡一天吻戏是我能看的吗](http://www.play.hengshemaoyi.cn/xiju/7115036.htm)
-- [苏州“我听交警的”案判了](http://www.movie.hkepx.cn/xiju/8116216.htm)
+- [国产动画电影《牛来》建模粗糙](http://www.daogukj.com/6669739)
+- [这3种面包其实是热量刺客](http://www.play.hengshemaoyi.cn/xiju/7115036.htm)
+- [史上最大IPO或将易主](http://www.movie.hkepx.cn/xiju/8116216.htm)
 - [开推5疑似只剩刘宇宁周柯宇](http://www.play.hengshemaoyi.cn/xiju/4734993.htm)
-- [李雪健已完全听不见](http://www.daogukj.com/lwpbikmi/)
-- [《寄生虫》里的豪宅，看起来没什么东西，豪在哪里？](http://www.movie.hkepx.cn/movie/6992838.htm)
-- [成都一男子假冒交警霸气执法被行拘](http://www.movie.hkepx.cn/xiju/0832634.htm)
-- [「直到大地变成一颗烂苹果！！」](http://www.play.hengshemaoyi.cn/kongbu/7290198.htm)
-- [《人类史上最绝望事件》](http://www.daogukj.com/jolmznpt/)
-- [胖东来许昌老店关闭周边商户发声](http://www.play.hengshemaoyi.cn/xiju/2833298.htm)
+- [朱老六：选举朱先明为公司董事长](http://www.daogukj.com/lwpbikmi/)
+- [为什么认知高的人最终都会走向金融市场？](http://www.movie.hkepx.cn/movie/6992838.htm)
+- [4岁半女童满头白发网友提醒白癜风](http://www.movie.hkepx.cn/xiju/0832634.htm)
+- [路况千千万，总能遇到点新知识，今天是地上的大镜子](http://www.play.hengshemaoyi.cn/kongbu/7290198.htm)
+- [俩孩子将超市内几十种杂粮混掺](http://www.daogukj.com/jolmznpt/)
+- [为什么胖东来关店比开店还可怕](http://www.play.hengshemaoyi.cn/xiju/2833298.htm)
 
 </details>
 
 ## 原始来源
 
-- [万宁海边挤满上“体校”的人](https://www.baidu.com/s?wd=%E4%B8%87%E5%AE%81%E6%B5%B7%E8%BE%B9%E6%8C%A4%E6%BB%A1%E4%B8%8A%E2%80%9C%E4%BD%93%E6%A0%A1%E2%80%9D%E7%9A%84%E4%BA%BA&sa=fyb_news&rsv_dl=fyb_news)
+- [中国车企攻入日系车大本营](https://www.baidu.com/s?wd=%E4%B8%AD%E5%9B%BD%E8%BD%A6%E4%BC%81%E6%94%BB%E5%85%A5%E6%97%A5%E7%B3%BB%E8%BD%A6%E5%A4%A7%E6%9C%AC%E8%90%A5&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7bd914358e9784e72fc0 -->
+<!-- content-fingerprint: 670b82a8b3313a94f217 -->
