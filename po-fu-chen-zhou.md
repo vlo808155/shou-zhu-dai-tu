@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 用MC还原《神的随波逐流》 【B萌应援】
+# 大规模涨价 手机快买不起了
 
-> 来源：哔哩哔哩热门 · 排名：第 5 位 · 热度：1664683 · 分类：演奏 · 更新：2026-08-15T11:59:57+08:00
+> 来源：百度热搜 · 排名：第 5 位 · 热度：7329665 · 更新：2026-08-15T12:39:43+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“用MC还原《神的随波逐流》 【B萌应援】”位列第 5 位，公开热度指标为 1664683，榜单分类为“演奏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“大规模涨价 手机快买不起了”位列第 5 位，公开热度指标为 7329665。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：本来想鸟之诗先发出来的，可能力不太行，一直没调好。b萌应援的投稿14号截止，没办法了，不过也快了
+来源公开摘要显示：“再等等，总会降的。”这句曾被无数换机党奉为圭臬的规则，今年似乎正在失效。8月2日，小米宣布旗下9款手机价格上调300元至500元不等。消息公布后，不少消费者在评论区感叹：“手机也越来越买不起了”。此前荣耀、OPPO、vivo、苹果等手机品牌均已陆续传出涨价消息。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `演奏`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [大规模涨价 手机快买不起了](bei-shui-yi-zhan.md)
-- [终于知道为什么戴眼镜是斜的了](zhi-shang-tan-bing.md)
-- [小姑子病危 大嫂坚持花七八十万救回](wei-wei-jiu-zhao.md)
-- [国乒男单无缘 WTT 瑞典站 8 强，国乒男单连续第三站 WTT 高级别赛事全军覆没，男队怎么了？](wan-bi-gui-zhao.md)
+- [网友集体呼吁旺旺减糖](bei-shui-yi-zhan.md)
+- [为何说旺旺最大竞争对手是糖](zhi-shang-tan-bing.md)
+- [《一饭封神 2》中谢霆锋直言「糖拌西红柿不能拿来比赛」，你认同吗？](wei-wei-jiu-zhao.md)
+- [用MC还原《神的随波逐流》 【B萌应援】](wan-bi-gui-zhao.md)
 
 ## 站内推荐
 
 - [【独家】《凡人修仙传之慕兰之战》第11集【总第187集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [【火遮眼】浪客剑心武指执导，年度最爽打戏！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [王嘉尔 吃瓜](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [直降6千元 机器人日租金“大跳水”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [边“拜鬼”边扩武 日本不装了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [周杰穿个浴袍就上台了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [《牛来》总票房已怒破10万](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [短剧 按摩大脑](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [新加坡艺术家80年前记录日军暴行](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [儿科韩医生事件，会不会造成全国的防御性医疗的开端和大面积的医护离职潮爆发？未来儿科医生的数量腰斩？](http://www.daogukj.com/1823488)
-- [“央妈这段运镜太有手法了，完全拍出了什么叫意气风发！”](http://www.play.hengshemaoyi.cn/xiju/5320894.htm)
-- [国防部：敦促日方停止“再军事化”](http://www.movie.hkepx.cn/xiju/9086289.htm)
-- [妈妈带儿子录取通知书给同事看却弄丢](http://www.daogukj.com/cskdtjca/)
-- [大规模涨价 手机快买不起了](http://www.movie.hkepx.cn/movie/5197885.htm)
-- [网友集体呼吁旺旺减糖](http://www.daogukj.com/9392657)
-- [还能活51年却只有21天自由支配的时间](http://www.movie.hkepx.cn/movie/8565414.htm)
-- [家长带孩子瞻仰杨靖宇将军雕像](http://www.daogukj.com/6051164)
-- [普京首次登上南千岛群岛视察民生产业，高市早苗激烈抗议，称是日本固有领土，俄方强硬回击，如何看待此事？](http://www.daogukj.com/6679975)
-- [《一饭封神 2》中谢霆锋直言「糖拌西红柿不能拿来比赛」，你认同吗？](http://www.daogukj.com/2695648)
-- [宝宝从餐椅跌落 老人不敢告知父母](http://www.play.hengshemaoyi.cn/xiju/3099726.htm)
-- [董璇带小酒窝纠正体态](http://www.movie.hkepx.cn/movie/7889816.htm)
-- [牛来](http://www.play.hengshemaoyi.cn/xiju/3571483.htm)
-- [日本政客为何对“拜鬼”如此上瘾](http://www.play.hengshemaoyi.cn/kongbu/9465250.htm)
-- [手搓动画《牛来》丑出圈票房破5万](http://www.movie.hkepx.cn/xiju/2970345.htm)
-- [同样面对负面舆论，为什么《八仙！》的票房预计能达到20亿，而《雄狮少年》系列的票房加一起才3亿多？](http://www.daogukj.com/7120405)
-- [帮扶弱小的老登侠](http://www.play.hengshemaoyi.cn/xiju/4113560.htm)
-- [国乒男单无缘 WTT 瑞典站 8 强，国乒男单连续第三站 WTT 高级别赛事全军覆没，男队怎么了？](http://www.daogukj.com/jzelussd/)
-- [老王出息了，今天带家人们一起探班龙餐馆的幕后~](http://www.daogukj.com/ajlcnxcx/)
-- [沈腾路演 甩面切黄瓜颠勺](http://www.daogukj.com/0152970)
-- [印尼7.7级地震引发海啸](http://www.movie.hkepx.cn/movie/9056597.htm)
-- [周杰穿个浴袍就上台了](http://www.play.hengshemaoyi.cn/xiju/9731004.htm)
-- [旺旺最大的对手竟是糖](http://www.movie.hkepx.cn/xiju/1868267.htm)
-- [【我在现代当幽差】EP01 大哥，你阳寿未尽啊【UP动画】](http://www.play.hengshemaoyi.cn/xiju/1299773.htm)
-- [美国将对进口无人机及零部件征收最高 100%关税，将如何影响全球产业？](http://www.daogukj.com/onyieegy/)
-- [旺旺集团面临重大经营危机](http://www.play.hengshemaoyi.cn/xiju/0532528.htm)
-- [家长花上万元送孩子进「吃苦夏令营」，孩子进山砍柴、喂猪、挖土豆，这种教育方式是否可取？真能纠正陋习吗？](http://www.movie.hkepx.cn/movie/0256063.htm)
-- [洪灾后广西道路现持枪男子？假](http://www.movie.hkepx.cn/movie/9918247.htm)
-- [金价银价油价都涨了](http://www.movie.hkepx.cn/movie/8593083.htm)
-- [专访2034杯重庆足球小将团队](http://www.movie.hkepx.cn/movie/0122390.htm)
+- [带50位同事去参加水上闯关节目…](http://www.daogukj.com/1823488)
+- [3孩非亲生案第三者道歉后又甩锅](http://www.play.hengshemaoyi.cn/xiju/5320894.htm)
+- [中国人会飞 Official Music Video - Chalky Wong feat. 揽佬SKAI ISYOURGOD](http://www.movie.hkepx.cn/xiju/9086289.htm)
+- [菲称台海有事不允许美从菲领土攻击](http://www.daogukj.com/cskdtjca/)
+- [网友集体呼吁旺旺减糖](http://www.movie.hkepx.cn/movie/5197885.htm)
+- [妈妈路上不慎弄丢儿子录取通知书](http://www.daogukj.com/9392657)
+- [陈浚铭踢腿陈思罕刘海飞了](http://www.movie.hkepx.cn/movie/8565414.htm)
+- [你醒啦！你已经变成苦力怕娘惹……](http://www.daogukj.com/6051164)
+- [国乒男单无缘 WTT 瑞典站 8 强，国乒男单连续第三站 WTT 高级别赛事全军覆没，男队怎么了？](http://www.daogukj.com/6679975)
+- [边“拜鬼”边扩武 日本不装了](http://www.daogukj.com/2695648)
+- [哪些习惯会让腰“废”得更快](http://www.play.hengshemaoyi.cn/xiju/3099726.htm)
+- [印尼发生7.7级强震](http://www.movie.hkepx.cn/movie/7889816.htm)
+- [谁给小沈阳化成梁龙了](http://www.play.hengshemaoyi.cn/xiju/3571483.htm)
+- [我们为什么总是容易相信谣言](http://www.play.hengshemaoyi.cn/kongbu/9465250.htm)
+- [有没有可能，地球才是宇宙的中心？](http://www.movie.hkepx.cn/xiju/2970345.htm)
+- [WasteTheFallen丨首曝PV＆实机演示：凝视深渊，人性渐泯](http://www.daogukj.com/7120405)
+- [王传君体脂率25.5%](http://www.play.hengshemaoyi.cn/xiju/4113560.htm)
+- [用MC还原《神的随波逐流》 【B萌应援】](http://www.daogukj.com/jzelussd/)
+- [刷到“猝死”视频发现主角是自己](http://www.daogukj.com/ajlcnxcx/)
+- [国乒男单全军覆没](http://www.daogukj.com/0152970)
+- [谢霆锋二儿子近照曝光](http://www.movie.hkepx.cn/movie/9056597.htm)
+- [还能活51年却只有21天自由支配的时间](http://www.play.hengshemaoyi.cn/xiju/9731004.htm)
+- [胖东来首批刑释职工无一人离职](http://www.movie.hkepx.cn/xiju/1868267.htm)
+- [第6集丨“各怀心事？”](http://www.play.hengshemaoyi.cn/xiju/1299773.htm)
+- [山西医科大学第一医院通报「实习护士晒患者隐私照」，终止当事人实习资格，你认为这一处罚合理吗？](http://www.daogukj.com/onyieegy/)
+- [专访2034杯重庆足球小将团队](http://www.play.hengshemaoyi.cn/xiju/0532528.htm)
+- [《千瓷之战》｜一部用1061只瓷瓶拍成的动画](http://www.movie.hkepx.cn/movie/0256063.htm)
+- [中方抗议高市早苗向靖国神社供奉](http://www.movie.hkepx.cn/movie/9918247.htm)
+- [投降日拜鬼是对历史正义的公然亵渎](http://www.movie.hkepx.cn/movie/8593083.htm)
+- [宝鸡一天然气公司要求热水器满 8 年必须换，否则不给购气，这个要求合理吗？燃气公司有权这么做吗？](http://www.movie.hkepx.cn/movie/0122390.htm)
 - [电台播报日本投降：谁敢阻挡就被消灭](http://www.movie.hkepx.cn/movie/7943713.htm)
-- [龙餐馆原型称中国护照相当于防弹衣](http://www.play.hengshemaoyi.cn/kongbu/5001053.htm)
+- [“央妈这段运镜太有手法了，完全拍出了什么叫意气风发！”](http://www.play.hengshemaoyi.cn/kongbu/5001053.htm)
 - [胖东来首批刑释职工30人无一离职](http://www.daogukj.com/qcrvnclj/)
-- [金正恩凭吊抗日革命烈士](http://www.daogukj.com/hwjdrvyl/)
-- [谢霆锋二儿子近照曝光](http://www.movie.hkepx.cn/xiju/3504908.htm)
+- [美国将对进口无人机及零部件征收最高 100%关税，将如何影响全球产业？](http://www.daogukj.com/hwjdrvyl/)
+- [手机涨得快买不起了](http://www.movie.hkepx.cn/xiju/3504908.htm)
 - [胖东来郑州店发公告招100名边防军人和20名刑释人员，企业兜底「社会融合」职能，是进步还是错位？](http://www.daogukj.com/lfqwqkoe/)
-- [有没有可能，地球才是宇宙的中心？](http://www.daogukj.com/6505376)
+- [【火遮眼】浪客剑心武指执导，年度最爽打戏！](http://www.daogukj.com/6505376)
 - [赛伯朋克之大圣归来：耗时两年半，精品制作，一口气看完。](http://www.daogukj.com/mdqmkfar/)
-- [如何评价动画《BanG Dream! YUME∞MITA》第9集？](http://www.play.hengshemaoyi.cn/kongbu/2415448.htm)
-- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉119/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.movie.hkepx.cn/xiju/3998678.htm)
-- [谁“杀死”了驾校](http://www.movie.hkepx.cn/movie/6743699.htm)
+- [印尼7.7级地震居民冲上马路避难](http://www.play.hengshemaoyi.cn/kongbu/2415448.htm)
+- [康辉龙洋跟沈腾一起扯面](http://www.movie.hkepx.cn/xiju/3998678.htm)
+- [民政局都搬银行了 为何年轻人不买账](http://www.movie.hkepx.cn/movie/6743699.htm)
 - [一组数据解锁中国生态新图景](http://www.daogukj.com/xgmimokd/)
-- [谁给小沈阳涂这么白的](http://www.play.hengshemaoyi.cn/xiju/7200927.htm)
-- [要被关晓彤这双腿给晃晕了](http://www.daogukj.com/0557862)
-- [王嘉尔吃自己的瓜](http://www.play.hengshemaoyi.cn/kongbu/0604765.htm)
-- [BLG 选手 Wenbo 因雨天路滑摔倒将缺席比赛，这会如何影响战队战术与成绩？](http://www.movie.hkepx.cn/movie/8247300.htm)
-- [2026年wtt瑞典大满贯赛，松岛辉空3：2险胜97年出生的老将周启豪晋级8强，怎么评价这一场比赛？](http://www.daogukj.com/jcieinjo/)
-- [WasteTheFallen丨首曝PV＆实机演示：凝视深渊，人性渐泯](http://www.daogukj.com/1895577)
-- [《癫佬外传》第一季合集](http://www.play.hengshemaoyi.cn/kongbu/4995743.htm)
-- [外交部回应日本政要参拜靖国神社](http://www.play.hengshemaoyi.cn/xiju/5777989.htm)
+- [家长带孩子瞻仰杨靖宇将军雕像](http://www.play.hengshemaoyi.cn/xiju/7200927.htm)
+- [程序员为保工作每月倒贴买 token「自费上班」，这反映了行业哪些问题？](http://www.daogukj.com/0557862)
+- [外交部回应日方政要参拜靖国神社](http://www.play.hengshemaoyi.cn/kongbu/0604765.htm)
+- [都什么年代，谁还渡传统通天河？！！](http://www.movie.hkepx.cn/movie/8247300.htm)
+- [印尼7.7级地震引发海啸](http://www.daogukj.com/jcieinjo/)
+- [我实现了我儿时的梦想](http://www.daogukj.com/1895577)
+- [不要和锅品差的人吃火锅](http://www.play.hengshemaoyi.cn/kongbu/4995743.htm)
+- [小泉进次郎拜鬼后又称和平](http://www.play.hengshemaoyi.cn/xiju/5777989.htm)
 
 </details>
 
 ## 原始来源
 
-- [用MC还原《神的随波逐流》 【B萌应援】](https://b23.tv/BV1e1gH67EjN)
+- [大规模涨价 手机快买不起了](https://www.baidu.com/s?wd=%E5%A4%A7%E8%A7%84%E6%A8%A1%E6%B6%A8%E4%BB%B7+%E6%89%8B%E6%9C%BA%E5%BF%AB%E4%B9%B0%E4%B8%8D%E8%B5%B7%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1032a0d37746e2c059f0 -->
+<!-- content-fingerprint: 54885084d9e2b3906ed7 -->
