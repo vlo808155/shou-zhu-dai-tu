@@ -2,11 +2,11 @@
 
 # 杜华：王传君坏人不像演的
 
-> 来源：百度热搜 · 排名：第 5 位 · 热度：7329138 · 更新：2026-08-16T01:48:59+08:00
+> 来源：百度热搜 · 排名：第 5 位 · 热度：7333794 · 更新：2026-08-16T02:02:26+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“杜华：王传君坏人不像演的”位列第 5 位，公开热度指标为 7329138。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“杜华：王传君坏人不像演的”位列第 5 位，公开热度指标为 7333794。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：15日播出的《披荆斩棘2026》中，杜华评价王传君时表示：王传君是一位很有个性的演员，演坏人不像演的。
 
@@ -26,9 +26,9 @@
 ## 站内推荐
 
 - [许昌胖东来附近老板流泪说舍不得](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [山西挖眼案男孩高考721分选了中医学](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [如何评价蒋奇明在《欢迎来龙餐馆》里的表现？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [如何评价安妮·海瑟薇、伊万·麦克格雷格主演的惊悚电影《逃出绝命街》？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [年轻人山顶举起国旗与日本投降旗帜](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [准高三生看完《奥本海默》后深感自己平庸，该如何接受与顶尖天才的差距？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [如何看待 Dota2TI15，XG 0-2 不敌 TR 淘汰回家？如何评价 XG 战队及其本届表现?](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
 - [【短的发布会】我要验湃！一条视频带你看懂全网最带湃的澎湃OS 4](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
@@ -43,19 +43,19 @@
 - [男童走失4天找回 父亲设宴200桌答谢](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
 - [欢天喜地七仙女选角让人笑哭](http://www.movie.hkepx.cn/xiju/7276031.htm)
 - [我实现了我儿时的梦想](http://www.daogukj.com/qxoqgypn/)
-- [台风都走了 为何雨还下个不停](http://www.daogukj.com/2637140)
+- [一个49人的上市公司等待沈腾“救援”](http://www.daogukj.com/2637140)
 - [余文乐 港星的含金量还在上升](http://www.daogukj.com/lcagyyzr/)
 - [【短的发布会】我要验湃！一条视频带你看懂全网最带湃的澎湃OS 4](http://www.daogukj.com/nckagbek/)
-- [儿科韩医生事件，会不会造成全国的防御性医疗的开端和大面积的医护离职潮爆发？未来儿科医生的数量腰斩？](http://www.movie.hkepx.cn/movie/0871738.htm)
-- [新乡胖东来搬走前VS搬走后](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
+- [女子花 8 万做地下试管被推进简易房手术，多部门已介入，暴露出哪些监管盲区？如何斩断这条灰色产业链？](http://www.movie.hkepx.cn/movie/0871738.htm)
+- [旺旺二公子回应配料表建议](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
 - [大厂员工吐槽现在开会就是互丢AI文档，你有同感吗？很多公司都强调内化AI能力，但真的有提升产出质量吗？](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
 - [许昌胖东来附近老板流泪说舍不得](http://www.daogukj.com/kwifztpg/)
 - [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.movie.hkepx.cn/movie/5703439.htm)
 - [制作糖果的流程—解压](http://www.daogukj.com/ifbvcvnj/)
-- [夜晚白影“星链”般闪现 目击者发声](http://www.daogukj.com/6568203)
+- [C罗若离婚 乔治娜每月将获77万](http://www.daogukj.com/6568203)
 - [张睿危险](http://www.daogukj.com/0211136)
-- [DeepSeek-V4-Pro-0813已发布，体验下来怎么样？](http://www.movie.hkepx.cn/xiju/0370085.htm)
-- [SK 集团崔泰源警告 2027 年大概率会是存储芯片供应缺口最大的一年，内存、硬盘还要持续涨价吗？](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
+- [旺旺被指最大竞争对手是糖，网友集体呼吁旺旺减糖，这样真能救旺旺吗？传统食品行业正面临哪些挑战？](http://www.movie.hkepx.cn/xiju/0370085.htm)
+- [如何评价蒋奇明在《欢迎来龙餐馆》里的表现？](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
 - [飞机安检模拟器](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
 - [曾辉 唱出了飞轮海的感觉](http://www.movie.hkepx.cn/xiju/4676858.htm)
 - [关晓彤大长腿溢出屏幕](http://www.movie.hkepx.cn/movie/9996697.htm)
@@ -68,12 +68,12 @@
 - [纪念江泽民同志诞辰100周年大会将举行](http://www.movie.hkepx.cn/movie/8053500.htm)
 - [日本人战斗分队在乌成立 与俄军作战](http://www.movie.hkepx.cn/xiju/8733503.htm)
 - [美国大模型帮日本对AI进行投毒](http://www.play.hengshemaoyi.cn/kongbu/6039715.htm)
-- [关灯侧躺刷手机 毁眼睛](http://www.daogukj.com/9356439)
-- [旺旺被指最大竞争对手是糖，网友集体呼吁旺旺减糖，这样真能救旺旺吗？传统食品行业正面临哪些挑战？](http://www.daogukj.com/ianqofdj/)
+- [台风都走了 为何雨还下个不停](http://www.daogukj.com/9356439)
+- [DeepSeek-V4-Pro-0813已发布，体验下来怎么样？](http://www.daogukj.com/ianqofdj/)
 - [选一颗星球，决定你接下来的旅途](http://www.daogukj.com/sizrvcao/)
-- [旺旺发文感谢网友支招](http://www.play.hengshemaoyi.cn/xiju/7255725.htm)
+- [今年已有多人被蝉鸣“震聋”](http://www.play.hengshemaoyi.cn/xiju/7255725.htm)
 - [无畏带队四连胜](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
-- [张本美和早田希娜瑞典大满贯夺冠](http://www.daogukj.com/rwxeygms/)
+- [旺旺发文感谢网友支招](http://www.daogukj.com/rwxeygms/)
 - [绿水青山间的生态答卷](http://www.play.hengshemaoyi.cn/kongbu/9837059.htm)
 - [《披荆斩棘》初舞台观众现场喊黑幕](http://www.daogukj.com/2160602)
 - [旺旺为何卖不动了](http://www.play.hengshemaoyi.cn/kongbu/7208069.htm)
@@ -84,8 +84,8 @@
 - [赛伯朋克之大圣归来：耗时两年半，精品制作，一口气看完。](http://www.movie.hkepx.cn/xiju/2931592.htm)
 - [为何说旺旺最大竞争对手是糖](http://www.daogukj.com/ottjwhke/)
 - [我们为什么总是容易相信谣言](http://www.movie.hkepx.cn/movie/7215484.htm)
-- [法国最有松弛感的劫案是哪起？【硬核狠人91】](http://www.movie.hkepx.cn/xiju/4060244.htm)
-- [国家叫停「速成车」，新国标落地将如何影响消费者购车？](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
+- [张睿 中国内地郭富城](http://www.movie.hkepx.cn/xiju/4060244.htm)
+- [法国最有松弛感的劫案是哪起？【硬核狠人91】](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b26cf1fdeade2526d9de -->
+<!-- content-fingerprint: f71493f8ee1097059099 -->
