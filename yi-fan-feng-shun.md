@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 南京民间抗馆用诵读致敬不屈中华民族
+# SK 集团崔泰源警告 2027 年大概率会是存储芯片供应缺口最大的一年，内存、硬盘还要持续涨价吗？
 
-> 来源：今日头条热榜 · 排名：第 8 位 · 热度：9203966 · 分类：新事件上榜 · 更新：2026-08-16T07:33:16+08:00
+> 来源：知乎热榜 · 排名：第 8 位 · 热度：92 万热度 · 分类：问答 · 更新：2026-08-16T07:54:36+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“南京民间抗馆用诵读致敬不屈中华民族”位列第 8 位，公开热度指标为 9203966，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“SK 集团崔泰源警告 2027 年大概率会是存储芯片供应缺口最大的一年，内存、硬盘还要持续涨价吗？”位列第 8 位，公开热度指标为 92 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：SK集团董事长认为，明年大概率会是存储芯片供应缺口最大的一年。 当地时间8月13日，据外媒报道，韩国SK集团会长崔泰源在近日接受专访时直言：“所有的客户都在要求接近原来需求两倍的供货量。这是争夺存储芯片的战争。” 此前，崔泰源曾预计，2027年AI半导体需求可能较2026年增长60%至100%，整体存储需求增幅则维持在50%至60%。 而在这次采访中，崔泰源给出了更为激进的预测：客户对下一年度存储芯片的需求接近翻倍，但新增晶圆厂从规划到形成有效产能需要至少4至5年，“很多半导体企业都还没有准备好扩产”，因此，2027年可能成为本轮存储芯片短缺最严重的一年
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [女子花 8 万做地下试管被推进简易房手术，多部门已介入，暴露出哪些监管盲区？如何斩断这条灰色产业链？](yi-ming-jing-ren.md)
-- [难倒100万人的铁球难题，我终于！解！开！了！](yi-jian-shuang-diao.md)
-- [“龙餐馆”其实不在中东在山东](shou-zhu-dai-tu.md)
-- [生活中如何分辨善妒的人](wang-mei-zhi-ke.md)
+- [难倒100万人的铁球难题，我终于！解！开！了！](yi-ming-jing-ren.md)
+- [诺兰又把全世界骗进电影院了](yi-jian-shuang-diao.md)
+- [生活中如何分辨善妒的人](shou-zhu-dai-tu.md)
+- [于东来打卡小饭店消费380硬要付600](wang-mei-zhi-ke.md)
 
 ## 站内推荐
 
-- [陈熠0-4张本美和 止步女单八强](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [28岁男子和43岁女子领证结婚](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [男童走失4天找回 父亲设宴200桌答谢](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [电视剧「蜗居」里的宋思明权力那么大，为什么没把海藻安排进体制内？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [肖战香港地广](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [附近店家流泪称舍不得胖东来老店关闭](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [曾经爆火的洞洞鞋遇冷，Crocs 联合瑞幸推出近六百元洞洞鞋，二手平台半价出售，高价洞洞鞋卖不动了吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [普京首次登上南千岛群岛视察民生产业，高市早苗激烈抗议，称是日本固有领土，俄方强硬回击，如何看待此事？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [张睿 中国内地郭富城](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [淑元回应](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [制作糖果的流程—解压](http://www.daogukj.com/cohiigft/)
+- [杜华：王传君坏人不像演的](http://www.daogukj.com/cohiigft/)
 - [王传君终于原谅爱情公寓了](http://www.daogukj.com/ugakwini/)
 - [以数智物流赋能特色产业发展](http://www.movie.hkepx.cn/movie/1439223.htm)
-- [准高三生看完《奥本海默》后深感自己平庸，该如何接受与顶尖天才的差距？](http://www.daogukj.com/7461995)
-- [曾辉 唱出了飞轮海的感觉](http://www.daogukj.com/1580127)
+- [我实现了我儿时的梦想](http://www.daogukj.com/7461995)
+- [醉鹅娘涉嫌走私遭起诉，年销3.5亿的网红品牌，为何走到刑事公诉这一步？醉鹅娘可能面临什么？](http://www.daogukj.com/1580127)
 - [【驼】只有中国人能拍出的反战片，都是反战，西方在ptsd，中国在让你好好吃饭。 [欢迎来龙餐馆]](http://www.movie.hkepx.cn/movie/5771230.htm)
-- [小沈阳秒了](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
-- [28岁男子和43岁女子领证结婚](http://www.daogukj.com/0519981)
-- [如何看待「大学新生三件套」涨价近五成，如果只给 5000 元预算配齐「开学三件套」，你会怎么分配？](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
-- [新乡胖东来搬走前VS搬走后](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
-- [普京首次登上南千岛群岛视察民生产业，高市早苗激烈抗议，称是日本固有领土，俄方强硬回击，如何看待此事？](http://www.movie.hkepx.cn/movie/5740018.htm)
-- [今年已有多人被蝉鸣“震聋”](http://www.movie.hkepx.cn/movie/2758437.htm)
+- [张雪机车车手德比斯中国摩托车首秀](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
+- [曾经爆火的洞洞鞋遇冷，Crocs 联合瑞幸推出近六百元洞洞鞋，二手平台半价出售，高价洞洞鞋卖不动了吗？](http://www.daogukj.com/0519981)
+- [旺旺发文感谢网友支招](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
+- [中使馆督促日本不要再走向历史被告席](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
+- [制作糖果的流程—解压](http://www.movie.hkepx.cn/movie/5740018.htm)
+- [山东梁山把二手车卖到了110个国家](http://www.movie.hkepx.cn/movie/2758437.htm)
 - [《欢迎来龙餐馆》票房破7亿](http://www.play.hengshemaoyi.cn/kongbu/7663093.htm)
-- [那年盖亚的导演选择了弹幕最多的打法！](http://www.daogukj.com/npdeovim/)
-- [全国票房日冠地图显示「东北龙餐馆，上海奥德赛」，如何看待这一现象？反应了怎样的区域观影偏好差异？](http://www.movie.hkepx.cn/movie/1182190.htm)
-- [穿越战锤20年，你却靠实力登上贵族宝座，你的后半生会如何度过？](http://www.movie.hkepx.cn/movie/6854973.htm)
+- [李登科曝带朋友找张凌赫合照被拒](http://www.daogukj.com/npdeovim/)
+- [穿越战锤20年，你却靠实力登上贵族宝座，你的后半生会如何度过？](http://www.movie.hkepx.cn/movie/1182190.htm)
+- [“AI神童”爆仓引发连锁反应](http://www.movie.hkepx.cn/movie/6854973.htm)
 - [用MC还原《神的随波逐流》 【B萌应援】](http://www.movie.hkepx.cn/movie/9974523.htm)
 - [如何看待 Dota2TI15，XG 0-2 不敌 TR 淘汰回家？如何评价 XG 战队及其本届表现?](http://www.play.hengshemaoyi.cn/kongbu/4772628.htm)
-- [大厂员工吐槽现在开会就是互丢AI文档，你有同感吗？很多公司都强调内化AI能力，但真的有提升产出质量吗？](http://www.movie.hkepx.cn/movie/7480091.htm)
-- [张本美和早田希娜瑞典大满贯夺冠](http://www.daogukj.com/ljqtloli/)
-- [小沈阳 东北樱木花道](http://www.movie.hkepx.cn/movie/1513585.htm)
-- [关晓彤大长腿溢出屏幕](http://www.movie.hkepx.cn/xiju/5718367.htm)
-- [为什么上海人对《奥德赛》情有独钟](http://www.movie.hkepx.cn/movie/6576281.htm)
-- [网传追觅大家电解散](http://www.play.hengshemaoyi.cn/kongbu/7311837.htm)
-- [年轻人山顶举起国旗与日本投降旗帜](http://www.play.hengshemaoyi.cn/xiju/9290584.htm)
-- [《披荆斩棘》初舞台观众现场喊黑幕](http://www.daogukj.com/7865447)
-- [我们为什么总是容易相信谣言](http://www.daogukj.com/7312066)
-- [山东梁山把二手车卖到了110个国家](http://www.play.hengshemaoyi.cn/kongbu/1281085.htm)
-- [“龙餐馆”其实不在中东在山东](http://www.play.hengshemaoyi.cn/kongbu/1775013.htm)
-- [一个49人的上市公司等待沈腾“救援”](http://www.daogukj.com/0276387)
+- [如何评价安妮·海瑟薇、伊万·麦克格雷格主演的惊悚电影《逃出绝命街》？](http://www.movie.hkepx.cn/movie/7480091.htm)
+- [小沈阳秒了](http://www.daogukj.com/ljqtloli/)
+- [那个特奥多罗 快回答这16问](http://www.movie.hkepx.cn/movie/1513585.htm)
+- [老王出息了，今天带家人们一起探班龙餐馆的幕后~](http://www.movie.hkepx.cn/xiju/5718367.htm)
+- [那年盖亚的导演选择了弹幕最多的打法！](http://www.movie.hkepx.cn/movie/6576281.htm)
+- [陈熠0比4张本美和](http://www.play.hengshemaoyi.cn/kongbu/7311837.htm)
+- [儿科韩医生事件，会不会造成全国的防御性医疗的开端和大面积的医护离职潮爆发？未来儿科医生的数量腰斩？](http://www.play.hengshemaoyi.cn/xiju/9290584.htm)
+- [刘耀文张真源发了20岁和21岁的严浩翔](http://www.daogukj.com/7865447)
+- [郭德纲文促会主席团会议发言](http://www.daogukj.com/7312066)
+- [今年已有多人被蝉鸣“震聋”](http://www.play.hengshemaoyi.cn/kongbu/1281085.htm)
+- [生活中如何分辨善妒的人](http://www.play.hengshemaoyi.cn/kongbu/1775013.htm)
+- [小沈阳 东北樱木花道](http://www.daogukj.com/0276387)
 - [飞机安检模拟器](http://www.movie.hkepx.cn/xiju/9277141.htm)
 - [DeepSeek-V4-Pro-0813已发布，体验下来怎么样？](http://www.movie.hkepx.cn/xiju/9995911.htm)
-- [郭德纲文促会主席团会议发言](http://www.movie.hkepx.cn/xiju/4442165.htm)
-- [日本人战斗分队在乌成立 与俄军作战](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
-- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.daogukj.com/sowbdmby/)
-- [旺旺发文感谢网友支招](http://www.daogukj.com/cfqiduxu/)
-- [河南周口117米溃口成功合龙](http://www.movie.hkepx.cn/xiju/4880279.htm)
-- [河南教师清理双户口后常用户口因「虚假户口」被注销成黑户，警方同意重报但无法恢复，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/xiju/4009878.htm)
-- [王祖贤现身广州网易总部](http://www.play.hengshemaoyi.cn/kongbu/3318753.htm)
-- [如何评价安妮·海瑟薇、伊万·麦克格雷格主演的惊悚电影《逃出绝命街》？](http://www.movie.hkepx.cn/movie/5360276.htm)
-- [法国最有松弛感的劫案是哪起？【硬核狠人91】](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
-- [纪念江泽民同志诞辰100周年大会](http://www.movie.hkepx.cn/movie/8146575.htm)
-- [电视剧「蜗居」里的宋思明权力那么大，为什么没把海藻安排进体制内？](http://www.movie.hkepx.cn/xiju/8000972.htm)
-- [披荆斩棘初舞台排名](http://www.movie.hkepx.cn/xiju/2505032.htm)
-- [杜华：王传君坏人不像演的](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
-- [诺兰又把全世界骗进电影院了](http://www.daogukj.com/maldgqjz/)
-- [如果条件允许的话，完全以矿泉水或纯净水作为日常饮用水好不好？](http://www.daogukj.com/ulnghjws/)
-- [年轻人流行起夜间“拼蟹”](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
-- [女子花 8 万做地下试管被推进简易房手术，多部门已介入，暴露出哪些监管盲区？如何斩断这条灰色产业链？](http://www.movie.hkepx.cn/movie/7753114.htm)
-- [我实现了我儿时的梦想](http://www.play.hengshemaoyi.cn/xiju/2822041.htm)
+- [如果条件允许的话，完全以矿泉水或纯净水作为日常饮用水好不好？](http://www.movie.hkepx.cn/xiju/4442165.htm)
+- [女子花 8 万做地下试管被推进简易房手术，多部门已介入，暴露出哪些监管盲区？如何斩断这条灰色产业链？](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
+- [新乡胖东来搬走前VS搬走后](http://www.daogukj.com/sowbdmby/)
+- [卫龙还算辣条公司吗](http://www.daogukj.com/cfqiduxu/)
+- [太干净的饭总有一种没吃的错觉](http://www.movie.hkepx.cn/xiju/4880279.htm)
+- [于东来称胖东来首批刑释职工30人无一离职，如何评价这一招聘计划的实际效果？其他企业能效仿吗？](http://www.play.hengshemaoyi.cn/xiju/4009878.htm)
+- [全国票房日冠地图显示「东北龙餐馆，上海奥德赛」，如何看待这一现象？反应了怎样的区域观影偏好差异？](http://www.play.hengshemaoyi.cn/kongbu/3318753.htm)
+- [你醒啦！你已经变成苦力怕娘惹……](http://www.movie.hkepx.cn/movie/5360276.htm)
+- [苏州暴雨太湖水倒灌 小区车库被淹](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
+- [车企集体“逃离”新车发布会](http://www.movie.hkepx.cn/movie/8146575.htm)
+- [张睿 中国内地郭富城](http://www.movie.hkepx.cn/xiju/8000972.htm)
+- [收集日军侵华史料少年回应少爷争议](http://www.movie.hkepx.cn/xiju/2505032.htm)
+- [奥德赛](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
+- [为什么上海人对《奥德赛》情有独钟](http://www.daogukj.com/maldgqjz/)
+- [【独家】时光代理人 第三季 PartOne 第2集 困兽【8月国创】](http://www.daogukj.com/ulnghjws/)
+- [王羲之有没有真迹存世？](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
+- [难倒100万人的铁球难题，我终于！解！开！了！](http://www.movie.hkepx.cn/movie/7753114.htm)
+- [许昌胖东来附近老板流泪说舍不得](http://www.play.hengshemaoyi.cn/xiju/2822041.htm)
 
 </details>
 
 ## 原始来源
 
-- [南京民间抗馆用诵读致敬不屈中华民族](https://www.toutiao.com/trending/7673741224868593714/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%220%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227673741224868593714%22%2C%22hot_board_impr_id%22%3A%2220260816073315D3A87A1F0E4AADF60596%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [SK 集团崔泰源警告 2027 年大概率会是存储芯片供应缺口最大的一年，内存、硬盘还要持续涨价吗？](https://www.zhihu.com/question/2071746265390506374)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1361ce72b05a605a6c85 -->
+<!-- content-fingerprint: de500e07598c00342494 -->
