@@ -2,11 +2,11 @@
 
 # 乌克兰出现由日本人组成的战斗分队，与俄军作战，会对局势有哪些影响？日本未来会大规模介入俄乌冲突吗？
 
-> 来源：知乎热榜 · 排名：第 8 位 · 热度：119 万热度 · 分类：问答 · 更新：2026-08-17T06:24:49+08:00
+> 来源：知乎热榜 · 排名：第 8 位 · 热度：117 万热度 · 分类：问答 · 更新：2026-08-17T06:48:38+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“乌克兰出现由日本人组成的战斗分队，与俄军作战，会对局势有哪些影响？日本未来会大规模介入俄乌冲突吗？”位列第 8 位，公开热度指标为 119 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“乌克兰出现由日本人组成的战斗分队，与俄军作战，会对局势有哪些影响？日本未来会大规模介入俄乌冲突吗？”位列第 8 位，公开热度指标为 117 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：据中新社东西问援引乌克兰媒体报道，近日一支由日本人组成的战斗分队在乌克兰武装部队内部成立，正在参与俄乌冲突，与俄军作战。此前日本防相小泉进次郎曾表示：“汲取俄乌冲突前线出现的新型作战方式等经验教训，将有助于强化日本的防卫体制。” 据新华社此前报道，5月29日，小泉进次郎曾证实，日本防卫省、自卫队将首次向北约对乌克兰安全援助和训练机构派遣4名自卫官。乌媒称，乌克兰出现由日本人组成的战斗分队，参与俄乌冲突，与俄军作战
 
@@ -18,17 +18,17 @@
 
 ## 相关热点
 
-- [我们的秘密……（1）](yi-ming-jing-ren.md)
+- [赛伯朋克之大圣归来：耗时两年半，精品制作，一口气看完。](yi-ming-jing-ren.md)
 - [吴艳妮加冕全锦赛100米栏六冠王](yi-jian-shuang-diao.md)
-- [居民存款7月又少了6300亿](shou-zhu-dai-tu.md)
+- [Jennie因服装问题道歉](shou-zhu-dai-tu.md)
 - [莫斯科遭乌方600架无人机袭击](wang-mei-zhi-ke.md)
 
 ## 站内推荐
 
 - [胖东来将闭门店现大排长龙，附近商贩说要跟着搬迁，为啥这么多年过去了胖东来的客户粘性还这么强？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
 - [韩国总统李在明称房地产泡沫已不容忽视，韩国楼市现在泡沫严重吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [财神窦占龙 第1集 家宴【8月国创】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [轮 回 跑 酷](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [旺旺被指太甜后连夜晒出无糖低糖新品，企业这一听劝的行为能自救吗？看完后你会购买吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [李宗盛为什么口碑变差了?](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
 - [《心痛2009》 这首歌小时候抱过我](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
@@ -36,55 +36,55 @@
 <details>
 <summary>展开更多相关内容</summary>
 
-- [阿森纳3比0曼城](http://www.daogukj.com/cohiigft/)
+- [小沈阳初舞台得分第一](http://www.daogukj.com/cohiigft/)
 - [问界儿童车即将上市](http://www.daogukj.com/ugakwini/)
 - [一组数据看中国经济的澎湃动能](http://www.movie.hkepx.cn/movie/1439223.htm)
 - [什么⁉Bye bye baby blue翻译竟然是错的✖！](http://www.daogukj.com/7461995)
-- [孙楠回应体重只有128斤](http://www.daogukj.com/1580127)
-- [《干噎砒霜》](http://www.movie.hkepx.cn/movie/5771230.htm)
-- [胖东来周边店主：生意没了心气也没了](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
+- [张睿披哥下沉市场口碑](http://www.daogukj.com/1580127)
+- [难倒100万人的铁球难题，我终于！解！开！了！](http://www.movie.hkepx.cn/movie/5771230.htm)
+- [谷爱凌否认恋情](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
 - [韩国总统李在明称房地产泡沫已不容忽视，韩国楼市现在泡沫严重吗？](http://www.daogukj.com/0519981)
-- [【2233生日主题曲】˚₊‧✩夏日幻梦列车✩‧₊˚](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
-- [请3天假连休13天](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
-- [小沈阳初舞台得分第一](http://www.movie.hkepx.cn/movie/5740018.htm)
-- [Jennie因服装问题道歉](http://www.movie.hkepx.cn/movie/2758437.htm)
-- [三星堆：是谁杀死了他们的神？](http://www.play.hengshemaoyi.cn/kongbu/7663093.htm)
-- [满江 叔圈天菜上新了](http://www.daogukj.com/npdeovim/)
-- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.movie.hkepx.cn/movie/1182190.htm)
-- [劣迹艺人那艺娜活动被当场叫停](http://www.movie.hkepx.cn/movie/6854973.htm)
-- [同样是独栋，为什么北美的独栋都有完备的设施，但国内农村做不到？](http://www.movie.hkepx.cn/movie/9974523.htm)
-- [00后女儿和80后妈妈前后脚生娃](http://www.play.hengshemaoyi.cn/kongbu/4772628.htm)
+- [RTX60系显卡大概什么时候发布?](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
+- [日本共产党最新表态](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
+- [我们的秘密……（1）](http://www.movie.hkepx.cn/movie/5740018.htm)
+- [女主播希望停止榜一大哥病态折磨](http://www.movie.hkepx.cn/movie/2758437.htm)
+- [我实现了我儿时的梦想](http://www.play.hengshemaoyi.cn/kongbu/7663093.htm)
+- [【2233生日主题曲】˚₊‧✩夏日幻梦列车✩‧₊˚](http://www.daogukj.com/npdeovim/)
+- [研究称每天吃西红柿，6 周可显著减轻脂肪肝，是真的吗？怎么吃效果最好？](http://www.movie.hkepx.cn/movie/1182190.htm)
+- [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.movie.hkepx.cn/movie/6854973.htm)
+- [在古代还没有毒品概念的时候，天然成瘾植物为何没有成为顶级香料？](http://www.movie.hkepx.cn/movie/9974523.htm)
+- [如何看待美军舰因故障在南海滞留4天](http://www.play.hengshemaoyi.cn/kongbu/4772628.htm)
 - [台当局查扣首辆张雪机车在怕什么](http://www.movie.hkepx.cn/movie/7480091.htm)
-- [旺旺的无糖产品连店员都没听过](http://www.daogukj.com/ljqtloli/)
-- [30美元1小时 机器人上门做保洁](http://www.movie.hkepx.cn/movie/1513585.htm)
-- [李宗盛为什么口碑变差了?](http://www.movie.hkepx.cn/xiju/5718367.htm)
-- [RTX60系显卡大概什么时候发布?](http://www.movie.hkepx.cn/movie/6576281.htm)
+- [劣迹艺人那艺娜活动被当场叫停](http://www.daogukj.com/ljqtloli/)
+- [积水没过田地道路 80岁电工坐不住了](http://www.movie.hkepx.cn/movie/1513585.htm)
+- [日军在南京每晚至少发生一千起强奸案](http://www.movie.hkepx.cn/xiju/5718367.htm)
+- [赵本山女儿自曝患三种精神疾病](http://www.movie.hkepx.cn/movie/6576281.htm)
 - [市民打12345投诉月光太亮影响睡觉](http://www.play.hengshemaoyi.cn/kongbu/7311837.htm)
 - [如何看待《欢迎到龙餐馆》讲中东故事，却全程国内取景拍摄，手搓一座乱世下的中东城？](http://www.play.hengshemaoyi.cn/xiju/9290584.htm)
-- [有人要求政府联系某明星给自己过生日](http://www.daogukj.com/7865447)
-- [两人为博眼球发布不实信息被处罚](http://www.daogukj.com/7312066)
-- [女主播希望停止榜一大哥病态折磨](http://www.play.hengshemaoyi.cn/kongbu/1281085.htm)
-- [居民存款7月又少了6300亿](http://www.play.hengshemaoyi.cn/kongbu/1775013.htm)
+- [云旗](http://www.daogukj.com/7865447)
+- [离世39岁儿科医生最后一条朋友圈](http://www.daogukj.com/7312066)
+- [披荆斩棘排名](http://www.play.hengshemaoyi.cn/kongbu/1281085.htm)
+- [Jennie因服装问题道歉](http://www.play.hengshemaoyi.cn/kongbu/1775013.htm)
 - [哥哥送给我的兔子玩偶，为什么一直盯着我看...？](http://www.daogukj.com/0276387)
 - [央视曝光低价徒步团：3个领队带150人](http://www.movie.hkepx.cn/xiju/9277141.htm)
-- [飞机安检模拟器](http://www.movie.hkepx.cn/xiju/9995911.htm)
-- [研究称每天吃西红柿，6 周可显著减轻脂肪肝，是真的吗？怎么吃效果最好？](http://www.movie.hkepx.cn/xiju/4442165.htm)
-- [为什么越南和印度也开始发钱「催生」了？此举能有效解决人口问题带来的挑战吗？](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
-- [王艺迪4-2复仇张本美和](http://www.daogukj.com/sowbdmby/)
-- [离世39岁儿科医生最后一条朋友圈](http://www.daogukj.com/cfqiduxu/)
-- [央视曝光近150人组团夜爬封禁山峰](http://www.movie.hkepx.cn/xiju/4880279.htm)
+- [自行车被偷后，保安在监控里发现了霸王龙？#SpecialForAAIFF【AI全民制作人】](http://www.movie.hkepx.cn/xiju/9995911.htm)
+- [两人为博眼球发布不实信息被处罚](http://www.movie.hkepx.cn/xiju/4442165.htm)
+- [继小米YU7完成品类启蒙后，岚图追光S、智界RX接连入局，FUV这个市场到底有没有想象空间？](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
+- [《干噎砒霜》](http://www.daogukj.com/sowbdmby/)
+- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.daogukj.com/cfqiduxu/)
+- [盗墓笔记](http://www.movie.hkepx.cn/xiju/4880279.htm)
 - [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.play.hengshemaoyi.cn/xiju/4009878.htm)
-- [曾经爆火的洞洞鞋遇冷，Crocs 联合瑞幸推出近六百元洞洞鞋，二手平台半价出售，高价洞洞鞋卖不动了吗？](http://www.play.hengshemaoyi.cn/kongbu/3318753.htm)
-- [电视剧「蜗居」里的宋思明权力那么大，为什么没把海藻安排进体制内？](http://www.movie.hkepx.cn/movie/5360276.htm)
+- [胖东来周边店主：生意没了心气也没了](http://www.play.hengshemaoyi.cn/kongbu/3318753.htm)
+- [伊朗称逮捕或消灭美军者将获奖励](http://www.movie.hkepx.cn/movie/5360276.htm)
 - [《披哥》初舞台排名](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
 - [朱镕基同志遗体18日火化](http://www.movie.hkepx.cn/movie/8146575.htm)
-- [轮 回 跑 酷](http://www.movie.hkepx.cn/xiju/8000972.htm)
-- [继小米YU7完成品类启蒙后，岚图追光S、智界RX接连入局，FUV这个市场到底有没有想象空间？](http://www.movie.hkepx.cn/xiju/2505032.htm)
-- [王俊凯口误了](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
-- [邓紫棋](http://www.daogukj.com/maldgqjz/)
-- [南极冰川现“神秘生物”系AI生成](http://www.daogukj.com/ulnghjws/)
-- [热播剧《来自河南的你 》](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
-- [我们的秘密……（1）](http://www.movie.hkepx.cn/movie/7753114.htm)
+- [李宗盛为什么口碑变差了?](http://www.movie.hkepx.cn/xiju/8000972.htm)
+- [00后女儿和80后妈妈前后脚生娃](http://www.movie.hkepx.cn/xiju/2505032.htm)
+- [王曼昱瑞典大满贯冠军](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
+- [王艺迪4-2复仇张本美和](http://www.daogukj.com/maldgqjz/)
+- [财神窦占龙 第1集 家宴【8月国创】](http://www.daogukj.com/ulnghjws/)
+- [为什么越南和印度也开始发钱「催生」了？此举能有效解决人口问题带来的挑战吗？](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
+- [赛伯朋克之大圣归来：耗时两年半，精品制作，一口气看完。](http://www.movie.hkepx.cn/movie/7753114.htm)
 - [17岁少年确诊胃癌一个半月后离世](http://www.play.hengshemaoyi.cn/xiju/2822041.htm)
 
 </details>
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ae769150f36f927639b5 -->
+<!-- content-fingerprint: 0def45a678ff203b8769 -->
