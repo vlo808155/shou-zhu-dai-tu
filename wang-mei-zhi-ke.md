@@ -2,11 +2,11 @@
 
 # 只有中国人才能识别的加密暗号
 
-> 来源：微博热搜 · 排名：第 5 位 · 热度：150531 · 分类：幽默 · 更新：2026-08-18T01:48:51+08:00
+> 来源：微博热搜 · 排名：第 5 位 · 热度：118345 · 分类：幽默 · 更新：2026-08-18T02:16:36+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“只有中国人才能识别的加密暗号”位列第 5 位，公开热度指标为 150531，榜单分类为“幽默”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“只有中国人才能识别的加密暗号”位列第 5 位，公开热度指标为 118345，榜单分类为“幽默”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -19,34 +19,34 @@
 ## 相关热点
 
 - [五角大楼为何建议避免与中国航母对决](wen-ji-qi-wu.md)
-- [如何评价 Xiaohai（曾卓君）在 2026 美国 CEO 大赛《饿狼传说》项目中成功卫冕？](wo-xin-chang-dan.md)
+- [有研究表示伟哥成分「西地那非」或能抑制癌细胞转移扩散，距离真正用于临床癌症治疗还差什么？](wo-xin-chang-dan.md)
 - [这个旅游包活吗？？？【听天由命1】](po-fu-chen-zhou.md)
-- [陈伟霆为九门十年不接军装戏](bei-shui-yi-zhan.md)
+- [急性子小姐和慢吞吞先生](bei-shui-yi-zhan.md)
 
 ## 站内推荐
 
 - [前7个月国民经济总体平稳向新向优](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [女患者报警称“被男医生猥亵揉胸”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [华为鸿蒙HarmonyOS 7.0.0.102SP8开推](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
 - [这些关于网络暴力的谣言勿轻信](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [美伊战争第6个月，为什么航母的水兵先撑不住了？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [小说《金瓶梅》中，为什么武大郎对张大户忍气吞声，却对西门庆感到愤怒？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [蔚来武汉换电站资产全面转由国资持有，其背后的商业考量是什么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [为什么古代中国里没有诞生像《伊利亚特》这样的长篇史诗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [左奇函 身体状况](http://www.play.hengshemaoyi.cn/kongbu/8974730.htm)
-- [成功要对自己狠到什么程度](http://www.play.hengshemaoyi.cn/kongbu/4377320.htm)
-- [急性子小姐和慢吞吞先生](http://www.daogukj.com/mhxkhqlr/)
+- [左奇函](http://www.play.hengshemaoyi.cn/kongbu/8974730.htm)
+- [多方回应女子杭州酒局遭伤害](http://www.play.hengshemaoyi.cn/kongbu/4377320.htm)
+- [陈伟霆为九门十年不接军装戏](http://www.daogukj.com/mhxkhqlr/)
 - [杭州涉事招商蛇口高管已被免职](http://www.daogukj.com/vttuxixa/)
 - [彭宇案 彭宇确实碰了老人](http://www.daogukj.com/cqpthmbw/)
 - [这个旅游包活吗？？？【听天由命1】](http://www.movie.hkepx.cn/xiju/9477503.htm)
-- [女患者报警称“被男医生猥亵揉胸”](http://www.daogukj.com/7088546)
-- [德国男子家中厕所过于豪华被强拆](http://www.play.hengshemaoyi.cn/kongbu/2897383.htm)
-- [建议大家开车一定要专心](http://www.daogukj.com/lcwjhtor/)
-- [左奇函](http://www.play.hengshemaoyi.cn/xiju/4203206.htm)
-- [陈伟霆为九门十年不接军装戏](http://www.movie.hkepx.cn/xiju/2909346.htm)
+- [华为鸿蒙HarmonyOS 7.0.0.102SP8开推](http://www.daogukj.com/7088546)
+- [住了30年的家26年前竟被别人买了](http://www.play.hengshemaoyi.cn/kongbu/2897383.htm)
+- [左奇函 身体状况](http://www.daogukj.com/lcwjhtor/)
+- [建议大家开车一定要专心](http://www.play.hengshemaoyi.cn/xiju/4203206.htm)
+- [急性子小姐和慢吞吞先生](http://www.movie.hkepx.cn/xiju/2909346.htm)
 - [如何看待 2026 年 8 月 17 日 A 股市场行情？逾 4300 只股上涨，发生了什么？](http://www.daogukj.com/7785768)
 - [没人会记得神作之下的第二名，除非那一年都是神仙！](http://www.daogukj.com/1079050)
 - [自行车被偷后，保安在监控里发现了霸王龙？#SpecialForAAIFF【AI全民制作人】](http://www.daogukj.com/cfcdbnes/)
@@ -56,36 +56,36 @@
 - [王橹杰说少年时代看不看随便吧](http://www.movie.hkepx.cn/movie/6792790.htm)
 - [Jennie不得不用头发遮挡](http://www.movie.hkepx.cn/xiju/5785622.htm)
 - [胖东来员工回应工资及闭店后安置](http://www.play.hengshemaoyi.cn/xiju/0943328.htm)
-- [有研究表示伟哥成分「西地那非」或能抑制癌细胞转移扩散，距离真正用于临床癌症治疗还差什么？](http://www.daogukj.com/6160997)
-- [小说《金瓶梅》中，为什么武大郎对张大户忍气吞声，却对西门庆感到愤怒？](http://www.play.hengshemaoyi.cn/kongbu/9533347.htm)
-- [5岁女童在家中不慎吞下50g金条](http://www.daogukj.com/6158458)
+- [「世界容得下 C919 与波音、空客一起飞」，如何看待国产大飞机与国际巨头的市场竞争？](http://www.daogukj.com/6160997)
+- [为什么古代中国里没有诞生像《伊利亚特》这样的长篇史诗？](http://www.play.hengshemaoyi.cn/kongbu/9533347.htm)
+- [车越来越多 考驾照的人反而少了](http://www.daogukj.com/6158458)
 - [桃黑黑](http://www.daogukj.com/vgxpewvp/)
 - [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.play.hengshemaoyi.cn/xiju/6603798.htm)
-- [全球最大全电动飞机完成首飞](http://www.daogukj.com/3242581)
-- [新规明确厨余垃圾不能直接喂猪，背后出于什么考量？会带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/5213102.htm)
-- [AI泡沫会在今年或者明年破裂吗，为什么？](http://www.play.hengshemaoyi.cn/xiju/3584736.htm)
+- [德国男子家中厕所过于豪华被强拆](http://www.daogukj.com/3242581)
+- [如何评价 Xiaohai（曾卓君）在 2026 美国 CEO 大赛《饿狼传说》项目中成功卫冕？](http://www.play.hengshemaoyi.cn/xiju/5213102.htm)
+- [8国发表联合声明谴责以色列](http://www.play.hengshemaoyi.cn/xiju/3584736.htm)
 - [闪过念头就刷到广告 是手机在偷听吗](http://www.daogukj.com/sqzoiroq/)
 - [奥特曼中 出了一个怪兽的卧底【AI全民制作人】](http://www.daogukj.com/9537822)
 - [忍术回战 26分钟沉浸式观看](http://www.movie.hkepx.cn/xiju/6723827.htm)
 - [夫妻听劝砌一堵墙救了自己命](http://www.daogukj.com/3855937)
-- [住了30年的家26年前竟被别人买了](http://www.play.hengshemaoyi.cn/kongbu/9163230.htm)
-- [伊朗称美国被驱逐已成事实，今后不得进入波斯湾、阿曼湾和霍尔木兹海峡，如何看待这一表态？](http://www.movie.hkepx.cn/xiju/5655654.htm)
+- [5岁女童在家中不慎吞下50g金条](http://www.play.hengshemaoyi.cn/kongbu/9163230.htm)
+- [如何看待追觅卖出首台 AURORA 手机，售价超 20 万元？靠高奢定制切入手机赛道可行吗？](http://www.movie.hkepx.cn/xiju/5655654.htm)
 - [湖北一洗衣店老板被执行死刑](http://www.movie.hkepx.cn/movie/8750130.htm)
 - [DeepSeek Harness 一下子涌现出那么多插件，有没有大佬给一下推荐？](http://www.movie.hkepx.cn/xiju/2707701.htm)
 - [多地商场外墙广告“C位”让给科学家](http://www.movie.hkepx.cn/movie/1592539.htm)
 - [“所长 有人送来个大冰箱”](http://www.movie.hkepx.cn/movie/4182339.htm)
 - [周处除三害现实版，我们干掉他了！](http://www.movie.hkepx.cn/movie/9304746.htm)
-- [《欢迎来龙餐馆》中，为什么所有对主角徐福好的人都死了？](http://www.movie.hkepx.cn/xiju/4345913.htm)
-- [快去请如来佛祖！](http://www.daogukj.com/4645764)
+- [9岁女童确诊性早熟，骨龄超实际年龄近3岁，长期大量摄入高碳水、经常熬夜是主要原因吗？怎样预防性早熟？](http://www.movie.hkepx.cn/xiju/4345913.htm)
+- [小说《金瓶梅》中，为什么武大郎对张大户忍气吞声，却对西门庆感到愤怒？](http://www.daogukj.com/4645764)
 - [前7个月国民经济总体平稳向新向优](http://www.play.hengshemaoyi.cn/kongbu/0822089.htm)
 - [“盘点那些无缝衔接的顶级串烧”](http://www.movie.hkepx.cn/movie/5783118.htm)
 - [房企高管涉嫌酒局上伤害女性被免职](http://www.daogukj.com/lwnrprkt/)
 - [“极少数巨婴碰瓷了大量公共资源”](http://www.play.hengshemaoyi.cn/kongbu/5185531.htm)
 - [极品金灵根各峰主都想收我为徒#meme剧场](http://www.movie.hkepx.cn/movie/2979840.htm)
 - [这些关于网络暴力的谣言勿轻信](http://www.play.hengshemaoyi.cn/xiju/1695379.htm)
-- [龙餐馆 删减](http://www.movie.hkepx.cn/movie/2967061.htm)
+- [成功要对自己狠到什么程度](http://www.movie.hkepx.cn/movie/2967061.htm)
 - [大家为啥不借钱了](http://www.daogukj.com/bhbjtzul/)
-- [一个每天要喝8杯血的吸血鬼，需要多大的贵族头衔与封地才能养活自己？](http://www.movie.hkepx.cn/xiju/2010354.htm)
+- [AI泡沫会在今年或者明年破裂吗，为什么？](http://www.movie.hkepx.cn/xiju/2010354.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3e76e2b0392789a86d4d -->
+<!-- content-fingerprint: 4af023ed94da0ca6baf3 -->
