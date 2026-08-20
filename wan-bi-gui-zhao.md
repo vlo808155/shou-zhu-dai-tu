@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 央视七夕晚会舞台全是惊喜
+# 多厨狂喜！舞蹈区顶流锦依卫们来给痒痒鼠庆生啦！
 
-> 来源：百度热搜 · 排名：第 6 位 · 热度：7238504 · 更新：2026-08-20T12:53:29+08:00
+> 来源：哔哩哔哩热门 · 排名：第 6 位 · 热度：1841319 · 分类：日常 · 更新：2026-08-20T13:34:03+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“央视七夕晚会舞台全是惊喜”位列第 6 位，公开热度指标为 7238504。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“多厨狂喜！舞蹈区顶流锦依卫们来给痒痒鼠庆生啦！”位列第 6 位，公开热度指标为 1841319，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：央视七夕晚会舞台亮点颇多，金莎、林依轮上演回忆杀舞台，周深献唱表现惊艳，开口再度封神，带给观众不少惊喜。
+来源公开摘要显示：BGM: 《极乐Disco》 Dancer: @猛男舞团IconX @醋醋cucu @矮乐多Aliga @鱼肉肉pabo @紫颜-小仙紫 @咝小喵MAO @宅舞联萌官方 Production co-ordinator: NN 祝阴阳师十周年快乐！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
 
 ## 相关热点
 
-- [警方通报青岛男子辱骂女游客](fu-jing-qing-zui.md)
-- [王兴兴进入“奥德赛”时期了吗](mao-sui-zi-jian.md)
-- [为什么苏轼书法被誉为宋朝第一，但是后世却很少学苏轼笔法的人呢？](san-gu-mao-lu.md)
-- [怪谈逃生指南第一期：《恶魔法典》](cao-mu-jie-bing.md)
+- [央视七夕晚会舞台全是惊喜](fu-jing-qing-zui.md)
+- [我家那闺女2026官宣节奏](mao-sui-zi-jian.md)
+- [上海出台楼市“沪八条”](san-gu-mao-lu.md)
+- [那些把软件放D盘的人是出于什么目的考虑的？](cao-mu-jie-bing.md)
 
 ## 站内推荐
 
-- [他予回声StarToU | MacGuffin团队PV公开](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [张本美和：我和孙颖莎不在同一水平](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [1次出游误闯10余个直播间](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [宝马优惠30万 豪华车加价时代落幕](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [金与正：日若军事扩张将遭毁灭性打击](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [【独家/完结】《将夜》第19集 光明之夜【4月国创】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [这几个片段大家可能都听过，但你们知道其实来源于同一首歌吗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [【七夕】我用50部电影来感受《出现又离开》这首歌，发现早已热泪盈眶](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [你们忍得住不说吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [《岸防炮模拟器》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [美国制裁赤根智子 日本网民炸锅](http://www.daogukj.com/3042716)
-- [金与正回应乌称朝鲜向俄增兵参战](http://www.movie.hkepx.cn/movie/2061637.htm)
-- [警方通报青岛男子辱骂女游客](http://www.daogukj.com/whcykmxi/)
-- [《黑神话：钟馗》实机视频公布](http://www.daogukj.com/8289578)
+- [兄妹恋和姐弟恋真的不一样](http://www.daogukj.com/3042716)
+- [追梦格林被大鹅吓到](http://www.movie.hkepx.cn/movie/2061637.htm)
+- [央视七夕晚会舞台全是惊喜](http://www.daogukj.com/whcykmxi/)
+- [恒大5名高管获刑6至18年](http://www.daogukj.com/8289578)
 - [《黑神话：钟馗》15分钟实机演示](http://www.movie.hkepx.cn/movie/6917669.htm)
-- [肖战小说都不敢这么写](http://www.daogukj.com/1323195)
-- [河南濮阳地震](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
-- [媒体：邹市明冉莹颖耍了所有人](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
-- [多方回应车库出租被存放遗体](http://www.movie.hkepx.cn/xiju/7626363.htm)
-- [游客在青岛海之恋拍照遭男子辱骂，随后男子道歉称跑步时比较莽撞，警方目前已介入调查，哪些信息值得关注？](http://www.daogukj.com/zbetfxek/)
-- [12306回应2人买3座是否有处置权](http://www.daogukj.com/6022603)
-- [武汉一程序员坚持5年远距离通勤，每日往返150公里通勤5小时，称想「多陪陪妻女」，你会这样选择吗？](http://www.movie.hkepx.cn/xiju/5313504.htm)
-- [河南某小区凭高考成绩减免物业费，有人质疑减免的物业费是否变相由其他业主承担，如何看待这一举措？](http://www.daogukj.com/xdexhduz/)
-- [《鸣潮》清宵 PV「修行」公开，如何评价新角色琴剑仙设计与 3.6 版本？](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
+- [宝马优惠30万 豪华车加价时代落幕](http://www.daogukj.com/1323195)
+- [日本国宝级女演员岸惠子去世](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
+- [艾滋病检测结果不得告知配偶](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
+- [《鸡来》一个半小时超长电影！！！](http://www.movie.hkepx.cn/xiju/7626363.htm)
+- [小米扫拖机器人避障不灵撞坏百万家具](http://www.daogukj.com/zbetfxek/)
+- [抢公章](http://www.daogukj.com/6022603)
+- [12306回应2人买3座是否有处置权](http://www.movie.hkepx.cn/xiju/5313504.htm)
+- [Moderna的癌症疫苗突破意味着什么](http://www.daogukj.com/xdexhduz/)
+- [青岛辱骂女游客男子已到案](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
 - [暑期市场释放“热”动能](http://www.movie.hkepx.cn/movie/6492359.htm)
 - [许家印被判无期徒刑](http://www.daogukj.com/6000133)
-- [我家那闺女2026官宣节奏](http://www.daogukj.com/ajsfeojq/)
-- [菜谱：洋葱炒蛋，家庭红烧鱼，蒜炒西兰花，辣椒炒猪腰，绿豆汤，从买菜开始，你在家随时可以复刻](http://www.movie.hkepx.cn/xiju/4278075.htm)
-- [首个治疗性癌症疫苗](http://www.movie.hkepx.cn/movie/5534562.htm)
-- [青岛辱骂女游客男子已到案](http://www.daogukj.com/6871213)
-- [1次出游误闯10余个直播间](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
-- [公司被曝设“监狱式工位”逼退员工](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
+- [女子在餐厅教孩子向邻桌索要排骨](http://www.daogukj.com/ajsfeojq/)
+- [司法部认定欧盟针对京东的《外国补贴条例》跨境调查构成不当域外管辖，任何人不得协助执行，如何看待此事？](http://www.movie.hkepx.cn/xiju/4278075.htm)
+- [怪谈逃生指南第一期：《恶魔法典》](http://www.movie.hkepx.cn/movie/5534562.htm)
+- [比收到更卑微的词出现了](http://www.daogukj.com/6871213)
+- [【七夕】我用50部电影来感受《出现又离开》这首歌，发现早已热泪盈眶](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
+- [早春晴朗官宣OST阵容](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
 - [福建这场网安大赛高手云集](http://www.movie.hkepx.cn/xiju/4051583.htm)
-- [早春晴朗官宣OST阵容](http://www.daogukj.com/4848168)
+- [首个治疗性癌症疫苗](http://www.daogukj.com/4848168)
 - [这份五年规划 事关参保、就医、购药](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
-- [男子穿女装戴假发进女厕被抓现行](http://www.movie.hkepx.cn/movie/2894342.htm)
-- [司法部认定欧盟针对京东的《外国补贴条例》跨境调查构成不当域外管辖，任何人不得协助执行，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
+- [警方通报青岛男子辱骂女游客](http://www.movie.hkepx.cn/movie/2894342.htm)
+- [媒体：邹市明冉莹颖耍了所有人](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
 - [朝鲜：日若军事扩张将遭毁灭性打击](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
-- [古惑仔都说为社团做事，被砍、去坐牢也不怕，这么忠诚，社团为什么不送他们去打螺丝？](http://www.movie.hkepx.cn/xiju/8848024.htm)
-- [《枪战模拟器》](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
-- [中国240小时过境免签“朋友圈”扩大](http://www.movie.hkepx.cn/xiju/3438884.htm)
-- [一口气看7小时高质量原创文娱漫剧《我只想亏钱，怎么捧出一个时代》1~26集](http://www.daogukj.com/ieqapfew/)
-- [我家那闺女](http://www.daogukj.com/8044050)
-- [男子台风天编造“无饭吃”被罚](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
-- [为什么“空城计”梗能火？只盖一个大门就能骗走2.4万亿？【梗外之音18】](http://www.movie.hkepx.cn/xiju/0303756.htm)
-- [《鸡来》一个半小时超长电影！！！](http://www.daogukj.com/8598756)
-- [媒体曝劣质手机壳是用医疗垃圾做的，其释放的塑化剂是儿童性早熟主要诱因，长期接触真会导致性早熟吗？](http://www.movie.hkepx.cn/movie/4526722.htm)
-- [七夕节老番茄就和自己玩游戏](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
-- [香港楼市重返巅峰](http://www.daogukj.com/0218050)
-- [女子在餐厅教孩子向邻桌索要排骨](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
-- [菲律宾涉台表态180度转弯有何目的](http://www.daogukj.com/3371192)
-- [高管接私活赚千万被发现后全捐公司](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
-- [张本美和：我和孙颖莎不在同一水平](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
-- [男子花1290万买精装豪宅竟是样板间](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
-- [新疆学生跨越3500公里看望支教老师](http://www.movie.hkepx.cn/movie/1298994.htm)
-- [如何看待大量「有名有姓」的数学猜想被 AI 解决？](http://www.movie.hkepx.cn/movie/6188638.htm)
-- [恒大集团被罚88.2亿元](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
-- [富士康紧急扩招 新人入职就奖8800元](http://www.daogukj.com/4541580)
-- [王兴兴进入“奥德赛”时期了吗](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
-- [恒大集团、恒大地产等案一审宣判，许家印被判处无期徒刑，哪些信息值得关注？](http://www.daogukj.com/4450013)
+- [特朗普宣布对伊朗发起空前经济战](http://www.movie.hkepx.cn/xiju/8848024.htm)
+- [每天一瓶饮料和患糖尿病的关系是直接的吗？](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
+- [宇树大跌](http://www.movie.hkepx.cn/xiju/3438884.htm)
+- [小米集团2026年Q2财报出炉，营收1089亿，你认为小米汽车还要几年才能成为第一大营收和利润来源?](http://www.daogukj.com/ieqapfew/)
+- [张本美和：我和孙颖莎不在同一水平](http://www.daogukj.com/8044050)
+- [时空列车](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
+- [德国最忌讳的两线作战，为何到1941年，居然让希特勒自己拾了起来？就没人冒死劝谏？](http://www.movie.hkepx.cn/xiju/0303756.htm)
+- [Moderna股价暴涨177%，创三年半来新高，mRNA癌症疫苗三期临床达成终点，本次突破含金量多大？](http://www.daogukj.com/8598756)
+- [专家谈中韩能否合力制衡日本](http://www.movie.hkepx.cn/movie/4526722.htm)
+- [媒体曝劣质手机壳是用医疗垃圾做的，其释放的塑化剂是儿童性早熟主要诱因，长期接触真会导致性早熟吗？](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
+- [不是！可她真的不一样！](http://www.daogukj.com/0218050)
+- [【IGN】《黑神话：钟馗》实机演示](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
+- [又一家新能源汽车公司入局](http://www.daogukj.com/3371192)
+- [七夕节老番茄就和自己玩游戏](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
+- [这几个片段大家可能都听过，但你们知道其实来源于同一首歌吗](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
+- [菜谱：洋葱炒蛋，家庭红烧鱼，蒜炒西兰花，辣椒炒猪腰，绿豆汤，从买菜开始，你在家随时可以复刻](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
+- [我家那闺女](http://www.movie.hkepx.cn/movie/1298994.htm)
+- [王兴兴进入“奥德赛”时期了吗](http://www.movie.hkepx.cn/movie/6188638.htm)
+- [许家印满头白发](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
+- [我的蚊子生病了，带它去看病](http://www.daogukj.com/4541580)
+- [我家那闺女2026官宣节奏](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
+- [两人买三张票空座放零食，站票乘客想入座，列车员称无法强制协调，你觉得该让座吗？两人买三座算浪费资源吗？](http://www.daogukj.com/4450013)
 
 </details>
 
 ## 原始来源
 
-- [央视七夕晚会舞台全是惊喜](https://www.baidu.com/s?wd=%E5%A4%AE%E8%A7%86%E4%B8%83%E5%A4%95%E6%99%9A%E4%BC%9A%E8%88%9E%E5%8F%B0%E5%85%A8%E6%98%AF%E6%83%8A%E5%96%9C&sa=fyb_news&rsv_dl=fyb_news)
+- [多厨狂喜！舞蹈区顶流锦依卫们来给痒痒鼠庆生啦！](https://b23.tv/BV1Rc8E6JEKV)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 76d3abe98eedc682410e -->
+<!-- content-fingerprint: 3a073889795ab389ce75 -->
