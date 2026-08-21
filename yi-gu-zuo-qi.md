@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 哈尔滨速滑运动员截肢
+# “大不了送外卖”暴露了什么
 
-> 来源：微博热搜 · 排名：第 8 位 · 热度：470103 · 分类：体育 · 更新：2026-08-21T11:14:53+08:00
+> 来源：百度热搜 · 排名：第 7 位 · 热度：7138173 · 更新：2026-08-21T12:05:42+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“哈尔滨速滑运动员截肢”位列第 8 位，公开热度指标为 470103，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，““大不了送外卖”暴露了什么”位列第 7 位，公开热度指标为 7138173。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，某地一名14岁孩子因赌气称“大不了去送外卖”，被父亲送去体验，话题引发讨论。浙江宣传发文指出，全国外卖骑手人数已突破千万，但这一职业常被当作“退路”和“吃苦教育”素材，暴露出对体力劳动者的认知偏差。文章认为，职业尊严要靠制度托底，平台应优化算法与保障，社会也应给予骑手更多体谅。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `体育`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [唐氏男子聚餐举杯说“祝天下无糖”](yi-zi-qian-jin.md)
-- [花椒的味道那么奇怪，为什么古代最高级别的宠爱会叫“椒房之宠”呢？](yi-fan-feng-shun.md)
-- [这是我经历过的最恐怖的“形影不离”](yi-ming-jing-ren.md)
-- [徐怀钰被亲弟弟指控不顾家还争遗产](yi-jian-shuang-diao.md)
+- [哈尔滨速滑运动员截肢](yi-zi-qian-jin.md)
+- [赖岳谦：解放军一旦登岛就不会再走](yi-fan-feng-shun.md)
+- [男子不接受公司主动离职安排，公司设「监狱式待岗工位」，每日打卡四次并接受监控，公司这么做合适吗？](yi-ming-jing-ren.md)
+- [知道为啥这乐队没主唱了吧](yi-jian-shuang-diao.md)
 
 ## 站内推荐
 
-- [“准两万亿”之城要上桌了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [46岁小罗正式复出](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [易烊千玺实体专备案](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [针灸师以理疗为名约女护士发生关系](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [女子怀孕被房东要求退租，还被出具《房屋租赁补充告知书》限制在屋内坐月子，这合法吗？房东有权这样做吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [月租600电费400 租客不敢开空调](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [解放军新锐武器：可覆盖台海与那国岛](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [尹昉辛芷蕾金色定档](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [北大教授称灵活就业是福利](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [重庆市原副市长江敦涛被公诉](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [如何评价真人互动影视游戏作品《绍宋：还我河山》？](http://www.movie.hkepx.cn/xiju/6552474.htm)
-- [徐怀钰被亲弟弟指控不顾家还争遗产](http://www.movie.hkepx.cn/movie/8544791.htm)
-- [韩雪 你是要气死妈妈吗](http://www.daogukj.com/3711177)
-- [张雪说送到统一为止](http://www.play.hengshemaoyi.cn/kongbu/1559298.htm)
-- [房主反杀非法上门强拆者，陕西判了，无罪](http://www.daogukj.com/vxwjdfib/)
-- [花椒的味道那么奇怪，为什么古代最高级别的宠爱会叫“椒房之宠”呢？](http://www.movie.hkepx.cn/movie/6409275.htm)
-- [王者荣耀全网寻撞持刀男子外卖员](http://www.play.hengshemaoyi.cn/xiju/2772698.htm)
-- [医院能办结婚证了](http://www.daogukj.com/dwkhbexl/)
-- [小米扫拖机器人避障不灵撞坏百万家具，消费者质疑商家宣传未说明缺点，能向小米索赔吗？](http://www.daogukj.com/7336913)
+- [知道为啥这乐队没主唱了吧](http://www.movie.hkepx.cn/movie/8544791.htm)
+- [黄灿灿官宣我家那闺女](http://www.daogukj.com/3711177)
+- [泡泡玛特IP格局大变](http://www.play.hengshemaoyi.cn/kongbu/1559298.htm)
+- [遇见小面连续 4 年降价，平均客单价降到 27.7 元，上半年净利涨超 50% ，为什么降价后赚更多？](http://www.daogukj.com/vxwjdfib/)
+- [赖岳谦：解放军一旦登岛就不会再走](http://www.movie.hkepx.cn/movie/6409275.htm)
+- [单位没有人情味](http://www.play.hengshemaoyi.cn/xiju/2772698.htm)
+- [脑梗发病前很多人以为“只是累了”](http://www.daogukj.com/dwkhbexl/)
+- [柯洁称找到了破解围棋AI的方法，只需要装弱智哪怕让AI九子也能赢，这招可行吗？是什么原理？](http://www.daogukj.com/7336913)
 - [孩子小学二年级，班主任为51个娃设53个官职，包括窗台管理员、前后门管理员等，如何评价此事？](http://www.daogukj.com/7257814)
-- [398一杯的芋圆葡萄](http://www.movie.hkepx.cn/xiju/4522982.htm)
-- [武汉一泸溪河糕点贴两层有效期标签](http://www.movie.hkepx.cn/movie/5611897.htm)
-- [这是我经历过的最恐怖的“形影不离”](http://www.play.hengshemaoyi.cn/xiju/0281070.htm)
-- [举手之劳 亦是人间微光](http://www.movie.hkepx.cn/movie/2873114.htm)
+- [网红卖淫秽视频被抓时问会判刑吗](http://www.movie.hkepx.cn/xiju/4522982.htm)
+- [18岁哈尔滨速滑运动员被迫截肢](http://www.movie.hkepx.cn/movie/5611897.htm)
+- [男子不接受公司主动离职安排，公司设「监狱式待岗工位」，每日打卡四次并接受监控，公司这么做合适吗？](http://www.play.hengshemaoyi.cn/xiju/0281070.htm)
+- [全面拆解钟馗隐藏细节！《黑神话钟馗》PV逐帧解析](http://www.movie.hkepx.cn/movie/2873114.htm)
 - [《影之刃零》专场 State of Play 全程回顾](http://www.play.hengshemaoyi.cn/xiju/7985573.htm)
 - [张雪称岛内查扣1辆送1辆直到两岸统一](http://www.daogukj.com/1201346)
-- [女子用了公用瑜伽垫后感染HPV](http://www.play.hengshemaoyi.cn/xiju/9868547.htm)
-- [碟中谍](http://www.play.hengshemaoyi.cn/xiju/4472820.htm)
+- [菜谱：洋葱炒蛋，家庭红烧鱼，蒜炒西兰花，辣椒炒猪腰，绿豆汤，从买菜开始，你在家随时可以复刻](http://www.play.hengshemaoyi.cn/xiju/9868547.htm)
+- [从《黑神话：钟馗》最新的实机展示来看，是否游戏仍然延续了《黑神话：悟空》的线性关卡设计？](http://www.play.hengshemaoyi.cn/xiju/4472820.htm)
 - [《黑神话：钟馗》15分钟实机演示](http://www.daogukj.com/6717907)
-- [46岁小罗正式复出](http://www.daogukj.com/smbgijxm/)
-- [老板半年被骗1400多万 6名演员被抓](http://www.daogukj.com/ttaxgjnj/)
-- [这手枪比其他所有东西加起来还贵，大后期也只能买一把](http://www.movie.hkepx.cn/movie/2477961.htm)
-- [在公厕差点被陌生人杀害](http://www.movie.hkepx.cn/movie/7906581.htm)
-- [孟子义李昀锐第三视角](http://www.play.hengshemaoyi.cn/xiju/2898700.htm)
-- [泡泡玛特IP格局大变](http://www.daogukj.com/8209027)
+- [解放军新锐武器：可覆盖台海与那国岛](http://www.daogukj.com/smbgijxm/)
+- [媒体：机器人真正的大战才刚刚开始](http://www.daogukj.com/ttaxgjnj/)
+- [终于走回深圳了｜挑战上海走回深圳最后一集！！](http://www.movie.hkepx.cn/movie/2477961.htm)
+- [公摊 霍英东](http://www.movie.hkepx.cn/movie/7906581.htm)
+- [拼豆大卫雕像撞脸赵本山宋小宝](http://www.play.hengshemaoyi.cn/xiju/2898700.htm)
+- [宝马iX3价格](http://www.daogukj.com/8209027)
 - [江苏盐城爆响](http://www.play.hengshemaoyi.cn/kongbu/8768079.htm)
 - [你还记得庞中华吗](http://www.movie.hkepx.cn/movie/0482312.htm)
-- [张本美和：对阵孙颖莎拿1分都侥幸](http://www.play.hengshemaoyi.cn/xiju/9281018.htm)
-- [陈伟霆 进组10多天遭换角](http://www.play.hengshemaoyi.cn/xiju/2910980.htm)
+- [398一杯的芋圆葡萄](http://www.play.hengshemaoyi.cn/xiju/9281018.htm)
+- [沈腾开口嘴瓢全场大笑](http://www.play.hengshemaoyi.cn/xiju/2910980.htm)
 - [假如你是一个诗人](http://www.movie.hkepx.cn/xiju/6292361.htm)
 - [人工智能助力中国传统文化推陈出新](http://www.play.hengshemaoyi.cn/xiju/0614862.htm)
-- [男子不接受公司主动离职安排，公司设「监狱式待岗工位」，每日打卡四次并接受监控，公司这么做合适吗？](http://www.daogukj.com/9979795)
-- [曝 iPhone17 系列国内销量超 4000 万，为何消费者仍青睐苹果？](http://www.play.hengshemaoyi.cn/kongbu/1433199.htm)
-- [父女黄河大堤失踪 车上录音曝光](http://www.movie.hkepx.cn/xiju/7129841.htm)
+- [如何看待蒙不法分子擅闯中资营地侮辱中方员工，中方向蒙方提出交涉？](http://www.daogukj.com/9979795)
+- [GDP排名下滑印度经济怎么了](http://www.play.hengshemaoyi.cn/kongbu/1433199.htm)
+- [《黑神话：钟馗》实机终极深扒，游科成为世界第一ARPG开发商的底气！【游戏之外】](http://www.movie.hkepx.cn/xiju/7129841.htm)
 - [唐王随手捐闲钱，竟将阿萨拉扶成王！](http://www.play.hengshemaoyi.cn/xiju/9779871.htm)
-- [30岁失业男子饿20天急性肾衰](http://www.play.hengshemaoyi.cn/kongbu/0816683.htm)
+- [孟子义郝念角色照](http://www.play.hengshemaoyi.cn/kongbu/0816683.htm)
 - [国家级自驾游路线重磅上新](http://www.movie.hkepx.cn/movie/2013477.htm)
-- [知道为啥这乐队没主唱了吧](http://www.play.hengshemaoyi.cn/xiju/7205858.htm)
-- [《一饭封神》里评委说莫氏鸡煲“技术含量不高”，谢霆锋却夸“鸡好汤好喝”，你更认同哪种评价？](http://www.play.hengshemaoyi.cn/kongbu/7066491.htm)
-- [“大不了送外卖”暴露了什么](http://www.movie.hkepx.cn/movie/8012853.htm)
-- [爱在无尽夏开机路透](http://www.daogukj.com/6669739)
-- [网红卖淫秽视频被抓时问会判刑吗](http://www.play.hengshemaoyi.cn/xiju/7115036.htm)
-- [基辛格妻子去世](http://www.movie.hkepx.cn/xiju/8116216.htm)
-- [长城偶遇冯绍峰父子](http://www.play.hengshemaoyi.cn/xiju/4734993.htm)
+- [我的蚊子生病了，带它去看病](http://www.play.hengshemaoyi.cn/xiju/7205858.htm)
+- [佟大为庆祝与关悦结婚19周年](http://www.play.hengshemaoyi.cn/kongbu/7066491.htm)
+- [基辛格妻子去世](http://www.movie.hkepx.cn/movie/8012853.htm)
+- [曹格儿子表白女友](http://www.daogukj.com/6669739)
+- [在公厕差点被陌生人杀害](http://www.play.hengshemaoyi.cn/xiju/7115036.htm)
+- [老板半年被骗1400多万 6名演员被抓](http://www.movie.hkepx.cn/xiju/8116216.htm)
+- [陈伟霆 进组10多天遭换角](http://www.play.hengshemaoyi.cn/xiju/4734993.htm)
 - [大冰称婚后上交工资是三观问题](http://www.daogukj.com/lwpbikmi/)
-- [从《黑神话：钟馗》最新的实机展示来看，是否游戏仍然延续了《黑神话：悟空》的线性关卡设计？](http://www.movie.hkepx.cn/movie/6992838.htm)
-- [解放军新锐武器：可覆盖台海与那国岛](http://www.movie.hkepx.cn/xiju/0832634.htm)
-- [停更7年，我又以经典的方式玩MC](http://www.play.hengshemaoyi.cn/kongbu/7290198.htm)
-- [终于走回深圳了｜挑战上海走回深圳最后一集！！](http://www.daogukj.com/jolmznpt/)
+- [医院能办结婚证了](http://www.movie.hkepx.cn/movie/6992838.htm)
+- [新疆北湾一巴掌能拍死100多只蚊子](http://www.movie.hkepx.cn/xiju/0832634.htm)
+- [动态视频｜火箭降落的全过程，拍到了！](http://www.play.hengshemaoyi.cn/kongbu/7290198.htm)
+- [【万字硬核考据】全方位拆解《黑钟馗》-主角/怪物/战斗/剧情/符箓](http://www.daogukj.com/jolmznpt/)
 - [女子穿睡衣站高楼窗沿 当地回应](http://www.play.hengshemaoyi.cn/xiju/2833298.htm)
 
 </details>
 
 ## 原始来源
 
-- [哈尔滨速滑运动员截肢](https://s.weibo.com/weibo?q=%E5%93%88%E5%B0%94%E6%BB%A8%E9%80%9F%E6%BB%91%E8%BF%90%E5%8A%A8%E5%91%98%E6%88%AA%E8%82%A2)
+- [“大不了送外卖”暴露了什么](https://www.baidu.com/s?wd=%E2%80%9C%E5%A4%A7%E4%B8%8D%E4%BA%86%E9%80%81%E5%A4%96%E5%8D%96%E2%80%9D%E6%9A%B4%E9%9C%B2%E4%BA%86%E4%BB%80%E4%B9%88&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 29c36f1a00183935ffff -->
+<!-- content-fingerprint: 9e30514b9984c05b0c21 -->
