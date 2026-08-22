@@ -2,11 +2,11 @@
 
 # 女兵放弃本科从军8年后军士专升本
 
-> 来源：百度热搜 · 排名：第 7 位 · 热度：7139481 · 更新：2026-08-23T01:47:57+08:00
+> 来源：百度热搜 · 排名：第 7 位 · 热度：7142403 · 更新：2026-08-23T02:01:39+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“女兵放弃本科从军8年后军士专升本”位列第 7 位，公开热度指标为 7139481。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“女兵放弃本科从军8年后军士专升本”位列第 7 位，公开热度指标为 7142403。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：近日，2026年军士专升本录取结果公布，信息支援部队某部中士隆群顺利考上信息支援部队工程大学，以军士身份圆梦军校全日制本科。此前2018年她曾获地方本科录取，但放弃就读选择入伍，如今时隔八年终圆本科梦。
 
@@ -19,7 +19,7 @@
 ## 相关热点
 
 - [住破房穿20块衣服男子20年攒下789万](yi-zi-qian-jin.md)
-- [美伊进入经济战 中东局势何去何从](yi-fan-feng-shun.md)
+- [白血病不再是不治之症](yi-fan-feng-shun.md)
 - [如何看待现在好多小学初中生身高一米八？](yi-ming-jing-ren.md)
 - [《下一个是谁》第七季（3）](yi-jian-shuang-diao.md)
 
@@ -29,7 +29,7 @@
 - [曾被狼群抚养12年的西班牙狼孩去世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
 - [中国男篮时隔12年再进U18亚洲杯决赛](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
 - [女孩试衣时被人掀开门帘 警方介入](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [走马太好听了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [SuperJunior出场太帅了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
@@ -40,10 +40,10 @@
 - [《下一个是谁》第七季（3）](http://www.movie.hkepx.cn/movie/8544791.htm)
 - [真的...没有人类了](http://www.daogukj.com/3711177)
 - [桃酥是没有一滴水的](http://www.play.hengshemaoyi.cn/kongbu/1559298.htm)
-- [80岁西班牙“狼孩”去世](http://www.daogukj.com/vxwjdfib/)
-- [美伊进入经济战 中东局势何去何从](http://www.movie.hkepx.cn/movie/6409275.htm)
+- [女孩求职被拒发现自己竟是“精神病”](http://www.daogukj.com/vxwjdfib/)
+- [白血病不再是不治之症](http://www.movie.hkepx.cn/movie/6409275.htm)
 - [亚朵卖枕头被子收入快赶上酒店主业](http://www.play.hengshemaoyi.cn/xiju/2772698.htm)
-- [求职胖东来的刑满释放人员：去年失败](http://www.daogukj.com/dwkhbexl/)
+- [亚朵“枕头被子”收入逼近主业](http://www.daogukj.com/dwkhbexl/)
 - [怎么看 DeepSeek 8 月22 日再调整定价，周末全天统一按低谷价收费？](http://www.daogukj.com/7336913)
 - [林肯号危机「吹哨人」遭清算，因曝光林肯号糟糕处境，美国军报总编辑、发行人、记者均被解雇，如何看待此事？](http://www.daogukj.com/7257814)
 - [那英边唱边哭](http://www.movie.hkepx.cn/xiju/4522982.htm)
@@ -53,7 +53,7 @@
 - [本关最优解：放70个窝瓜僵尸 【bilibilionly同人扶持计划】](http://www.play.hengshemaoyi.cn/xiju/7985573.htm)
 - [披荆斩棘排名](http://www.daogukj.com/1201346)
 - [年轻人开始流行「养砖头」，这种看似无意义的爱好为什么会戳中年轻人的心？「养砖头」要注意什么？](http://www.play.hengshemaoyi.cn/xiju/9868547.htm)
-- [男子患癌在车间自缢 公司赔20余万](http://www.play.hengshemaoyi.cn/xiju/4472820.htm)
+- [以色列土耳其会爆发冲突吗](http://www.play.hengshemaoyi.cn/xiju/4472820.htm)
 - ["复活吧！我的（ ）"](http://www.daogukj.com/6717907)
 - [曾被狼群抚养12年的西班牙狼孩去世](http://www.daogukj.com/smbgijxm/)
 - [三个台风出现了](http://www.daogukj.com/ttaxgjnj/)
@@ -61,14 +61,14 @@
 - [欢子淘汰 压根没来](http://www.movie.hkepx.cn/movie/7906581.htm)
 - [胖东来生活广场顾客更多了：7点就排队](http://www.play.hengshemaoyi.cn/xiju/2898700.htm)
 - [披荆斩棘淘汰](http://www.daogukj.com/8209027)
-- [宇树预赛小组垫底 回应缩减参赛项目](http://www.play.hengshemaoyi.cn/kongbu/8768079.htm)
+- [约1000家兰州拉面店完成门头更换](http://www.play.hengshemaoyi.cn/kongbu/8768079.htm)
 - [《牛莱》](http://www.movie.hkepx.cn/movie/0482312.htm)
 - [追觅造车梦遇挫 员工被裁工位闲置](http://www.play.hengshemaoyi.cn/xiju/9281018.htm)
 - [宇树机器人100米预赛小组垫底](http://www.play.hengshemaoyi.cn/xiju/2910980.htm)
 - [严肃观看儿子的历史记录](http://www.movie.hkepx.cn/xiju/6292361.htm)
 - [世界人形机器人运动会亮点](http://www.play.hengshemaoyi.cn/xiju/0614862.htm)
 - [如何看待高校录取通知书回归「一页纸」后，清华大学推出立体二校门版「入学纪念证书」？](http://www.daogukj.com/9979795)
-- [男孩被民警掌掴近1个月未能正常上学](http://www.play.hengshemaoyi.cn/kongbu/1433199.htm)
+- [走马太好听了](http://www.play.hengshemaoyi.cn/kongbu/1433199.htm)
 - [西安一影城推出午休服务，每月 39.9 元还有免费充电、咖啡，这一服务怎么样？你愿意花钱去影院午休吗？](http://www.movie.hkepx.cn/xiju/7129841.htm)
 - [乘法的本质是什么？](http://www.play.hengshemaoyi.cn/xiju/9779871.htm)
 - [台湾节目嘉宾说北京没有冰箱引群嘲](http://www.play.hengshemaoyi.cn/kongbu/0816683.htm)
@@ -78,14 +78,14 @@
 - [总犯困、代谢慢？可能不是上班累的](http://www.movie.hkepx.cn/movie/8012853.htm)
 - [9秒39！中国机器人打破博尔特百米成绩](http://www.daogukj.com/6669739)
 - [王源一句话让几万人低头看手机](http://www.play.hengshemaoyi.cn/xiju/7115036.htm)
-- [马克龙宣布进一步加强对乌军事支持](http://www.movie.hkepx.cn/xiju/8116216.htm)
+- [司机不满后车喇叭催促恶意别车被罚款](http://www.movie.hkepx.cn/xiju/8116216.htm)
 - [挑战让精神小妹一天花1500，看她怎么花](http://www.play.hengshemaoyi.cn/xiju/4734993.htm)
 - [男子调包订婚五金典当套现208万](http://www.daogukj.com/lwpbikmi/)
-- [SuperJunior出场太帅了](http://www.movie.hkepx.cn/movie/6992838.htm)
+- [男孩被民警掌掴近1个月未能正常上学](http://www.movie.hkepx.cn/movie/6992838.htm)
 - [《黑神话：钟馗》15分钟实机演示](http://www.movie.hkepx.cn/xiju/0832634.htm)
 - [零食占座当事人母亲否认故意占座，称儿童票捆绑成人票销售，退成人票后儿童会被要求下车，哪些问题值得关注？](http://www.play.hengshemaoyi.cn/kongbu/7290198.htm)
 - [网友发现18岁黑龙江速滑运动员王新睿被冰刀割伤左腿截肢，具体是怎么回事？若如网传是他人撞伤，能赔偿吗？](http://www.daogukj.com/jolmznpt/)
-- [白血病不再是不治之症](http://www.play.hengshemaoyi.cn/xiju/2833298.htm)
+- [马克龙宣布进一步加强对乌军事支持](http://www.play.hengshemaoyi.cn/xiju/2833298.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: fc8660a811b302704732 -->
+<!-- content-fingerprint: 372c61ea571bf33606eb -->
