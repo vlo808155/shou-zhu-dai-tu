@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 璀璨之上 迪丽热巴
+# 派出所回应扶老人被索赔10万事件
 
-> 来源：微博热搜 · 排名：第 6 位 · 热度：498764 · 分类：剧集 · 更新：2026-08-24T13:21:26+08:00
+> 来源：百度热搜 · 排名：第 5 位 · 热度：7331475 · 更新：2026-08-24T14:04:14+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“璀璨之上 迪丽热巴”位列第 6 位，公开热度指标为 498764，榜单分类为“剧集”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“派出所回应扶老人被索赔10万事件”位列第 5 位，公开热度指标为 7331475。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：8月23日，湖南一老人身体不适，进棋牌店休息晕倒，店主帮扶送医后老人不幸离世。随后老人家属向店主索赔10万元，双方在派出所两次协商，赔偿金额从10万元变为1.9万元后协商成功。记者从辖区派出所获悉，赔偿款已支付。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `剧集`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [媒体评店家扶老人反被索赔10万](bei-shui-yi-zhan.md)
-- [亚朵卖枕头被子收入快赶上酒店主业，将全年零售收入增长目标上调至40％，一系列商业动作的背后有哪些考量？](zhi-shang-tan-bing.md)
-- [我这一生最大的罪，是把人写成了妖……](wei-wei-jiu-zhao.md)
-- [广西多地防汛救灾最新情况](wan-bi-gui-zhao.md)
+- [璀璨之上 迪丽热巴](bei-shui-yi-zhan.md)
+- [绿茶等餐厅回应敌敌畏消杀](zhi-shang-tan-bing.md)
+- [肯德基麦当劳的配方为何能数十年不泄露？](wei-wei-jiu-zhao.md)
+- [【纪录片TV】大乾乾被撞成两半了……](wan-bi-gui-zhao.md)
 
 ## 站内推荐
 
-- [扶老人被索赔10万店主称事情已处理好](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [105岁老妈说85岁儿子这辈子完了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [刘浩存有段地府戏也被删了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [本次 15 分钟实机演示后，你预估《黑神话：钟馗》的销量是多少？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [超强台风「沙德尔」已睁眼，可能登陆东南沿海，影响路径走向的因素是什么？有哪些信息值得关注？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [护理：一把斩向死亡的温柔刀](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [歼-16升空！直击中埃空军联合演练](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [网友92万代孕孩子患自闭症](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [律师称扶老人协商赔钱是和稀泥](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [如何看待Levent Alpoge发布的S^6的复结构构造的论文？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [法老 退圈](http://www.daogukj.com/1823488)
+- [没人会记得神作之下的第二名，除非那一年都是神仙！](http://www.daogukj.com/1823488)
 - [广东一镇有黑山羊遭蟒蛇袭击](http://www.play.hengshemaoyi.cn/xiju/5320894.htm)
 - [张韶涵深夜发文报平安](http://www.movie.hkepx.cn/xiju/9086289.htm)
-- [男子省吃俭用 20 年攒下 789 万，6 天被骗子全部转空，带来哪些警示？](http://www.daogukj.com/cskdtjca/)
-- [媒体评店家扶老人反被索赔10万](http://www.movie.hkepx.cn/movie/5197885.htm)
-- [官方：7.7级地震预警为冒名发布](http://www.daogukj.com/9392657)
-- [为何甲醛白菜药养牛蛙能频频“闯关”](http://www.movie.hkepx.cn/movie/8565414.htm)
+- [官方回应手机收到长宁7.7级地震预警](http://www.daogukj.com/cskdtjca/)
+- [璀璨之上 迪丽热巴](http://www.movie.hkepx.cn/movie/5197885.htm)
+- [韩沛颖向刘浩存道歉](http://www.daogukj.com/9392657)
+- [罗永浩愿凑10万捐给扶老人遭索赔店主](http://www.movie.hkepx.cn/movie/8565414.htm)
 - [今日出伏](http://www.daogukj.com/6051164)
-- [【战双帕弥什】「于频率中相汇」全球线上音乐会回顾](http://www.daogukj.com/6679975)
-- [张韶涵因心脏病找母亲要医疗费未果](http://www.daogukj.com/2695648)
-- [天工队400米决赛以38.15秒夺得本届机器人运动会首金，前三名均打破人类世界纪录，怎样评价这一成绩？](http://www.play.hengshemaoyi.cn/xiju/3099726.htm)
-- [《一直在思考》](http://www.movie.hkepx.cn/movie/7889816.htm)
-- [为什么吉林大学实力很强投档线却很低?](http://www.play.hengshemaoyi.cn/xiju/3571483.htm)
+- [全网疯传深圳某炸鸡店“窒息45秒”事件，暴露年轻人的悲哀困境](http://www.daogukj.com/6679975)
+- [实习生把拒绝AI贴到公司电梯](http://www.daogukj.com/2695648)
+- [韩沛颖直播说刘浩存 14 岁就跟某某某导了，随后又发文向刘浩存道歉称「措辞欠妥」，发生了什么？](http://www.play.hengshemaoyi.cn/xiju/3099726.htm)
+- [黄循财：新加坡绝不可成为单语社会](http://www.movie.hkepx.cn/movie/7889816.htm)
+- [成都高新减灾研究所反驳冒名预警地震](http://www.play.hengshemaoyi.cn/xiju/3571483.htm)
 - [如何看待「最近是全体教师最脆弱的时候」？开学前大家都干了啥，心情怎么样？](http://www.play.hengshemaoyi.cn/kongbu/9465250.htm)
-- [警员执法遇F-18战机坠落，6700万战损，飞行员报警求助！](http://www.movie.hkepx.cn/xiju/2970345.htm)
-- [绿茶回应敌敌畏消杀：不清楚](http://www.daogukj.com/7120405)
-- [著名战地记者唐师曾逝世](http://www.play.hengshemaoyi.cn/xiju/4113560.htm)
-- [广西多地防汛救灾最新情况](http://www.daogukj.com/jzelussd/)
-- [舞蹈新风暴舞者官宣](http://www.daogukj.com/ajlcnxcx/)
-- [四川宜宾长宁县发生4.7级地震](http://www.daogukj.com/0152970)
-- [越来越宽的新能源车被停车难劝退，我们是否需要一批车宽 1.7 米级的家用电车？](http://www.movie.hkepx.cn/movie/9056597.htm)
-- [台风“简拉维”已在福建泉州登陆](http://www.play.hengshemaoyi.cn/xiju/9731004.htm)
-- [肯德基麦当劳的配方为何能数十年不泄露？](http://www.movie.hkepx.cn/xiju/1868267.htm)
-- [多家餐厅残留液体敌敌畏检测阳性](http://www.play.hengshemaoyi.cn/xiju/1299773.htm)
-- [绿茶回应敌敌畏消杀事件](http://www.daogukj.com/onyieegy/)
-- [僵 尸 进 村](http://www.play.hengshemaoyi.cn/xiju/0532528.htm)
-- [网友92万代孕孩子患自闭症](http://www.movie.hkepx.cn/movie/0256063.htm)
-- [我做了两个一模一样的视频，你被分配到的是——真人手搓版](http://www.movie.hkepx.cn/movie/9918247.htm)
-- [老人进店休息离世，店主帮扶被索赔 1.9 万，司法部门介入，相关部门提出补贴店家，如何评价该处理方式？](http://www.movie.hkepx.cn/movie/8593083.htm)
-- [原创民俗AI短片《槐灯》](http://www.movie.hkepx.cn/movie/0122390.htm)
-- [官方回应手机收到长宁7.7级地震预警](http://www.movie.hkepx.cn/movie/7943713.htm)
+- [美日德英法这些国家为什么没有户口制度？](http://www.movie.hkepx.cn/xiju/2970345.htm)
+- ["复活吧！我的（ ）"](http://www.daogukj.com/7120405)
+- [媒体：日本已深度介入俄乌冲突](http://www.play.hengshemaoyi.cn/xiju/4113560.htm)
+- [【纪录片TV】大乾乾被撞成两半了……](http://www.daogukj.com/jzelussd/)
+- [王以太被披哥工作人员吐槽](http://www.daogukj.com/ajlcnxcx/)
+- [敌敌畏消杀涉绿茶餐厅](http://www.daogukj.com/0152970)
+- [刘浩存有段地府戏也被删了](http://www.movie.hkepx.cn/movie/9056597.htm)
+- [原来大部分女儿都是遗传爸爸了](http://www.play.hengshemaoyi.cn/xiju/9731004.htm)
+- [媒体评店家扶老人反被索赔10万](http://www.movie.hkepx.cn/xiju/1868267.htm)
+- [俄军向士兵投放便携式激光步枪](http://www.play.hengshemaoyi.cn/xiju/1299773.htm)
+- [Attention 注意别喝多](http://www.daogukj.com/onyieegy/)
+- [「泔水喂猪」被正式写入禁令，用剩菜剩饭直接喂猪有什么影响？为何禁止？](http://www.play.hengshemaoyi.cn/xiju/0532528.htm)
+- [四川地震局终止预警第三方授权](http://www.movie.hkepx.cn/movie/0256063.htm)
+- [越来越宽的新能源车被停车难劝退，我们是否需要一批车宽 1.7 米级的家用电车？](http://www.movie.hkepx.cn/movie/9918247.htm)
+- [多家餐厅残留液体敌敌畏检测阳性](http://www.movie.hkepx.cn/movie/8593083.htm)
+- [亚朵卖枕头被子收入快赶上酒店主业，将全年零售收入增长目标上调至40％，一系列商业动作的背后有哪些考量？](http://www.movie.hkepx.cn/movie/0122390.htm)
+- [伊朗已收到加入麦加协议正式邀请](http://www.movie.hkepx.cn/movie/7943713.htm)
 - [男篮公布亚运会14人名单 无杨瀚森](http://www.play.hengshemaoyi.cn/kongbu/5001053.htm)
 - [四川地震局已终止预警第三方授权](http://www.daogukj.com/qcrvnclj/)
-- [四川地震局终止预警第三方授权](http://www.daogukj.com/hwjdrvyl/)
-- [325](http://www.movie.hkepx.cn/xiju/3504908.htm)
-- ["复活吧！我的（ ）"](http://www.daogukj.com/lfqwqkoe/)
-- [派出所回应扶老人被索赔10万事件](http://www.daogukj.com/6505376)
-- [搞笑疯人院：满级病友竟是大佬！大家都有病的时候，楚闻野张口闭口就喊桑九舅舅，桑九也觉得楚闻野是个好孩子，就是脑子不太好。](http://www.daogukj.com/mdqmkfar/)
-- [官方提出补贴帮扶老人遭索赔店家](http://www.play.hengshemaoyi.cn/kongbu/2415448.htm)
-- [罗永浩求扶老人被索赔店主联系方式](http://www.movie.hkepx.cn/xiju/3998678.htm)
-- [月子里两位老人共同照料爆发矛盾，母亲回了老家，夹在中间该怎么解决？](http://www.movie.hkepx.cn/movie/6743699.htm)
-- [有没有一种可能，驾驶飞机的真实难度，其实并不比驾驶汽车难很多，实际上还可能更简单？](http://www.daogukj.com/xgmimokd/)
-- [警方通报「博主称小红书因遭举报上市失败」，造谣者已被行拘，其将承担哪些责任？此事对小红书影响有多大？](http://www.play.hengshemaoyi.cn/xiju/7200927.htm)
-- [没人会记得神作之下的第二名，除非那一年都是神仙！](http://www.daogukj.com/0557862)
-- [编造北京门头沟山洪暴发谣言被拘](http://www.play.hengshemaoyi.cn/kongbu/0604765.htm)
-- [普京：杀害卡德罗夫的罪行不能原谅](http://www.movie.hkepx.cn/movie/8247300.htm)
-- [宋威龙居家男友感](http://www.daogukj.com/jcieinjo/)
-- [朱雀三号八个月的逆袭之路](http://www.daogukj.com/1895577)
-- [中国男篮公布亚运会14人名单](http://www.play.hengshemaoyi.cn/kongbu/4995743.htm)
+- [新三国up锐评老三国14：这美人计，谁上谁也遭不住](http://www.daogukj.com/hwjdrvyl/)
+- [中国大使怒斥菲方：我会让你付出代价](http://www.movie.hkepx.cn/xiju/3504908.htm)
+- [天工机器人「娇羞捂脸跑」出圈，这一跑姿为何能夺冠？背后做了哪些技术优化？](http://www.daogukj.com/lfqwqkoe/)
+- [我这一生最大的罪，是把人写成了妖……](http://www.daogukj.com/6505376)
+- [【战双帕弥什】「于频率中相汇」全球线上音乐会回顾](http://www.daogukj.com/mdqmkfar/)
+- [女子为吹空调把电梯锁在自家楼层](http://www.play.hengshemaoyi.cn/kongbu/2415448.htm)
+- [为照顾植物人丈夫 女子睡了9年沙发](http://www.movie.hkepx.cn/xiju/3998678.htm)
+- [舞蹈新风暴舞者官宣](http://www.movie.hkepx.cn/movie/6743699.htm)
+- [上半年经济增长4.7%说明了什么](http://www.daogukj.com/xgmimokd/)
+- [月子里两位老人共同照料爆发矛盾，母亲回了老家，夹在中间该怎么解决？](http://www.play.hengshemaoyi.cn/xiju/7200927.htm)
+- [《一直在思考》](http://www.daogukj.com/0557862)
+- [蔚来ES9车主称换电中途整站断电](http://www.play.hengshemaoyi.cn/kongbu/0604765.htm)
+- [暑期档乱成一锅粥](http://www.movie.hkepx.cn/movie/8247300.htm)
+- [A股半日放量1177亿调整](http://www.daogukj.com/jcieinjo/)
+- [搞笑疯人院：满级病友竟是大佬！大家都有病的时候，楚闻野张口闭口就喊桑九舅舅，桑九也觉得楚闻野是个好孩子，就是脑子不太好。](http://www.daogukj.com/1895577)
+- [四川宜宾长宁县发生4.7级地震](http://www.play.hengshemaoyi.cn/kongbu/4995743.htm)
 - [公司用敌敌畏给绿茶等餐厅消杀](http://www.play.hengshemaoyi.cn/xiju/5777989.htm)
 
 </details>
 
 ## 原始来源
 
-- [璀璨之上 迪丽热巴](https://s.weibo.com/weibo?q=%E7%92%80%E7%92%A8%E4%B9%8B%E4%B8%8A%20%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4)
+- [派出所回应扶老人被索赔10万事件](https://www.baidu.com/s?wd=%E6%B4%BE%E5%87%BA%E6%89%80%E5%9B%9E%E5%BA%94%E6%89%B6%E8%80%81%E4%BA%BA%E8%A2%AB%E7%B4%A2%E8%B5%9410%E4%B8%87%E4%BA%8B%E4%BB%B6&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e8ec8209d525da098cba -->
+<!-- content-fingerprint: a40783c88792b9725ae4 -->
