@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 小米玄戒O3芯片前瞻上手：外星科技！
+# 美伊冲突
 
-> 来源：哔哩哔哩热门 · 排名：第 6 位 · 热度：1075152 · 分类：数码 · 更新：2026-08-25T07:29:22+08:00
+> 来源：微博热搜 · 排名：第 8 位 · 热度：344520 · 分类：国际时政 · 更新：2026-08-25T07:50:55+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“小米玄戒O3芯片前瞻上手：外星科技！”位列第 6 位，公开热度指标为 1075152，榜单分类为“数码”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“美伊冲突”位列第 8 位，公开热度指标为 344520，榜单分类为“国际时政”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：又一年新机潮开始了，这次登场的首个旗舰手机芯片是小米的玄戒O3！它的表现到底有多强？一起来看看吧……
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `数码`
+`微博热搜` `实时热搜` `热点资讯` `国际时政`
 
 ## 相关热点
 
-- [坐3小时看电影 有必要拍这么长吗](fu-jing-qing-zui.md)
-- [美伊冲突](mao-sui-zi-jian.md)
-- [AI短剧《非妖哉》导演：1集成本1万](san-gu-mao-lu.md)
-- [脑出血急诊去医院为什么几个小时不开始手术，最后我妈去世了，医院有没有责任？](cao-mu-jie-bing.md)
+- [官方确认：扶老人赔1.9万店主无过错](fu-jing-qing-zui.md)
+- [🦋 炼 定 仙 游 ♂ 股 🦋](mao-sui-zi-jian.md)
+- [王楚然现发4跳舞路透](san-gu-mao-lu.md)
+- [当地回应湖泊出现疑3米长巨型鱼](cao-mu-jie-bing.md)
 
 ## 站内推荐
 
-- [樊振东德国杯上座率已经超85%，影院为什么不加场呢?](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [原创民俗AI短片《槐灯》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [僵 尸 进 村](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [一天只做2件事的30%法则](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [郭二娃报复举报人致其死亡](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [官方解答儿童能否单独乘火车出行](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [“被蚊子咬可能得艾滋”不实](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [男子帮人把手机放车筐妻子转头偷走](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [阿里为何急求资金](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [博主：“最保守的钱”疯抢中国资产](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [王楚然现发4跳舞路透](http://www.daogukj.com/3042716)
-- [国家卫健委明确指出「道医」「佛医」「宗教医学」不可信，这反映了哪些问题？](http://www.movie.hkepx.cn/movie/2061637.htm)
-- [坐3小时看电影 有必要拍这么长吗](http://www.daogukj.com/whcykmxi/)
-- [有什么有趣的中国文化溢出？](http://www.daogukj.com/8289578)
-- [警方通报「湖南扶老人被索赔10万」事件，双方协商后店主赔1.9万，你如何看待这个结果？](http://www.movie.hkepx.cn/movie/6917669.htm)
-- [男子帮人把手机放车筐妻子转头偷走](http://www.daogukj.com/1323195)
-- [那个被当成毛泽东的人，日本人认错了他，但我们应该认识他！](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
-- [肖战去谁的演唱会就穿谁的官周衣服](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
-- [中国女子泰国遭绑警方抓捕视频曝光](http://www.movie.hkepx.cn/xiju/7626363.htm)
-- [官方确认：扶老人赔1.9万店主无过错](http://www.daogukj.com/zbetfxek/)
-- [硕士被安排打螺丝300人被迫离职](http://www.daogukj.com/6022603)
-- [郭二娃死刑](http://www.movie.hkepx.cn/xiju/5313504.htm)
-- [325](http://www.daogukj.com/xdexhduz/)
-- [神坛之下06｜金碧妖庭歌舞盛，觥筹交错人为宴！](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
-- [中国智造这样点亮未来](http://www.movie.hkepx.cn/movie/6492359.htm)
+- [印度去世乞丐家中发现30多麻袋现金](http://www.daogukj.com/3042716)
+- [李金铭娄艺潇邓家佳合体](http://www.movie.hkepx.cn/movie/2061637.htm)
+- [官方确认：扶老人赔1.9万店主无过错](http://www.daogukj.com/whcykmxi/)
+- [郑红波已任深圳市委副书记](http://www.daogukj.com/8289578)
+- [王中王夺冠自战解说](http://www.movie.hkepx.cn/movie/6917669.htm)
+- [没人会记得神作之下的第二名，除非那一年都是神仙！](http://www.daogukj.com/1323195)
+- [覃伟中辞去深圳市市长职务](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
+- [司机打瞌睡被后座乘客一巴掌打醒](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
+- [肖战时间的参照物是什么呢](http://www.movie.hkepx.cn/xiju/7626363.htm)
+- [《新数码宝贝 · 全面战争》【8分钟管饱】](http://www.daogukj.com/zbetfxek/)
+- [万斯：加拿大在最后一刻提不合理要求](http://www.daogukj.com/6022603)
+- [AI短剧《非妖哉》导演：1集成本1万](http://www.movie.hkepx.cn/xiju/5313504.htm)
+- [郭二娃报复举报人致其死亡](http://www.daogukj.com/xdexhduz/)
+- [王菲不承认沈凌模仿的自己](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
+- [那个被当成毛泽东的人，日本人认错了他，但我们应该认识他！](http://www.movie.hkepx.cn/movie/6492359.htm)
 - [央视曝光后 沈阳等多地接连通报](http://www.daogukj.com/6000133)
-- [张子枫瘦成薄薄一片](http://www.daogukj.com/ajsfeojq/)
-- [护理：一把斩向死亡的温柔刀](http://www.movie.hkepx.cn/xiju/4278075.htm)
-- [严肃观看儿子的历史记录](http://www.movie.hkepx.cn/movie/5534562.htm)
-- [索尼发邮件重申「数字游戏不属于玩家」，账号封禁就全清零，你怎么看待这波操作？](http://www.daogukj.com/6871213)
-- [僵 尸 进 村](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
-- [7 月财政收入增长 11.7%、个税同比大涨 25.9%，个税「逆势高增」的原因是什么？](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
-- [中国机器人连刷人类世界纪录](http://www.movie.hkepx.cn/xiju/4051583.htm)
-- [印度去世乞丐家中发现30多麻袋现金](http://www.daogukj.com/4848168)
-- [贱谍过家家（8）](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
-- [发现高精力和高体力是两种人群](http://www.movie.hkepx.cn/movie/2894342.htm)
-- [“没打HPV疫苗不能入学”是误传](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
-- [湖北长阳通报韩红基金会救护车](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
-- [【科学修仙】你给姐下套，姐带你打瓦...【up动画】](http://www.movie.hkepx.cn/xiju/8848024.htm)
-- [金价大涨 深圳水贝又被挤爆](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
-- [亚朵卖枕头被子收入快赶上酒店主业，将全年零售收入增长目标上调至40％，一系列商业动作的背后有哪些考量？](http://www.movie.hkepx.cn/xiju/3438884.htm)
-- [北京大学原副校长任羽中被判8年](http://www.daogukj.com/ieqapfew/)
-- [23点后睡的人“亏大了”](http://www.daogukj.com/8044050)
-- [放弃一切，只为等你](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
-- [家长单手抱娃 失手将其仰头摔在地](http://www.movie.hkepx.cn/xiju/0303756.htm)
-- [特洛伊木马，看来愚蠢之极，有没有可能这其实是利用希腊的某种传统共识，就像吕蒙白衣渡江？](http://www.daogukj.com/8598756)
-- [覃伟中辞去深圳市市长职务](http://www.movie.hkepx.cn/movie/4526722.htm)
-- [Claude Code增长熄火，网传现大规模退订，为啥会这样？如何看待其诸多老用户开始转用Codex？](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
-- [央视网评湖南扶老人被索赔事件](http://www.daogukj.com/0218050)
-- [以为练普拉提很体面](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
-- [有哪些瞬间会让你觉得对方情商高？](http://www.daogukj.com/3371192)
-- [以色列狠狠压力美国](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
-- [原创民俗AI短片《槐灯》](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
-- [李金铭娄艺潇邓家佳合体](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
-- [太湖湾音乐节](http://www.movie.hkepx.cn/movie/1298994.htm)
-- [为什么建议35岁就开始控糖](http://www.movie.hkepx.cn/movie/6188638.htm)
-- [日赚3.7亿元 科创板最大IPO要来了](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
-- [《新数码宝贝 · 全面战争》【8分钟管饱】](http://www.daogukj.com/4541580)
-- [美伊冲突](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
+- [为什么建议35岁就开始控糖](http://www.daogukj.com/ajsfeojq/)
+- [张子枫瘦成薄薄一片](http://www.movie.hkepx.cn/xiju/4278075.htm)
+- [肖战去谁的演唱会就穿谁的官周衣服](http://www.movie.hkepx.cn/movie/5534562.htm)
+- [一天只做2件事的30%法则](http://www.daogukj.com/6871213)
+- [男子帮人把手机放车筐妻子转头偷走](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
+- [雷军说芯片很贵不建议拆开看彩蛋](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
+- [各地全方位保障“麦归仓”](http://www.movie.hkepx.cn/xiju/4051583.htm)
+- [“没打HPV疫苗不能入学”是误传](http://www.daogukj.com/4848168)
+- [中国智造这样点亮未来](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
+- [太湖湾音乐节](http://www.movie.hkepx.cn/movie/2894342.htm)
+- [全网疯传深圳某炸鸡店“窒息45秒”事件，暴露年轻人的悲哀困境](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
+- [以色列黑手党头目遭枪杀现场曝光](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
+- [《重器》豆瓣评分7.4](http://www.movie.hkepx.cn/xiju/8848024.htm)
+- [人民日报曝光当天 腾冲成立工作组](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
+- [【科学修仙】你给姐下套，姐带你打瓦...【up动画】](http://www.movie.hkepx.cn/xiju/3438884.htm)
+- [金价大涨 深圳水贝又被挤爆](http://www.daogukj.com/ieqapfew/)
+- [发现高精力和高体力是两种人群](http://www.daogukj.com/8044050)
+- [以色列狠狠压力美国](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
+- [现货黄金](http://www.movie.hkepx.cn/xiju/0303756.htm)
+- [以为练普拉提很体面](http://www.daogukj.com/8598756)
+- [李佳航回应李金铭娄艺潇邓家佳合体](http://www.movie.hkepx.cn/movie/4526722.htm)
+- [婚礼第二天新娘指纹被爸爸删掉](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
+- [委内瑞拉强震遇难人数升至6509人](http://www.daogukj.com/0218050)
+- [老吃家是怎么吃泡面的？](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
+- [警员执法遇F-18战机坠落，6700万战损，飞行员报警求助！](http://www.daogukj.com/3371192)
+- [10万内的电车越来越强 你还看油车吗](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
+- [“被蚊子咬可能得艾滋”不实](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
+- [【纪录片TV】大乾乾被撞成两半了……](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
+- [严肃观看儿子的历史记录](http://www.movie.hkepx.cn/movie/1298994.htm)
+- [原创民俗AI短片《槐灯》](http://www.movie.hkepx.cn/movie/6188638.htm)
+- [小米18Fold](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
+- [【苏星河眼镜】铺天盖地宣传的AI眼镜，究竟能让你看到什么？](http://www.daogukj.com/4541580)
+- [🦋 炼 定 仙 游 ♂ 股 🦋](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
 - [26岁中国失联船员原计划回乡成家](http://www.daogukj.com/4450013)
 
 </details>
 
 ## 原始来源
 
-- [小米玄戒O3芯片前瞻上手：外星科技！](https://b23.tv/BV1fhhP6xEMp)
+- [美伊冲突](https://s.weibo.com/weibo?q=%E7%BE%8E%E4%BC%8A%E5%86%B2%E7%AA%81)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3bbc328d622360c45a8f -->
+<!-- content-fingerprint: 63a4cdfbdceacaace1c2 -->
