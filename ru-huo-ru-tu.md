@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 上海数据中心人去楼空？特斯拉回应
+# 国家反诈中心测出德芙声明是AI
 
-> 来源：百度热搜 · 排名：第 7 位 · 热度：7140075 · 更新：2026-08-26T15:50:18+08:00
+> 来源：微博热搜 · 排名：第 8 位 · 热度：669467 · 分类：民生新闻 · 更新：2026-08-26T16:28:03+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“上海数据中心人去楼空？特斯拉回应”位列第 7 位，公开热度指标为 7140075。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“国家反诈中心测出德芙声明是AI”位列第 8 位，公开热度指标为 669467，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月26日，特斯拉中国内部人士回应“上海数据中心人去楼空、对接团队全部撤离”传闻称“不实消息”。此前，特斯拉上海数据中心已实现境内数据全留存，上海临港AI训练中心于2026年2月投入运营，并与百度地图合作使用合规高精地图。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [纽约市长宣布建国营供销社](yi-gu-zuo-qi.md)
-- [中国首位打破世界纪录的女运动员逝世](yi-zi-qian-jin.md)
-- [中国女子在泰国遭 4 名泰国男子绑架送往泰缅边境，跳车自救，还有哪些信息值得关注？](yi-fan-feng-shun.md)
-- [国产单机《湮灭之潮》全新宣传片 | 旧日之纱](yi-ming-jing-ren.md)
+- [癌症疫苗预计近50万美元1针](yi-gu-zuo-qi.md)
+- [我妈把芒果核留给我老公，我指出这样做不对，我错了么？](yi-zi-qian-jin.md)
+- [国产单机《湮灭之潮》全新宣传片 | 旧日之纱](yi-fan-feng-shun.md)
+- [嫌疑人和在韩遇害女生系师生关系](yi-ming-jing-ren.md)
 
 ## 站内推荐
 
 - [《无限大》定档预告丨27年1月15日全球上线](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
 - [102岁网红“兰家奶奶”离世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [世界人形机器人运动会](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [罗永浩已向被索赔店主捐助10万元](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [60平房子配40平阳台 真的好住吗](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [欢乐颂3可以开拍了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [丈夫带婚内孩子去看出轨生的孩子](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [小酒窝给杜华女儿让C位](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [纽约市长宣布建国营供销社](http://www.play.hengshemaoyi.cn/kongbu/5269516.htm)
-- [在凤凰古城碰到一位无臂骑手，白天跑外卖，晚上写字谋生，给经历磨难却依旧坚毅的向阳点个赞](http://www.daogukj.com/pqasrvfj/)
-- [在韩失踪中国女留学生遇害，凶手曾自称男友报假警，哪些信息值得关注？凶手若为中国籍会怎样影响法律判定？](http://www.play.hengshemaoyi.cn/kongbu/6953634.htm)
-- [高中生逃离原生家庭过程（下）](http://www.play.hengshemaoyi.cn/xiju/4182468.htm)
+- [癌症疫苗预计近50万美元1针](http://www.play.hengshemaoyi.cn/kongbu/5269516.htm)
+- [演员张锦程与张延离婚](http://www.daogukj.com/pqasrvfj/)
+- [贱谍过家家（8）](http://www.play.hengshemaoyi.cn/kongbu/6953634.htm)
+- [工信部副部长：回答好这个问题不轻松](http://www.play.hengshemaoyi.cn/xiju/4182468.htm)
 - [世界伊始——《伊莫》全球上线定档：PC端9月16日 移动端9月23日！](http://www.daogukj.com/1017431)
-- [员工要陪老板演戏吗？我真去影视飓风上班了...](http://www.movie.hkepx.cn/xiju/1919727.htm)
-- [如何评价粥饼伦天津鸡蛋灌饼店因为房租从13万上涨到20万被迫宣布暂停营业？为什么现在房东矛盾这么大？](http://www.play.hengshemaoyi.cn/kongbu/2389385.htm)
-- [中元节：以花代火寄思念](http://www.daogukj.com/eczaycvr/)
-- [“得妻如此，夫复何求”【如果可以DJ-变速】【纯爱牛逼の小曲】](http://www.daogukj.com/yesbcxgy/)
-- [西藏吉隆口岸发生泥石流](http://www.play.hengshemaoyi.cn/kongbu/2268821.htm)
+- [上海数据中心人去楼空？特斯拉回应](http://www.movie.hkepx.cn/xiju/1919727.htm)
+- [《琅琊榜》权谋比《大明王朝1566》差这么多，为什么评分还高达9.4？](http://www.play.hengshemaoyi.cn/kongbu/2389385.htm)
+- [如何看待仰望 U7 的九天三万公里极限耐力挑战？](http://www.daogukj.com/eczaycvr/)
+- [男子在断头路上晒花生遭小车2次碾压](http://www.daogukj.com/yesbcxgy/)
+- [欢子起诉湖南卫视](http://www.play.hengshemaoyi.cn/kongbu/2268821.htm)
 - [一架美军运输机降落在俄罗斯莫斯科，这一罕见事件引发关注，还有哪些信息值得关注？](http://www.daogukj.com/1514619)
-- [1.03亿恒大债权包14.41万成交](http://www.daogukj.com/7229320)
+- [西藏吉隆口岸发生泥石流](http://www.daogukj.com/7229320)
 - [彩六时长管理局](http://www.daogukj.com/9862646)
-- [源初之结首曝PV「诸神入刃，斩尽死结」](http://www.play.hengshemaoyi.cn/xiju/2879856.htm)
-- [《粉红女郎》“男人婆”张延宣布离婚](http://www.movie.hkepx.cn/xiju/0680178.htm)
-- [美国前童星称自己14岁时被性侵](http://www.play.hengshemaoyi.cn/xiju/0371775.htm)
-- [万千气象瞰宁夏](http://www.play.hengshemaoyi.cn/xiju/1127717.htm)
-- [杭州电梯事件不是谁先发声谁有理](http://www.daogukj.com/xtnnkhps/)
+- [钟才文这些表述值得重点关注](http://www.play.hengshemaoyi.cn/xiju/2879856.htm)
+- [多平台出现「有偿征集河流样本」的帖子，不少网友说可能是间谍行为，是真的吗？遇到这种情况该怎么处理？](http://www.movie.hkepx.cn/xiju/0680178.htm)
+- [为什么同样客流密度大，中国大陆不像中国香港一样大量投入双层巴士作为公交线路常规运行的使用车辆呢？](http://www.play.hengshemaoyi.cn/xiju/0371775.htm)
+- [一组数据看中国制造硬核成绩单](http://www.play.hengshemaoyi.cn/xiju/1127717.htm)
+- [西藏泥石流](http://www.daogukj.com/xtnnkhps/)
 - [男子卖房让同事操盘 亏损率达99.9%](http://www.play.hengshemaoyi.cn/kongbu/7644899.htm)
-- [井柏然字体](http://www.play.hengshemaoyi.cn/xiju/5097167.htm)
-- [广西崇左发生1955年以来实测最大洪水](http://www.movie.hkepx.cn/xiju/7245859.htm)
-- [大学生每月生活费多少才算“够”](http://www.movie.hkepx.cn/xiju/0748643.htm)
-- [13岁女孩三天靠AI赚1.8万](http://www.daogukj.com/7402023)
-- [伊朗宣布发现大型天然气田，有望创造数百亿美元收益，这会对美伊博弈、中东能源格局产生哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/5443100.htm)
-- [包贝尔包文婧去年生二胎](http://www.daogukj.com/aftpkacm/)
-- [包贝尔和包文婧生二胎才一年](http://www.movie.hkepx.cn/movie/2312956.htm)
-- [为什么看不到男人四五个人结伴一起去旅行的？](http://www.play.hengshemaoyi.cn/kongbu/4823974.htm)
-- [井柏然孙千你们在脸红什么](http://www.daogukj.com/zoxyezyv/)
-- [杭州电梯事件女子已清空账号作品](http://www.daogukj.com/2322655)
-- [人形机器人领域这一年迎来了哪些技术突破？在哪些场景能真正「实战」了？](http://www.movie.hkepx.cn/movie/3668600.htm)
-- [演员张锦程与张延离婚](http://www.daogukj.com/6111077)
-- [世界人形机器人运动会](http://www.movie.hkepx.cn/xiju/1768070.htm)
-- [在韩遇害女生姐姐连发三句要他死](http://www.movie.hkepx.cn/xiju/4446306.htm)
-- [男子在沙漠遇商务车陷车想救援遭阻拦](http://www.movie.hkepx.cn/movie/3688649.htm)
-- [我妈把芒果核留给我老公，我指出这样做不对，我错了么？](http://www.play.hengshemaoyi.cn/kongbu/4226971.htm)
-- [金鹰奖 刘亦菲国籍](http://www.daogukj.com/8802551)
-- [2026 国自然已经放榜，批准项目近 7 万项创历史新高，你的申请通过了吗？](http://www.play.hengshemaoyi.cn/xiju/6879576.htm)
-- [一组数据看中国制造硬核成绩单](http://www.movie.hkepx.cn/movie/3363630.htm)
-- [如何看待博主-Lks-的新视频《员工要陪老板演戏吗？我真去影视飓风上班了…》？](http://www.daogukj.com/gflssozy/)
-- [逐夏开机照](http://www.daogukj.com/qvclnbfi/)
-- [A股沪指涨0.59% 大金融有色板块爆发](http://www.movie.hkepx.cn/movie/5025610.htm)
-- [央媒5问“店主帮扶老人遭索赔”事件](http://www.movie.hkepx.cn/movie/4923761.htm)
-- [曝杀害中国女生嫌犯曾威胁学生延毕](http://www.play.hengshemaoyi.cn/xiju/3290638.htm)
-- [小酒窝给杜华女儿让C位](http://www.play.hengshemaoyi.cn/kongbu/3540195.htm)
-- [《崩坏：星穹铁道》知更鸟•晴歌角色PV——「追赶风的方向」](http://www.daogukj.com/heymhest/)
-- [获救船员称万吨货轮倾斜8分钟沉没](http://www.daogukj.com/4552622)
-- [赛力斯中报巨亏，问界 M6 走量预期落空，如何评价华为智选车模式？](http://www.play.hengshemaoyi.cn/kongbu/2437413.htm)
-- [贱谍过家家（8）](http://www.daogukj.com/1018065)
+- [为啥蚊子总叮你](http://www.play.hengshemaoyi.cn/xiju/5097167.htm)
+- [中国女子在泰国遭 4 名泰国男子绑架送往泰缅边境，跳车自救，还有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/7245859.htm)
+- [央视曝光擦边手办乱象](http://www.movie.hkepx.cn/xiju/0748643.htm)
+- [苹果为库克举行告别派对](http://www.daogukj.com/7402023)
+- [“得妻如此，夫复何求”【如果可以DJ-变速】【纯爱牛逼の小曲】](http://www.play.hengshemaoyi.cn/kongbu/5443100.htm)
+- [伊朗宣布发现大型天然气田，有望创造数百亿美元收益，这会对美伊博弈、中东能源格局产生哪些影响？](http://www.daogukj.com/aftpkacm/)
+- [张延张锦程离婚](http://www.movie.hkepx.cn/movie/2312956.htm)
+- [员工要陪老板演戏吗？我真去影视飓风上班了...](http://www.play.hengshemaoyi.cn/kongbu/4823974.htm)
+- [突发泥石流西藏吉隆口岸部分路段管制](http://www.daogukj.com/zoxyezyv/)
+- [台风“沙德尔”实时路径](http://www.daogukj.com/2322655)
+- [超罕见，工程机维修](http://www.movie.hkepx.cn/movie/3668600.htm)
+- [孙千第一集穿的假名牌](http://www.daogukj.com/6111077)
+- [欢乐颂3可以开拍了](http://www.movie.hkepx.cn/xiju/1768070.htm)
+- [吃一顿方便面需要花32天解毒？谣言](http://www.movie.hkepx.cn/xiju/4446306.htm)
+- [比特币自5月中旬以来首次突破8万美元，彻底告别底部区间了吗？如何看待加密资产与美债、黄金的联动逻辑？](http://www.movie.hkepx.cn/movie/3688649.htm)
+- [这盘棋已经赢不了，只能把对面打死了！](http://www.play.hengshemaoyi.cn/kongbu/4226971.htm)
+- [获救船员称万吨货轮倾斜8分钟沉没](http://www.daogukj.com/8802551)
+- [《动物朋克》最新预告&实机演示 | 国产动作新游登陆科隆展](http://www.play.hengshemaoyi.cn/xiju/6879576.htm)
+- [如何看待博主-Lks-的新视频《员工要陪老板演戏吗？我真去影视飓风上班了…》？](http://www.movie.hkepx.cn/movie/3363630.htm)
+- [源初之结首曝PV「诸神入刃，斩尽死结」](http://www.daogukj.com/gflssozy/)
+- [1.03亿恒大债权包14.41万成交](http://www.daogukj.com/qvclnbfi/)
+- [逐夏开机照](http://www.movie.hkepx.cn/movie/5025610.htm)
+- [香港为何能吃到放心蔬菜](http://www.movie.hkepx.cn/movie/4923761.htm)
+- [陈坤自曝因病暴瘦10斤](http://www.play.hengshemaoyi.cn/xiju/3290638.htm)
+- [包贝尔包文婧去年生二胎](http://www.play.hengshemaoyi.cn/kongbu/3540195.htm)
+- [在韩遇害女生姐姐连发三句“要他死”](http://www.daogukj.com/heymhest/)
+- [瓶装水在开封后，多久会变质？](http://www.daogukj.com/4552622)
+- [高中生逃离原生家庭过程（下）](http://www.play.hengshemaoyi.cn/kongbu/2437413.htm)
+- [包贝尔和包文婧生二胎才一年](http://www.daogukj.com/1018065)
 - [102岁网红“兰家奶奶”离世](http://www.movie.hkepx.cn/xiju/1684044.htm)
-- [谁能坚持到最后？](http://www.movie.hkepx.cn/xiju/3549037.htm)
+- [世界人形机器人运动会](http://www.movie.hkepx.cn/xiju/3549037.htm)
 
 </details>
 
 ## 原始来源
 
-- [上海数据中心人去楼空？特斯拉回应](https://www.baidu.com/s?wd=%E4%B8%8A%E6%B5%B7%E6%95%B0%E6%8D%AE%E4%B8%AD%E5%BF%83%E4%BA%BA%E5%8E%BB%E6%A5%BC%E7%A9%BA%EF%BC%9F%E7%89%B9%E6%96%AF%E6%8B%89%E5%9B%9E%E5%BA%94&sa=fyb_news&rsv_dl=fyb_news)
+- [国家反诈中心测出德芙声明是AI](https://s.weibo.com/weibo?q=%E5%9B%BD%E5%AE%B6%E5%8F%8D%E8%AF%88%E4%B8%AD%E5%BF%83%E6%B5%8B%E5%87%BA%E5%BE%B7%E8%8A%99%E5%A3%B0%E6%98%8E%E6%98%AFAI)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a39228117fa928f4bf54 -->
+<!-- content-fingerprint: 7a2bfbe78bff7955871b -->
