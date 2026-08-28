@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 俄媒曝 30 多个国家将在俄乌停火达成后立即向乌克兰派兵，此举将如何影响俄乌冲突局势？
+# 打卡！打工！打钱！《异克斯小队》首曝PV
 
-> 来源：知乎热榜 · 排名：第 7 位 · 热度：58 万热度 · 分类：问答 · 更新：2026-08-28T06:52:26+08:00
+> 来源：哔哩哔哩热门 · 排名：第 8 位 · 热度：8052489 · 分类：日常 · 更新：2026-08-28T14:49:26+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“俄媒曝 30 多个国家将在俄乌停火达成后立即向乌克兰派兵，此举将如何影响俄乌冲突局势？”位列第 7 位，公开热度指标为 58 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“打卡！打工！打钱！《异克斯小队》首曝PV”位列第 8 位，公开热度指标为 8052489，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：据《俄罗斯报》网站8月24日报道，由30多个向乌克兰提供军事支持的国家组成的“志愿联盟”宣布，将在俄乌停火达成后立即向乌克兰派兵，相关部队正在作准备。“志愿联盟”在召开视频会议后发表了上述声明，此次会议由英国首相伯纳姆、法国总统马克龙和德国总理默茨共同出席。 英国政府网站发布的联合声明中写道：“‘志愿联盟’将继续为乌克兰筹备组建国际部队，它将在实现持久停火后部署，作为更广泛的具有政治和法律约束力的安全保障措施的一部分，这些措施将在停火生效后确保乌克兰未来的安全与繁荣。” 报道称，欧洲国家呼吁莫斯科同意在接触线上停火，使它们能够向乌克兰派遣自己的军事特遣队
+来源公开摘要显示：别人不敢接的活，你来接！ 《异克斯小队》是由 Behaviour Interactive 研发的第三人称 PvE 合作射击新游。 在这里，你将和两个靠谱的工友组成三人小队，用工业工具改装成的武器、搭配疯狂的科学装备，一边扫清肆虐的外星异种，一边维持天穹星设施的正常运转。 记得互相照应、算清开销，一起活着熬到收工，安全撤离。 别忘了，你们是闻名宇宙的专业团队，也是每天最后撤离现场的劳模——别人挣不到的钱，只有你们能拿下。 记住口号：打卡！打工！打钱！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
 
 ## 相关热点
 
-- [三姐妹凌晨醉酒后，居然？？？ 【雷霆姐妹花2】](cao-mu-jie-bing.md)
-- [男子3万买“良方”牵出9000万大案](feng-sheng-he-li.md)
-- [郑钦文vs普里丹金娜](ru-huo-ru-tu.md)
-- [高盛：黄金是西方投资者“小众资产”](yi-gu-zuo-qi.md)
+- [“口袋相机”为什么突然火了](cao-mu-jie-bing.md)
+- [多部门回应低分班教师耻辱合影](feng-sheng-he-li.md)
+- [网友质疑浙江省博物馆将「勾践」错写为「句践」，博物馆回应为尊重文物本名，到底哪种写法才是正确的？](ru-huo-ru-tu.md)
+- [当你突然发现父母是亿万富翁](yi-gu-zuo-qi.md)
 
 ## 站内推荐
 
-- [台风](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [江西省省长叶建春被查](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [为什么身边的中年男人不是热衷炒股，就是热衷钓鱼？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [为什么看不到男人四五个人结伴一起去旅行的？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [郑钦文有天赋也努力，为何感觉她和当年的李娜比，还是差一点意思?](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [吉隆口岸救援任务暂缓](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [低分班级教师上台与耻辱二字合影](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [刘雯内娱最贴心嫂子](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [尼泊尔山洪已致469死](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [BLG投诉管泽元事件](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [尼泊尔山洪359人死亡910人失联](http://www.daogukj.com/kuavhmmy/)
-- [你永远斗不过一个读了王阳明的女生](http://www.daogukj.com/bedufjas/)
-- [一场新疆婚礼来了300多个陌生人](http://www.play.hengshemaoyi.cn/xiju/7689194.htm)
-- [【苏新皓｜4K直拍】Abracadabra 直拍｜重·二周年演唱会](http://www.daogukj.com/jcrslpkp/)
-- [100 多家上市公司将补缴税款总额达 77 亿，如何看待「金税四期」对企业合规成本的影响？](http://www.play.hengshemaoyi.cn/kongbu/8639365.htm)
-- [柳州地震](http://www.daogukj.com/0804205)
-- [宗馥莉旗下啵啵汽水铺销售遇冷，直播62场销售额不足10万，为什么会遇冷？其自有品牌前景如何？](http://www.daogukj.com/gquevtwi/)
-- [人民日报评企业批量劝退应届生](http://www.daogukj.com/kmrfjtbk/)
-- [西藏吉隆泥石流救援](http://www.daogukj.com/vvfwljkx/)
-- [我玩到了！米哈游写实风+虚幻5引擎的游戏《源初之结》PV+战斗系统讲解](http://www.daogukj.com/0329673)
-- [清华美院 丑画](http://www.play.hengshemaoyi.cn/xiju/8593805.htm)
-- [佳偶天成回款2.51亿](http://www.daogukj.com/4691227)
-- [尼泊尔山洪死亡人数升至359人](http://www.play.hengshemaoyi.cn/kongbu/0488493.htm)
-- [皇马4‑1大胜两连胜登顶西甲，如何看待球队新赛季的争冠前景？](http://www.daogukj.com/1097135)
-- [汽车仪表盘误差，必须上浮10%-20%才是真实速度，这样的隐性知识是怎么流传出来的？](http://www.play.hengshemaoyi.cn/xiju/0741052.htm)
-- [英伟达同意以 129 亿美元收购 Hugging Face，如何看待这一举措？](http://www.movie.hkepx.cn/xiju/0027119.htm)
-- [9岁儿子疯狂沉迷手机单亲妈妈急哭](http://www.movie.hkepx.cn/xiju/7032434.htm)
-- [臣妾要自己私通自己【B站笑点大赛】](http://www.movie.hkepx.cn/movie/4229032.htm)
-- [「请 3 天假休 13 天」模式走红，透露出当代人怎样的休假观念？](http://www.movie.hkepx.cn/xiju/0464917.htm)
-- [六神磊磊硬刚上海星巴克](http://www.play.hengshemaoyi.cn/xiju/2385137.htm)
-- [沙德尔 浙江一级应急响应](http://www.play.hengshemaoyi.cn/kongbu/7794000.htm)
-- [人要给宠物让座吗](http://www.movie.hkepx.cn/xiju/4679052.htm)
-- [中国男篮vs卡塔尔男篮](http://www.daogukj.com/2258039)
-- [全力搜寻吉隆泥石流失联人员](http://www.movie.hkepx.cn/xiju/0911151.htm)
-- [何炅自曝断交的人不超过4个](http://www.movie.hkepx.cn/xiju/2919294.htm)
-- [国防部评《龙餐馆》](http://www.daogukj.com/4572993)
-- [业主为蹭电梯空调 用椅子卡死电梯门](http://www.daogukj.com/uaupjwbn/)
-- [你认为刘翔和上海体育局这次的矛盾最终会如何收场，为什么，双方的诉求存在调和的可能吗？](http://www.daogukj.com/7711348)
-- [土木终于迎来第二春！我下跪道歉！！！](http://www.movie.hkepx.cn/movie/8070936.htm)
-- [难过](http://www.movie.hkepx.cn/xiju/5929168.htm)
-- [四川泸州近期发生山火？不实](http://www.play.hengshemaoyi.cn/xiju/2633886.htm)
-- [为什么看不到男人四五个人结伴一起去旅行的？](http://www.movie.hkepx.cn/movie/4735294.htm)
-- [小边牧到家第一天就开始牧猫了](http://www.play.hengshemaoyi.cn/kongbu/7569980.htm)
-- [省长叶建春任上被查 江西省委表态](http://www.daogukj.com/3420205)
-- [男子打水漂一发入魂 超1亿网友围观](http://www.movie.hkepx.cn/xiju/4061305.htm)
-- [西藏吉隆受灾前后对比图](http://www.movie.hkepx.cn/xiju/5044088.htm)
-- [三姐妹凌晨醉酒后，居然？？？ 【雷霆姐妹花2】](http://www.daogukj.com/lbtgvjga/)
-- [国防部：要求美方立即停止武装台湾](http://www.daogukj.com/7687127)
-- [如何评价《一人之下》第774（828）话？](http://www.play.hengshemaoyi.cn/xiju/2300399.htm)
-- [有事没事就庆祝一下的家族](http://www.play.hengshemaoyi.cn/kongbu/9699772.htm)
-- [妻旅第2季四对夫妻两对离婚](http://www.play.hengshemaoyi.cn/xiju/7804499.htm)
-- [一家五口在重庆误入立交桥获暖心救助](http://www.daogukj.com/miapvosn/)
-- [中国卫通推出「卫星移动数据业务」，合约机套餐售价 27999 元起，会主要服务哪些用户群体？](http://www.play.hengshemaoyi.cn/kongbu/6610421.htm)
-- [集中销毁烟花致570多户村民房屋受损](http://www.movie.hkepx.cn/movie/2073300.htm)
-- [《背心尊者》](http://www.play.hengshemaoyi.cn/xiju/0985181.htm)
-- [许诺孩子如果考年级前十，就给他买个苹果手机，孩子这次考试年级第十，要不要买？](http://www.movie.hkepx.cn/xiju/3768661.htm)
-- [尼泊尔山洪死亡人数升至 359 人，有 910 人失联，目前当地情况怎么样？](http://www.movie.hkepx.cn/movie/1249407.htm)
-- [世界伊始——《伊莫》全球上线定档：PC端9月16日 移动端9月23日！](http://www.play.hengshemaoyi.cn/xiju/9352164.htm)
-- [赵心童登顶世界第一](http://www.play.hengshemaoyi.cn/xiju/6237396.htm)
-- [朝鲜：将强力回应美国敌对行为](http://www.daogukj.com/7440566)
+- [难过](http://www.daogukj.com/kuavhmmy/)
+- [景区“造丑运动”让游客忍无可忍](http://www.daogukj.com/bedufjas/)
+- [比亚迪闪充桩已建成 10000 座站点，充电更快，对此你怎么看？](http://www.play.hengshemaoyi.cn/xiju/7689194.htm)
+- [苹果折叠屏价格](http://www.daogukj.com/jcrslpkp/)
+- [四川内江地震](http://www.play.hengshemaoyi.cn/kongbu/8639365.htm)
+- [演唱会上的“衣不遮体”该治了](http://www.daogukj.com/0804205)
+- [币圈富豪孙宇晨手撕景甜，索赔3千万彩礼，娱乐圈+金融圈惊天巨瓜！](http://www.daogukj.com/gquevtwi/)
+- [“河南一地彩礼限额8万元”不实](http://www.daogukj.com/kmrfjtbk/)
+- [赵心童登顶世界第一](http://www.daogukj.com/vvfwljkx/)
+- [为什么说三年笛子五年箫，一把二胡拉断腰。千年琵琶万年筝，一支唢呐吹一生？](http://www.daogukj.com/0329673)
+- [为什么平均每2年换一个首相的日本政治上反而比平均每5年换一个总统的韩国更稳定？](http://www.play.hengshemaoyi.cn/xiju/8593805.htm)
+- [两兄妹被蜂群蜇亡 父亲最新发声](http://www.daogukj.com/4691227)
+- [怪兽中 出了一个...不对！是一群奥特曼的卧底！【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/0488493.htm)
+- [Sweet Baby创始人Kim Belair在科隆批《最终幻想7》角色设计不够多元，你怎么看？](http://www.daogukj.com/1097135)
+- [如何看待林肯号计划停靠泰国?](http://www.play.hengshemaoyi.cn/xiju/0741052.htm)
+- [早春晴朗](http://www.movie.hkepx.cn/xiju/0027119.htm)
+- [中共中央政治局召开会议](http://www.movie.hkepx.cn/xiju/7032434.htm)
+- [被环卫车碾轧身亡男孩父亲发声](http://www.movie.hkepx.cn/movie/4229032.htm)
+- [挪威国王去世](http://www.movie.hkepx.cn/xiju/0464917.htm)
+- [这盘棋已经赢不了，只能把对面打死了！](http://www.play.hengshemaoyi.cn/xiju/2385137.htm)
+- [小时候开智之前](http://www.play.hengshemaoyi.cn/kongbu/7794000.htm)
+- [办婚礼后男子离世 女子被赶出婚房](http://www.movie.hkepx.cn/xiju/4679052.htm)
+- [数到三 母爱的控制欲](http://www.daogukj.com/2258039)
+- [土木终于迎来第二春！我下跪道歉！！！](http://www.movie.hkepx.cn/xiju/0911151.htm)
+- [雷波县教师被羞辱](http://www.movie.hkepx.cn/xiju/2919294.htm)
+- [警方通报成都蛋烘糕奶奶被镜头霸凌，对两博主进行批评教育，账号进行依法处置，怎样看待这一结果？](http://www.daogukj.com/4572993)
+- [如何看待小米联合徐工，使用矿卡拖拽验证 N90 长滑轨座椅的可靠性？有哪些值得关注的点？](http://www.daogukj.com/uaupjwbn/)
+- [寿星来切蛋糕啦！！「谁是杀手」？？！](http://www.daogukj.com/7711348)
+- [尼泊尔山洪死亡人数升至 469 人，有 977 人失联，目前当地情况怎么样？](http://www.movie.hkepx.cn/movie/8070936.htm)
+- [塑料瓶价格大涨](http://www.movie.hkepx.cn/xiju/5929168.htm)
+- [蜜雪冰城半年报净利下降 14.7%，如何看待其上市以来首次出现净利润同比下滑？](http://www.play.hengshemaoyi.cn/xiju/2633886.htm)
+- [尼泊尔山洪已致469死](http://www.movie.hkepx.cn/movie/4735294.htm)
+- [谁干掉了旅行社](http://www.play.hengshemaoyi.cn/kongbu/7569980.htm)
+- [四川地震](http://www.daogukj.com/3420205)
+- [【英雄联盟】邓紫棋｜心之歌，唱给我们的15年](http://www.movie.hkepx.cn/xiju/4061305.htm)
+- [尼泊尔确认：冰川崩塌在尼泊尔一侧](http://www.movie.hkepx.cn/xiju/5044088.htm)
+- [“口袋相机”为什么突然火了](http://www.daogukj.com/lbtgvjga/)
+- [西藏吉隆泥石流致 3 人遇难 558 人失联，上游堰塞湖出现溢流，目前救援进展如何？](http://www.daogukj.com/7687127)
+- [杭州电梯猥亵案反转：法律给了男邻居清白，但网络舆论的私刑已经执行完了，别让真相的迟到 成为常态](http://www.play.hengshemaoyi.cn/xiju/2300399.htm)
+- [如何评价《GTA6》27分钟加长版实机预告片？](http://www.play.hengshemaoyi.cn/kongbu/9699772.htm)
+- [小伙开抓痒馆月入10万](http://www.play.hengshemaoyi.cn/xiju/7804499.htm)
+- [本周演唱会热门推荐](http://www.daogukj.com/miapvosn/)
+- [水桶脱困详细教程](http://www.play.hengshemaoyi.cn/kongbu/6610421.htm)
+- [英国报姐辞职去新疆定居](http://www.movie.hkepx.cn/movie/2073300.htm)
+- [我被100名警察追捕，抓到我赢50万美金！](http://www.play.hengshemaoyi.cn/xiju/0985181.htm)
+- [《诡秘之主》手游被曝 PvP 平民暴击氪佬仅 1 血，是真的吗？将如何影响玩家体验？](http://www.movie.hkepx.cn/xiju/3768661.htm)
+- [燃油车4S店倒闭后 销冠们重新学卖车](http://www.movie.hkepx.cn/movie/1249407.htm)
+- [救援队抵达西藏吉隆受灾核心区](http://www.play.hengshemaoyi.cn/xiju/9352164.htm)
+- [习近平等向西藏泥石流遇难人员默哀](http://www.play.hengshemaoyi.cn/xiju/6237396.htm)
+- [【逆水寒×蒋大为】开学第一课：左手右手慢动作，逆水寒给你快乐！](http://www.daogukj.com/7440566)
 
 </details>
 
 ## 原始来源
 
-- [俄媒曝 30 多个国家将在俄乌停火达成后立即向乌克兰派兵，此举将如何影响俄乌冲突局势？](https://www.zhihu.com/question/2075675774821086239)
+- [打卡！打工！打钱！《异克斯小队》首曝PV](https://b23.tv/BV1SuhV6aE77)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e8f1a5df3fbb3858f9c8 -->
+<!-- content-fingerprint: 7907408fa1ba771c602e -->
