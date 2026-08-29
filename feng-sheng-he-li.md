@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 耗时一年，救赎相信光的小女孩，完整后续来了！
+# 《爱情公寓》官方六年首次换头像，主演频繁合体，引发「回归季」猜测，可能性有多大？
 
-> 来源：哔哩哔哩热门 · 排名：第 7 位 · 热度：2371609 · 分类：日常 · 更新：2026-08-29T17:02:31+08:00
+> 来源：知乎热榜 · 排名：第 7 位 · 热度：154 万热度 · 分类：问答 · 更新：2026-08-29T22:26:53+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“耗时一年，救赎相信光的小女孩，完整后续来了！”位列第 7 位，公开热度指标为 2371609，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“《爱情公寓》官方六年首次换头像，主演频繁合体，引发「回归季」猜测，可能性有多大？”位列第 7 位，公开热度指标为 154 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：-
+来源公开摘要显示：8月26日，无数剧粉“考古”经典、日常“敲碗等待”的《爱情公寓》官方微博，悄然进行了关键性变化：沿用了近四年的《爱情公寓5》蓝底人物头像，已不复存在；一个经过重新设计的，风格清新现代的彩色字母logo图标取而代之。这次“无预告”的静态动作仿佛一条火线，瞬间点燃了关于《爱情公寓》系列续作、回归季甚或是新项目启动的种种猜测，持续发酵数月的网络流言随之获得了最直观的想象燃点。 过去四年来，《爱情公寓》官微的头像一直是《爱5》大结局画面的经典截景——“最好的朋友在身边，最爱的人就住在隔壁”，陈赫饰演的曾小贤、娄艺潇饰演的胡一菲等核心人物的背影，被定格在那片代表着
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [马路中间多出一座坟 10年未迁](ru-huo-ru-tu.md)
-- [古茗爆单](yi-gu-zuo-qi.md)
-- [网安学院校长挨个加100名新生微信](yi-zi-qian-jin.md)
-- [乒协公示亚锦赛选拔办法，王楚钦、孙颖莎等 5 人放弃参赛，背后有哪些原因？国乒亚锦赛前景如何？](yi-fan-feng-shun.md)
+- [耗时一年，救赎相信光的小女孩，完整后续来了！](ru-huo-ru-tu.md)
+- [“甲醛白菜”事件3人被刑拘](yi-gu-zuo-qi.md)
+- [王菲李嫣看窦靖童音乐节](yi-zi-qian-jin.md)
+- [奔驰车停地库两年没开车内长毛发霉](yi-fan-feng-shun.md)
 
 ## 站内推荐
 
 - [吉隆口岸地貌发生明显改变，已看不出任何建筑物轮廓，救援队进行拉网式排查搜救，目前救援面临哪些难点？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [新加坡人几乎都是在外面吃饭，他们有没有预制菜？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [爸爸为了防止女儿早恋，带她到处旅游并故意把她晒黑，这种做法真的能起到防止早恋的作用吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
 - [赵心童vs常冰玉](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [韩素希哽咽说以前太为他人而活](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [谷爱凌线下活动路透](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [拖欠上千万工程款镇政府账户被冻结](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [张凌赫泡面老吃家](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [黑乌龟历险记](http://www.play.hengshemaoyi.cn/xiju/6111090.htm)
-- [山姆回应女子用脱毛仪样品现场脱毛](http://www.daogukj.com/edzpadjo/)
-- [18岁新生报到被误认为家长](http://www.movie.hkepx.cn/xiju/6105250.htm)
-- [用了5年的合法固定车位，被邻楼老太强行霸占，放完杂物直接砌水泥墩，物业管不了我该怎么办？](http://www.play.hengshemaoyi.cn/kongbu/1070558.htm)
-- [开学补作业现状](http://www.play.hengshemaoyi.cn/kongbu/7084010.htm)
-- [《下一个是谁》恐怖特辑——无限循环的寺庙](http://www.play.hengshemaoyi.cn/kongbu/6978620.htm)
-- [加紧抢通吉隆口岸道路](http://www.daogukj.com/ydopnvwq/)
-- [尼泊尔山洪已致626人遇难2426人失联](http://www.daogukj.com/ikvvgoqn/)
-- [钢筋石笼首次运抵吉隆抢险现场](http://www.play.hengshemaoyi.cn/xiju/4780278.htm)
-- [猛男化身猎人，这次谁逃得掉？《Animals》🔥](http://www.play.hengshemaoyi.cn/kongbu/1667187.htm)
-- [这盘棋已经赢不了，只能把对面打死了！](http://www.daogukj.com/ruryuczo/)
-- [马路中间多出一座坟 10年未迁](http://www.play.hengshemaoyi.cn/xiju/2905183.htm)
-- [【招笑版】新植物2:朝阳葵](http://www.play.hengshemaoyi.cn/xiju/5729760.htm)
-- [美术展里的假人模型，为何变成了真人尸体...？](http://www.play.hengshemaoyi.cn/kongbu/8964859.htm)
-- [《小杨有约29#》：陈泽](http://www.movie.hkepx.cn/xiju/2546414.htm)
-- [网友建议取消ETC 官方回应](http://www.movie.hkepx.cn/movie/4824208.htm)
-- [探测淤泥下20米的生命迹象](http://www.daogukj.com/9789170)
-- [京东、阿里、拼多多发布最新季度财报，「赚钱的和增长的不再是同一家公司」，如何看待这一分化现象？](http://www.play.hengshemaoyi.cn/xiju/2235964.htm)
+- [立志成为恶兽第一集](http://www.play.hengshemaoyi.cn/xiju/6111090.htm)
+- [出生7天女婴查出牛奶蛋白过敏](http://www.daogukj.com/edzpadjo/)
+- [罗家英称自己仅剩8年寿命](http://www.movie.hkepx.cn/xiju/6105250.htm)
+- [国家卫健委宣布白血病已非「不治之症」，多数患者可治愈，这一突破是如何实现的？背后有哪些医学原理？](http://www.play.hengshemaoyi.cn/kongbu/1070558.htm)
+- [猛男化身猎人，这次谁逃得掉？《Animals》🔥](http://www.play.hengshemaoyi.cn/kongbu/7084010.htm)
+- [《小杨有约29#》：陈泽](http://www.play.hengshemaoyi.cn/kongbu/6978620.htm)
+- [现在买入....一定爆赚！2026年10月新番导视！【泛式】](http://www.daogukj.com/ydopnvwq/)
+- [全世界最爱开学之人](http://www.daogukj.com/ikvvgoqn/)
+- [王菲李嫣一起看窦靖童演出](http://www.play.hengshemaoyi.cn/xiju/4780278.htm)
+- [凡人修仙传动漫189集观众满意吗？](http://www.play.hengshemaoyi.cn/kongbu/1667187.htm)
+- [晚上厨师长下班了，偷偷藏了一条名贵的金目鲷，开个小灶](http://www.daogukj.com/ruryuczo/)
+- [耗时一年，救赎相信光的小女孩，完整后续来了！](http://www.play.hengshemaoyi.cn/xiju/2905183.htm)
+- [开学补作业现状](http://www.play.hengshemaoyi.cn/xiju/5729760.htm)
+- [《我们的家2》](http://www.play.hengshemaoyi.cn/kongbu/8964859.htm)
+- [【明日方舟×女神异闻录３ Reload】SideStory「月行水上」活动宣传PV](http://www.movie.hkepx.cn/xiju/2546414.htm)
+- [用这种微信头像或被封号](http://www.movie.hkepx.cn/movie/4824208.htm)
+- [刚入警一年的她 失联在吉隆口岸](http://www.daogukj.com/9789170)
+- [尼泊尔山洪遇难人数升至 669 人、2426 人失联，目前当地情况如何？](http://www.play.hengshemaoyi.cn/xiju/2235964.htm)
 - [赵心童vs常冰玉](http://www.play.hengshemaoyi.cn/kongbu/0944708.htm)
-- [父亲实地考察物价后给女儿涨生活费](http://www.daogukj.com/1702919)
-- [乒协同意王楚钦等放弃亚锦赛选拔资格](http://www.movie.hkepx.cn/xiju/7626642.htm)
-- [当一个中专生成为脱口秀冠军](http://www.play.hengshemaoyi.cn/xiju/6504158.htm)
-- [电动车大洗牌：雅迪收购外卖神车金箭](http://www.play.hengshemaoyi.cn/kongbu/0276729.htm)
-- [媒体人曝姚明NBA收入也曾面临分成，姚明经过抗争和舆论施压后最终只缴税后 3%-5%，这意味着什么？](http://www.play.hengshemaoyi.cn/xiju/8604336.htm)
-- [早春晴朗破万](http://www.play.hengshemaoyi.cn/xiju/9791973.htm)
-- [出生率回落 中国新生男孩仍比女孩多](http://www.movie.hkepx.cn/movie/0865243.htm)
-- [葫芦娃救爷爷为什么要一个一个上？](http://www.daogukj.com/2187991)
-- [一场不按计划发生的旅行【出发吧少年 01】](http://www.daogukj.com/awimddvt/)
-- [尼泊尔山洪626人遇难2426人失联](http://www.movie.hkepx.cn/xiju/8479317.htm)
-- [老叟戏顽童 白俄戏欧盟](http://www.daogukj.com/8710264)
-- [尼泊尔山洪遇难人数升至 626 人、2426 人失联，目前当地情况如何？](http://www.movie.hkepx.cn/xiju/7852987.htm)
-- [根号15和根号17谁更接近4？](http://www.daogukj.com/9527639)
-- [中国足协辟谣不与安东尼奥续约](http://www.movie.hkepx.cn/xiju/5317341.htm)
-- [3人涉“甲醛白菜”被刑拘](http://www.daogukj.com/rfjzvnft/)
-- [肾脏不好的人身体会有哪些变化](http://www.play.hengshemaoyi.cn/kongbu/0835531.htm)
-- [乌克兰一女子突遇爆炸惊险逃生](http://www.play.hengshemaoyi.cn/kongbu/5783653.htm)
-- [“甲醛白菜”事件3人被刑拘](http://www.movie.hkepx.cn/movie/2541017.htm)
-- [成都一男生高考超过本科线 157 分却报考高职，本人回应「想进铁路局当火车司机」，如何看待这一选择？](http://www.daogukj.com/tdbkadsz/)
-- [币圈富豪孙宇晨手撕景甜，索赔3千万彩礼，娱乐圈+金融圈惊天巨瓜！](http://www.movie.hkepx.cn/movie/8640580.htm)
-- [爸爸为了防止女儿早恋，带她到处旅游并故意把她晒黑，这种做法真的能起到防止早恋的作用吗？](http://www.daogukj.com/5453849)
-- [小学初中新教材替换将全面完成](http://www.play.hengshemaoyi.cn/xiju/3894345.htm)
-- [假如电鳗很早就灭绝了，生物学家能否通过其化石等推测出其可以放电？](http://www.daogukj.com/hayaidza/)
-- [吉隆口岸大楼只剩钢筋骨架](http://www.daogukj.com/ppbihxts/)
-- [武警一边搜救一边开辟道路](http://www.play.hengshemaoyi.cn/kongbu/7747218.htm)
-- [赛考斯重逢27年前抱过的女婴](http://www.daogukj.com/8988221)
-- [上海男生考上北大研究生欲迁户口被卡](http://www.play.hengshemaoyi.cn/xiju/0659400.htm)
-- [武汉一大学学生“两手空空”轻装报到](http://www.movie.hkepx.cn/xiju/3713545.htm)
-- [直击西藏吉隆口岸救援情况](http://www.play.hengshemaoyi.cn/xiju/1948140.htm)
-- [泥石流冲击区域看不到任何建筑轮廓](http://www.movie.hkepx.cn/xiju/3130950.htm)
-- [乐清辟谣镇水兽被挖致台风频登陆](http://www.movie.hkepx.cn/movie/0216360.htm)
+- [“山寨车鼻祖”7年来首次盈利](http://www.daogukj.com/1702919)
+- [半身陷在淤泥里 也向前挺进](http://www.movie.hkepx.cn/xiju/7626642.htm)
+- [受唐嫣资助的女孩被迫弃学](http://www.play.hengshemaoyi.cn/xiju/6504158.htm)
+- [民办教育正在“洗牌”](http://www.play.hengshemaoyi.cn/kongbu/0276729.htm)
+- [男子面试提交方案，被拒后收到公司一千元「车马费与茶水费」，男子称「感受到尊重」，如何评价该做法？](http://www.play.hengshemaoyi.cn/xiju/8604336.htm)
+- [尼泊尔山洪遇难人数升至669人](http://www.play.hengshemaoyi.cn/xiju/9791973.htm)
+- [苏新皓疑似身体不舒服](http://www.movie.hkepx.cn/movie/0865243.htm)
+- [为什么我国这么多高层住宅，真的缺土地吗？](http://www.daogukj.com/2187991)
+- [《洛克王国：世界》S4赛季「月涌狂想」PV首曝，新的冒险即将开启！](http://www.daogukj.com/awimddvt/)
+- [王菲现身阿那亚](http://www.movie.hkepx.cn/xiju/8479317.htm)
+- [搬空系列迎来了它最大一票](http://www.daogukj.com/8710264)
+- [葫芦娃救爷爷为什么要一个一个上？](http://www.movie.hkepx.cn/xiju/7852987.htm)
+- [樊振东 11-13 惜败户上隼辅，其所在球队 1-3 不敌对手，无缘德国杯 8 强，如何评价他的表现？](http://www.daogukj.com/9527639)
+- [不与安东尼奥续约？中国足协辟谣](http://www.movie.hkepx.cn/xiju/5317341.htm)
+- [吉隆口岸大楼只剩钢筋骨架](http://www.daogukj.com/rfjzvnft/)
+- [西藏泥石流救援](http://www.play.hengshemaoyi.cn/kongbu/0835531.htm)
+- [中方紧急调派专家赴尼泊尔实施救援](http://www.play.hengshemaoyi.cn/kongbu/5783653.htm)
+- [博主街头清理地钉被劝阻 当地通报](http://www.movie.hkepx.cn/movie/2541017.htm)
+- [中国女排晋级亚锦赛决赛](http://www.daogukj.com/tdbkadsz/)
+- [乒协公示亚锦赛选拔办法，王楚钦、孙颖莎等 5 人放弃参赛，背后有哪些原因？国乒亚锦赛前景如何？](http://www.movie.hkepx.cn/movie/8640580.htm)
+- [新加坡人几乎都是在外面吃饭，他们有没有预制菜？](http://www.daogukj.com/5453849)
+- [尼泊尔一地三天仅挖通道路50米](http://www.play.hengshemaoyi.cn/xiju/3894345.htm)
+- [日本女排爆冷无缘亚锦赛决赛](http://www.daogukj.com/hayaidza/)
+- [樊振东2比3户上隼辅](http://www.daogukj.com/ppbihxts/)
+- [中国成功研制近200项AI关键标准](http://www.play.hengshemaoyi.cn/kongbu/7747218.htm)
+- [黄景瑜现身UFC上海站](http://www.daogukj.com/8988221)
+- [文牧野：吃饱了才能延续生命](http://www.play.hengshemaoyi.cn/xiju/0659400.htm)
+- [《遗忘之海》“爱德华”流浪船长角色PV ——再来一杯！](http://www.movie.hkepx.cn/xiju/3713545.htm)
+- [一批高新装备投入西藏吉隆受灾核心区](http://www.play.hengshemaoyi.cn/xiju/1948140.htm)
+- [樊振东无缘德国杯8强](http://www.movie.hkepx.cn/xiju/3130950.htm)
+- [中国足协辟谣不与安东尼奥续约](http://www.movie.hkepx.cn/movie/0216360.htm)
 
 </details>
 
 ## 原始来源
 
-- [耗时一年，救赎相信光的小女孩，完整后续来了！](https://b23.tv/BV1Jrtc6GEVU)
+- [《爱情公寓》官方六年首次换头像，主演频繁合体，引发「回归季」猜测，可能性有多大？](https://www.zhihu.com/question/2076069365967844870)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9cd89894e26e8aac16b4 -->
+<!-- content-fingerprint: 78274eb505dd8161f61e -->
