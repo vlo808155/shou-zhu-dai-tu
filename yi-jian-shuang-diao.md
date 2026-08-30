@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 父母卖房辞职支持常冰玉练球
+# 便利店店主回应把视频发网上
 
-> 来源：百度热搜 · 排名：第 8 位 · 热度：7040335 · 更新：2026-08-30T13:55:37+08:00
+> 来源：微博热搜 · 排名：第 9 位 · 热度：273825 · 分类：民生新闻 · 更新：2026-08-30T19:33:44+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“父母卖房辞职支持常冰玉练球”位列第 8 位，公开热度指标为 7040335。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“便利店店主回应把视频发网上”位列第 9 位，公开热度指标为 273825，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月29日，斯诺克武汉公开赛上，小将常冰玉10比7战胜赵心童夺生涯首冠。赛后他哽咽感谢父母卖房辞职陪练多年，称“他们真的很不容易”。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [冉莹颖爸爸再婚三次为生儿子](shou-zhu-dai-tu.md)
-- [592分考生坚持报考高职当火车司机](wang-mei-zhi-ke.md)
-- [如何看待孩子因为我没有给零花钱，为了一口零食放低姿态向同学乞讨，甚至喊同学做爸爸，孩子没骨气该不该打？](wen-ji-qi-wu.md)
-- [去了一趟西班牙2.0（荒岛四兄弟篇）](wo-xin-chang-dan.md)
+- [吉隆泥石流痕迹有20层楼高](shou-zhu-dai-tu.md)
+- [主张驱逐移民的英评论员遭美国驱逐](wang-mei-zhi-ke.md)
+- [婚宴上，新郎的舅舅坐上席，新郎的叔叔不乐意了，扭头就走，舅舅应不应该坐上席?](wen-ji-qi-wu.md)
+- [FALSITY…（完整版电影 / 官方正版)](wo-xin-chang-dan.md)
 
 ## 站内推荐
 
-- [当你的资产缩水到A0层级，挑选优质桥洞的六大方案！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [多地立法严控学生带手机入校](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [尼泊尔泥石流冰川源头曝光？不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [吉隆口岸小邬警官确认平安](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [佑驾创新第二曲线加速成型](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [西藏吉隆泥石流灾害新闻发布会实录](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [南极冰川融化正释放剧毒水银](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [旺仔小乔解封](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [下周A股机会来了吗](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [如何评价黄霄雲二巡演唱会《宇宙无敌号2.0》杭州首站？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [《小杨有约29#》：陈泽](http://www.daogukj.com/ppaxnzva/)
-- [客观评价《凡人修仙传》第 189 集，是否封神？](http://www.movie.hkepx.cn/xiju/7569728.htm)
-- [中国高水平双向开放不断迈向新高度](http://www.play.hengshemaoyi.cn/kongbu/1600467.htm)
-- [尼泊尔泥石流灾害已致734人死亡](http://www.daogukj.com/4975917)
-- [《龙族：卡塞尔之门》x《新世纪福音战士》全新联动 | 世界余响](http://www.movie.hkepx.cn/movie/7031044.htm)
-- [如何看待孩子因为我没有给零花钱，为了一口零食放低姿态向同学乞讨，甚至喊同学做爸爸，孩子没骨气该不该打？](http://www.play.hengshemaoyi.cn/kongbu/8076427.htm)
+- [中国女排先丢一局](http://www.daogukj.com/ppaxnzva/)
+- [我爸爸脑出血并脑疝，是我选择放弃做手术，是我选择停用的药物，我现在却迷茫了，我不知道我做的对不对了?](http://www.movie.hkepx.cn/xiju/7569728.htm)
+- [国内教材什么时候开始背上“防自学”名声的？](http://www.play.hengshemaoyi.cn/kongbu/1600467.htm)
+- [金饰销量暴跌34%](http://www.daogukj.com/4975917)
+- [桂圆“打针增甜”不可能](http://www.movie.hkepx.cn/movie/7031044.htm)
+- [婚宴上，新郎的舅舅坐上席，新郎的叔叔不乐意了，扭头就走，舅舅应不应该坐上席?](http://www.play.hengshemaoyi.cn/kongbu/8076427.htm)
 - [西藏泥石流已致16死546失联，泥石流灾害系因尼泊尔一条冰川断裂发生冰岩崩，还有哪些信息值得关注？](http://www.daogukj.com/zennunfs/)
-- [方桃子登COSMO封面引争议](http://www.movie.hkepx.cn/xiju/9775845.htm)
-- [开学季校园里满是扛着行李的爸爸](http://www.movie.hkepx.cn/movie/9071546.htm)
-- [樊振东赛后情绪低落](http://www.play.hengshemaoyi.cn/xiju/4489901.htm)
-- [国家动物博物馆：强烈谴责](http://www.daogukj.com/yhtegkzz/)
-- [厄瓜多尔宣布全国进入红色警戒状态](http://www.daogukj.com/fyfonhkf/)
-- [华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】](http://www.play.hengshemaoyi.cn/xiju/6169629.htm)
-- [鬼鬼女儿都这么大了](http://www.movie.hkepx.cn/xiju/0387228.htm)
-- [西藏泥石流灾害原因查明](http://www.daogukj.com/qkavfdvz/)
-- [“世界最年轻国王”突然离世](http://www.play.hengshemaoyi.cn/xiju/0627493.htm)
-- [去了一趟西班牙2.0（荒岛四兄弟篇）](http://www.movie.hkepx.cn/movie/2449915.htm)
-- [一家三口候补车票，8 岁小孩被分到不同车厢致无奈退票，怎样能避免这种情况？购票机制还有哪些优化空间？](http://www.play.hengshemaoyi.cn/kongbu/8489134.htm)
-- [樊振东 2 比 3 惜败户上隼辅，其所在球队 1-3 不敌对手，无缘德国杯 8 强，如何评价他的表现？](http://www.play.hengshemaoyi.cn/xiju/2205602.htm)
-- [武德充沛！在美国当牛仔到底有多刺激！](http://www.play.hengshemaoyi.cn/kongbu/3633411.htm)
-- [国防科大学长霸气迎新场面硬核](http://www.play.hengshemaoyi.cn/xiju/1772992.htm)
-- [百万粉丝网红「松哥打虎」涉黑被抓，以其为首的涉黑恶犯罪组织被打掉，哪些信息值得关注？](http://www.daogukj.com/4780737)
-- [多地立法严控学生带手机入校](http://www.movie.hkepx.cn/xiju/5267459.htm)
-- [【独家】牧神记 第98集 杀新皇](http://www.play.hengshemaoyi.cn/kongbu/8508013.htm)
-- [西藏泥石流灾害原因现已查明](http://www.movie.hkepx.cn/movie/8646163.htm)
-- [男子便利店碰到女子包被指摸臀](http://www.daogukj.com/ideyvojn/)
-- [便利店事件女子责怪店主害她报警](http://www.daogukj.com/wbplfych/)
-- [阿尔瓦雷斯传出身患抑郁，一周绝食，多次缺席训练，坚定想要转会巴塞罗那，你如何评价这一系列操作？](http://www.play.hengshemaoyi.cn/xiju/1691587.htm)
-- [桂圆泡药水致癌？误解](http://www.movie.hkepx.cn/movie/0156354.htm)
-- [佑驾创新第二曲线加速成型](http://www.movie.hkepx.cn/movie/8759533.htm)
-- [医疗保障法 2027 年 1 月 1 日起施行，将给我们的生活带来哪些改变？](http://www.daogukj.com/goeesqox/)
-- [七旬老人花5万做医美后精神抑郁](http://www.play.hengshemaoyi.cn/kongbu/1605719.htm)
-- [当兵被班长往死里整，家里不愿帮你走动，你是硬留还是回家？](http://www.play.hengshemaoyi.cn/xiju/0951200.htm)
-- [罗家英称自己仅剩8年寿命](http://www.play.hengshemaoyi.cn/kongbu/8124430.htm)
-- [15岁少年因大面积文身无法入学](http://www.play.hengshemaoyi.cn/kongbu/2758868.htm)
-- [16岁少女车祸离世 手机被人捡走刷机](http://www.daogukj.com/3916003)
-- [王菲教窦靖童social](http://www.movie.hkepx.cn/movie/6479348.htm)
-- [吉隆口岸27处建筑被夷为平地](http://www.movie.hkepx.cn/xiju/4609156.htm)
-- [如何评价黄霄雲二巡演唱会《宇宙无敌号2.0》杭州首站？](http://www.play.hengshemaoyi.cn/kongbu/1182405.htm)
-- [网友意外拍到吉隆泥石流暴发瞬间](http://www.daogukj.com/uobqircq/)
-- [女孩游泳减肥身上冒出20多个疣](http://www.play.hengshemaoyi.cn/kongbu/0355633.htm)
-- [跑了1200公里，我去给刘关张三兄弟上坟！](http://www.play.hengshemaoyi.cn/kongbu/3845867.htm)
-- [【大学生就业指导】麦当当薯条N重奏！200块买两斤土豆？不能够了！](http://www.play.hengshemaoyi.cn/xiju/5922119.htm)
-- [有钱的家庭该如何富养孩子](http://www.daogukj.com/7623786)
-- [“来中国之前 我不知道什么叫和平”](http://www.play.hengshemaoyi.cn/kongbu/9393809.htm)
-- [尼泊尔山洪已致675遇难2498失联](http://www.daogukj.com/9177301)
-- [《下一个是谁》恐怖特辑——无限循环的寺庙](http://www.daogukj.com/pxvagscl/)
-- [医生：睡对才能放大长高药效](http://www.play.hengshemaoyi.cn/kongbu/6726990.htm)
-- [青春芒果夜节目单](http://www.daogukj.com/5743277)
-- [西藏公布国内失联人员家属服务热线](http://www.movie.hkepx.cn/xiju/7321735.htm)
+- [孙千腰以下全是腿](http://www.movie.hkepx.cn/xiju/9775845.htm)
+- [2026年乒乓球德国杯，樊振东2：3不敌户上隼辅，怎么评价本次赛事杜塞尔多夫俱乐部止步16强的表现？](http://www.movie.hkepx.cn/movie/9071546.htm)
+- [国家动博馆强烈谴责父亲带娃玩标本](http://www.play.hengshemaoyi.cn/xiju/4489901.htm)
+- [中国女排冲冠](http://www.daogukj.com/yhtegkzz/)
+- [Angelababy第一套高定是祖海](http://www.daogukj.com/fyfonhkf/)
+- [《古神: 风里希》科隆游戏展最新预告片 | 世界观前瞻](http://www.play.hengshemaoyi.cn/xiju/6169629.htm)
+- [王菲被大屏切到立刻躲镜头](http://www.movie.hkepx.cn/xiju/0387228.htm)
+- [《水浒传》中谁才能称作是真正的好汉？](http://www.daogukj.com/qkavfdvz/)
+- [旺仔小乔已掉粉超900万](http://www.play.hengshemaoyi.cn/xiju/0627493.htm)
+- [FALSITY…（完整版电影 / 官方正版)](http://www.movie.hkepx.cn/movie/2449915.htm)
+- [【大学生就业指导】麦当当薯条N重奏！200块买两斤土豆？不能够了！](http://www.play.hengshemaoyi.cn/kongbu/8489134.htm)
+- [武德充沛！在美国当牛仔到底有多刺激！](http://www.play.hengshemaoyi.cn/xiju/2205602.htm)
+- [一条蛇从天而降砸中汽车引擎盖](http://www.play.hengshemaoyi.cn/kongbu/3633411.htm)
+- [运20载中方首批援助物资抵达尼泊尔](http://www.play.hengshemaoyi.cn/xiju/1772992.htm)
+- [吃自助餐的九大神队友！你属于哪一种？](http://www.daogukj.com/4780737)
+- [南极冰川融化正释放剧毒水银](http://www.movie.hkepx.cn/xiju/5267459.htm)
+- [综艺节目遗留道具2年成海滩垃圾](http://www.play.hengshemaoyi.cn/kongbu/8508013.htm)
+- [尼泊尔冰崩是因为全球变暖吗](http://www.movie.hkepx.cn/movie/8646163.htm)
+- [如果一款武侠游戏加入火枪，那么如何避免这个游戏过于依赖热武器？](http://www.daogukj.com/ideyvojn/)
+- [女孩游泳减肥身上冒出20多个疣](http://www.daogukj.com/wbplfych/)
+- [去了一趟西班牙2.0（荒岛四兄弟篇）](http://www.play.hengshemaoyi.cn/xiju/1691587.htm)
+- [特朗普称美国获得超650亿桶委石油储量的「多数控制权」，美国纳税人无需为此承担任何费用，如何看待此事？](http://www.movie.hkepx.cn/movie/0156354.htm)
+- [如何评价黄霄雲二巡演唱会《宇宙无敌号2.0》杭州首站？](http://www.movie.hkepx.cn/movie/8759533.htm)
+- [【独家/完结】《记忆管理局》第7集 记忆这样脆弱的东西【8月国创】](http://www.daogukj.com/goeesqox/)
+- [新能源二手车升温：到店3天就卖出](http://www.play.hengshemaoyi.cn/kongbu/1605719.htm)
+- [您叫的骑手正忙 请稍后再拨](http://www.play.hengshemaoyi.cn/xiju/0951200.htm)
+- [如何看待工信部通报一致性检测典型案例，比亚迪一款插混车型因油耗过高上榜？](http://www.play.hengshemaoyi.cn/kongbu/8124430.htm)
+- [吉隆口岸27处建筑被夷为平地](http://www.play.hengshemaoyi.cn/kongbu/2758868.htm)
+- [曝刺棠主演定妆](http://www.daogukj.com/3916003)
+- [假如日本出现核武器中国该干什么](http://www.movie.hkepx.cn/movie/6479348.htm)
+- [官方通报外卖员往配送饮料里加百草枯，称系谣言，已对造谣者展开调查，造谣者将承担哪些法律责任？](http://www.movie.hkepx.cn/xiju/4609156.htm)
+- [这个丝瓜抹布真的有这么好用吗！！！](http://www.play.hengshemaoyi.cn/kongbu/1182405.htm)
+- [猫叼着松鼠带着蛇直冲女子而来](http://www.daogukj.com/uobqircq/)
+- [《爱情公寓》羽墨的角色为什么被放弃了？而悠悠却被保留下来？](http://www.play.hengshemaoyi.cn/kongbu/0355633.htm)
+- [癌王胰腺癌迎来里程碑新药](http://www.play.hengshemaoyi.cn/kongbu/3845867.htm)
+- [16岁少女车祸离世 手机被人捡走刷机](http://www.play.hengshemaoyi.cn/xiju/5922119.htm)
+- [舞蹈赛小女孩裙子滑落 同伴捡起穿上](http://www.daogukj.com/7623786)
+- [唐嫣资助的女孩 放弃上大学](http://www.play.hengshemaoyi.cn/kongbu/9393809.htm)
+- [中国女排亚锦赛决赛](http://www.daogukj.com/9177301)
+- [我的世界，但所有人共享背包！？](http://www.daogukj.com/pxvagscl/)
+- [关于QWEN3.8-27B，大家的速度都是多少tokens/s？](http://www.play.hengshemaoyi.cn/kongbu/6726990.htm)
+- [吉隆泥石流新堰塞湖基本排空](http://www.daogukj.com/5743277)
+- [老师补课费用太贵了，不好意思拒绝，怎么办?](http://www.movie.hkepx.cn/xiju/7321735.htm)
 
 </details>
 
 ## 原始来源
 
-- [父母卖房辞职支持常冰玉练球](https://www.baidu.com/s?wd=%E7%88%B6%E6%AF%8D%E5%8D%96%E6%88%BF%E8%BE%9E%E8%81%8C%E6%94%AF%E6%8C%81%E5%B8%B8%E5%86%B0%E7%8E%89%E7%BB%83%E7%90%83&sa=fyb_news&rsv_dl=fyb_news)
+- [便利店店主回应把视频发网上](https://s.weibo.com/weibo?q=%E4%BE%BF%E5%88%A9%E5%BA%97%E5%BA%97%E4%B8%BB%E5%9B%9E%E5%BA%94%E6%8A%8A%E8%A7%86%E9%A2%91%E5%8F%91%E7%BD%91%E4%B8%8A)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5b7ab156895c346abf22 -->
+<!-- content-fingerprint: 7874b0adaef0f5e4cc3d -->
