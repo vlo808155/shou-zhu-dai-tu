@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 半月工资55元 被踢出845个工作群
+# 宇树股价正式“腰斩”
 
-> 来源：百度热搜 · 排名：第 6 位 · 热度：7236136 · 更新：2026-08-31T07:53:28+08:00
+> 来源：百度热搜 · 排名：第 6 位 · 热度：7237669 · 更新：2026-08-31T12:38:49+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“半月工资55元 被踢出845个工作群”位列第 6 位，公开热度指标为 7236136。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“宇树股价正式“腰斩””位列第 6 位，公开热度指标为 7237669。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：重庆女孩小古2019年入职某公司，2025年遭公司变相逼迫离职，半月仅拿到55元工资。她先后通过劳动仲裁、一审、二审维权均胜诉，8月27日二审胜诉后公司才支付判决款项，但仍拖欠6个月社保和公积金，小古将继续依法维权。
+来源公开摘要显示：8月31日，宇树科技跌超2%开盘，盘中一度跌至555.8元/股，较上市首日（8月19日）最高价1100元/股已经“腰斩”，市值蒸发超2000亿元。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [自私虚伪的人再爱你也给不出](san-gu-mao-lu.md)
-- [官方回应“取消ETC”读懂车主真诉求](cao-mu-jie-bing.md)
-- [2026 女排亚锦赛决赛，中国女排 2 比 3 不敌泰国女排，无缘直通奥运，如何评价这场比赛？](feng-sheng-he-li.md)
-- [《不能歪曲事实 我当什么媒体》](ru-huo-ru-tu.md)
+- [井柏然花少下沉口碑](san-gu-mao-lu.md)
+- [爸爸帮女儿改造宿舍用棉线缠床栏杆](cao-mu-jie-bing.md)
+- [霍金举办的时间旅行宴会为何无人露面？](feng-sheng-he-li.md)
+- [【招笑版】新植物4:滚木坚果](ru-huo-ru-tu.md)
 
 ## 站内推荐
 
-- [网友意外拍到泥石流暴发瞬间](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [卤味三巨头：鸭脖真的不好卖了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [中国男人正在抛弃皮鞋](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [叶童在中餐厅认真干活备受好评](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [父亲挑着扁担送儿子上大学](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [人民日报评银行该不该午休](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [第一批买网红小家电的人已经后悔了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [小区选择不要物业 居民自己管自己](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [7000亿足疗市场跑不出一家上市龙头](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [一爷爷种出7只“葫芦娃”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [SpaceX突破AI供电瓶颈](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
-- [郎平曾说朱婷有时候半个月不回消息](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
-- [又一地宣布生物地理不计入中考总分](http://www.daogukj.com/hiiwohqb/)
-- [梅艳芳遗产争夺案23年后大结局](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
-- [吉隆口岸大楼现状](http://www.daogukj.com/2806482)
-- [南航一客机误放滑梯 损失或超10万](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
-- [综艺节目遗留道具2年成海滩垃圾](http://www.daogukj.com/9832220)
-- [英方：一油轮在霍尔木兹海峡遇袭](http://www.movie.hkepx.cn/xiju/4624070.htm)
-- [华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】](http://www.movie.hkepx.cn/movie/0841033.htm)
-- [许晴花少2表现被理解](http://www.movie.hkepx.cn/movie/4609262.htm)
-- [2026香港小姐三甲出炉](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
-- [梅艳芳母亲3个子女均因患癌去世](http://www.daogukj.com/1127111)
-- [李斌去年曾对话星宇股份董事长](http://www.daogukj.com/pldvwggd/)
-- [西藏吉隆泥石流灾害新闻发布会实录](http://www.movie.hkepx.cn/xiju/1287269.htm)
-- [官方回应“取消ETC”读懂车主真诉求](http://www.daogukj.com/unklghpc/)
-- [吴尊找刘畊宏联系曾辉](http://www.daogukj.com/4404570)
-- [父亲挑着扁担送儿子上大学](http://www.daogukj.com/wfqplasc/)
-- [L3 自动驾驶，又是狼来了吗？](http://www.daogukj.com/grgritvr/)
-- [女孩被踢出845个工作群无奈离职](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
-- [FALSITY…（完整版电影 / 官方正版)](http://www.movie.hkepx.cn/movie/3539496.htm)
-- [大伟哥试玩无限大?合理猜测这俩的企划是不是拿反了!](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
-- [特斯拉推出平价版Model3](http://www.movie.hkepx.cn/xiju/3922759.htm)
-- [大家好这是我第一条吃播视频 不好意思有点寒酸](http://www.daogukj.com/ynpujsgi/)
-- [为什么亲子之间总是容易爆发冲突？](http://www.movie.hkepx.cn/movie/2603972.htm)
-- [西藏吉隆有挖掘机意外坠河](http://www.daogukj.com/9238608)
-- [如何评价蒋炎岩在课件中提出“ 没有Token的CS学生应该立刻退学”？](http://www.daogukj.com/xdtzeasn/)
-- [医疗防疫分队前往救援一线](http://www.daogukj.com/2229169)
-- [医生说“先不用治”，到底是什么意思？](http://www.daogukj.com/pnnlzznp/)
-- [官方通报「博主街头除钉因扬尘影响环保被叫停」，称工作人员沟通方式造成误解，有更好的处理方式吗？](http://www.movie.hkepx.cn/movie/1141317.htm)
+- [被踢出工作群女生加班证据有几个G](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
+- [女孩被踢出845个工作群无奈离职](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
+- [大学新生报到带两板车加两箱子行李](http://www.daogukj.com/hiiwohqb/)
+- [陈粒回应疑似被性骚扰](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
+- [优酷5年7部破万现偶剧](http://www.daogukj.com/2806482)
+- [网警公布10起涉吉隆泥石流谣言案](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
+- [夜跑女子被路过小朋友夸美](http://www.daogukj.com/9832220)
+- [尼泊尔泥石流联系到的中方人员已转移](http://www.movie.hkepx.cn/xiju/4624070.htm)
+- [我有不能输的理由](http://www.movie.hkepx.cn/movie/0841033.htm)
+- [陈粒回应Ryan性骚扰](http://www.movie.hkepx.cn/movie/4609262.htm)
+- [净网：造谣外卖员向饮料加百草枯者被罚](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
+- [Ryan是王菲早期大粉](http://www.daogukj.com/1127111)
+- [白宫发“白头鹰暴打加拿大鹅”被群嘲](http://www.daogukj.com/pldvwggd/)
+- [争分夺秒打通口岸关键通道](http://www.movie.hkepx.cn/xiju/1287269.htm)
+- [爸爸帮女儿改造宿舍用棉线缠床栏杆](http://www.daogukj.com/unklghpc/)
+- [西藏吉隆泥石流](http://www.daogukj.com/4404570)
+- [一爷爷种出7只“葫芦娃”](http://www.daogukj.com/wfqplasc/)
+- [我的世界，但所有人共享背包！？](http://www.daogukj.com/grgritvr/)
+- [开学](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
+- [【我在现代当幽差】EP02 神仙？妖怪？谢谢【UP动画】](http://www.movie.hkepx.cn/movie/3539496.htm)
+- [《全障碍沟通》](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
+- [郎平希望朱婷退役后别回赛场](http://www.movie.hkepx.cn/xiju/3922759.htm)
+- [全球10亿粉丝的我一周真实生活是什么样的？](http://www.daogukj.com/ynpujsgi/)
+- [樊振东在德甲打高排名选手容易输球，缺乏高水平对抗的问题该怎么破解？](http://www.movie.hkepx.cn/movie/2603972.htm)
+- [网友意外拍到泥石流暴发瞬间](http://www.daogukj.com/9238608)
+- [内存暴涨的当下，2026 年开学装机是 16GB 凑合用还是咬牙上 32GB？现在买是不是高位接盘？](http://www.daogukj.com/xdtzeasn/)
+- [想方设法 向受灾核心区挺进](http://www.daogukj.com/2229169)
+- [牙齿：演化留给人类的烂摊子](http://www.daogukj.com/pnnlzznp/)
+- [「如果国家限制租金，房东就会宁愿房子空置到烂掉也不租给有需要的人」，如何看待这种观点？](http://www.movie.hkepx.cn/movie/1141317.htm)
 - [新版《国防动员法》2026 年 10 月 1 日实施，哪些信息值得关注？会带来什么影响？](http://www.daogukj.com/3669738)
-- [抢险救援现场 照明无人机点亮夜空](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
-- [重庆辟谣“外卖员往饮料里加百草枯”](http://www.movie.hkepx.cn/xiju/8333303.htm)
-- [《不能歪曲事实 我当什么媒体》](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
-- [王菲被大屏切到立刻躲镜头](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
-- [当动物可以变幻成高跟鞋](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
-- [卤味三巨头：鸭脖真的不好卖了](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
-- [张靓颖演唱会掏出手机看歌词](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
-- [桂圆“打针增甜”不可能](http://www.movie.hkepx.cn/movie/7218961.htm)
+- [中吉人文交流持续深化](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
+- [8月“科学”流言榜发布](http://www.movie.hkepx.cn/xiju/8333303.htm)
+- [【招笑版】新植物4:滚木坚果](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
+- [日本樱岛火山今天多次喷发](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
+- [Ryan道歉](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
+- [第一批买网红小家电的人已经后悔了](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
+- [订单爆了排到年底！这个市场热起来了](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
+- [梅艳芳母亲3个子女均因患癌去世](http://www.movie.hkepx.cn/movie/7218961.htm)
 - [【独家/完结】《记忆管理局》第7集 记忆这样脆弱的东西【8月国创】](http://www.movie.hkepx.cn/xiju/0034458.htm)
-- [尼泊尔重大灾害是冰圈松动预警](http://www.movie.hkepx.cn/movie/1373526.htm)
-- [爷爷去世前怕孙女饿提前包好饺子](http://www.movie.hkepx.cn/movie/8174344.htm)
-- [吉隆泥石流搜救现场发现警用马甲](http://www.movie.hkepx.cn/xiju/7049500.htm)
-- [泰国女排主帅称中国队100%晋级奥运会](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
-- [9月新规来了：涉及公积金、AI客服](http://www.daogukj.com/1670030)
-- [网传有研究警告南极水银释放量激增 550%，是真的吗？会带来哪些影响？](http://www.daogukj.com/4917906)
-- [我求你看看这个节目吧！！！](http://www.daogukj.com/jjbeajdp/)
-- [房贷最长40年购房者称压力下降](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
-- [中国女排憾负泰国无缘直通奥运会](http://www.daogukj.com/2644309)
-- [女孩游泳减肥身上冒出20多个疣](http://www.daogukj.com/2520362)
-- [冯坤为中国女排颁奖](http://www.daogukj.com/4354347)
+- [雷军晒实测澎程N90Max续航视频](http://www.movie.hkepx.cn/movie/1373526.htm)
+- [长大才知道别人家孩子不吃眼泪拌饭](http://www.movie.hkepx.cn/movie/8174344.htm)
+- [媒体：中国女排需要找准自己的路](http://www.movie.hkepx.cn/xiju/7049500.htm)
+- [父亲送女儿到北京上大学哭了5次](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
+- [郑某造谣外卖员向饮料加百草枯被罚](http://www.daogukj.com/1670030)
+- [官方通报「博主街头除钉因扬尘影响环保被叫停」，称工作人员沟通方式造成误解，有更好的处理方式吗？](http://www.daogukj.com/4917906)
+- [当你的资产缩水到A0层级，挑选优质桥洞的六大方案！](http://www.daogukj.com/jjbeajdp/)
+- [美国“明抢”委内瑞拉油田](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
+- [10公里要30元 景区摆渡车非坐不可吗](http://www.daogukj.com/2644309)
+- [网传有研究警告南极水银释放量激增 550%，是真的吗？会带来哪些影响？](http://www.daogukj.com/2520362)
+- [中国男人为什么突然不爱皮鞋了](http://www.daogukj.com/4354347)
 
 </details>
 
 ## 原始来源
 
-- [半月工资55元 被踢出845个工作群](https://www.baidu.com/s?wd=%E5%8D%8A%E6%9C%88%E5%B7%A5%E8%B5%8455%E5%85%83+%E8%A2%AB%E8%B8%A2%E5%87%BA845%E4%B8%AA%E5%B7%A5%E4%BD%9C%E7%BE%A4&sa=fyb_news&rsv_dl=fyb_news)
+- [宇树股价正式“腰斩”](https://www.baidu.com/s?wd=%E5%AE%87%E6%A0%91%E8%82%A1%E4%BB%B7%E6%AD%A3%E5%BC%8F%E2%80%9C%E8%85%B0%E6%96%A9%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6a8c0d30447d4ffda249 -->
+<!-- content-fingerprint: f67ac4a784d24ad6baf5 -->
