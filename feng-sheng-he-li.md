@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 9月1日正式实施的新律师法，对律师和当事人有什么影响？
+# 曾经最成功的游戏类型，为什么没人做了？
 
-> 来源：知乎热榜 · 排名：第 7 位 · 热度：129 万热度 · 分类：问答 · 更新：2026-09-02T12:26:27+08:00
+> 来源：哔哩哔哩热门 · 排名：第 7 位 · 热度：893463 · 分类：网络游戏 · 更新：2026-09-02T16:57:43+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“9月1日正式实施的新律师法，对律师和当事人有什么影响？”位列第 7 位，公开热度指标为 129 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“曾经最成功的游戏类型，为什么没人做了？”位列第 7 位，公开热度指标为 893463，榜单分类为“网络游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：‌2026 年 8 月 28 日，全国人大常委会通过了关于修改《中华人民共和国律师法》的决定，新法将于 2026 年 9 月 1 日起正式施行‌。这次修改主要围绕坚持党的领导、保障律师执业权利、推进刑事辩护全覆盖以及发展涉外法律服务等方面进行了完善 。‌‌ 推进律师行业健康有序发展
+哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `网络游戏`
 
 ## 相关热点
 
-- [“我现在被撞了，你意思是我活该吗？”女子骑电动自行车横穿机动车道，交警：全责！](ru-huo-ru-tu.md)
-- [花少2被爆料大量未播细节](yi-gu-zuo-qi.md)
-- [国台办回应郑丽文向西藏灾区捐款](yi-zi-qian-jin.md)
-- [交通运输部回应网友建议「取消 ETC 设备使用，采用车牌感应支付」，车牌感应是否可行？](yi-fan-feng-shun.md)
+- [中国博士后已经50万+了](ru-huo-ru-tu.md)
+- [美国地勤不拔油管扯爆国航油箱](yi-gu-zuo-qi.md)
+- [“常来祖宗海更能体会飞行意义”](yi-zi-qian-jin.md)
+- [黄之锋在香港高等法院就「串谋勾结外国或者境外势力危害国家安全」案当庭认罪，哪些信息值得关注？](yi-fan-feng-shun.md)
 
 ## 站内推荐
 
-- [皮鞋大王奥康国际四年亏 9 亿，红蜻蜓连年亏损，为啥中国男人不爱买皮鞋了？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [《爱情公寓》中曾小贤明明和胡一菲互相喜欢，为什么却在中途突然和诺澜在一起了？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [把公司当成主题乐园](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [吉隆核心区搜救现场](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [离家9年27岁退伍女兵向妈妈敬礼](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [多所高校宣布中秋、国庆连放13天，称「避免学生反复往返耗费路费、体力」，如何看待这一做法？值得普及吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [一个外挂100块，从零挑战四款FPS，会遇到多少挂？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [有市无价再创记录！世界最大顶级黄油蟹与巨型松茸的完美邂逅！鱼子酱只配当咸菜？！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [“小传人”来了（假期拍摄，快乐起来）](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [当街殴打扒裤女子被刑拘](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [开学季“送学游”火了](http://www.play.hengshemaoyi.cn/xiju/6111090.htm)
-- [怀孕妻子迎参军12年小伙退伍回家](http://www.daogukj.com/edzpadjo/)
-- [兵线全被卡住了，但这样我防御塔就安全了](http://www.movie.hkepx.cn/xiju/6105250.htm)
-- [有市无价再创记录！世界最大顶级黄油蟹与巨型松茸的完美邂逅！鱼子酱只配当咸菜？！](http://www.play.hengshemaoyi.cn/kongbu/1070558.htm)
-- [于东来晒胖东来业绩，本年累计销售额达 195.15 亿元，同比增长 26.98%，如何评价这个成绩？](http://www.play.hengshemaoyi.cn/kongbu/7084010.htm)
-- [巴塞罗那的小偷把我带到了欧洲，让我在纽北被围了起来](http://www.play.hengshemaoyi.cn/kongbu/6978620.htm)
-- [“药中茅台”片仔癀跌落神坛](http://www.daogukj.com/ydopnvwq/)
-- [男子爱车贴膜忘去水印满车字母](http://www.daogukj.com/ikvvgoqn/)
-- [这也能装？给车内塞一套工作站！小米澎程N90 Max用车体验！](http://www.play.hengshemaoyi.cn/xiju/4780278.htm)
-- [连英语人都发不明白uygur这个词的音](http://www.play.hengshemaoyi.cn/kongbu/1667187.htm)
-- [博主芳芳离世 曾众筹止痛药](http://www.daogukj.com/ruryuczo/)
-- [“我现在被撞了，你意思是我活该吗？”女子骑电动自行车横穿机动车道，交警：全责！](http://www.play.hengshemaoyi.cn/xiju/2905183.htm)
-- [徐州12345涌入万件演唱会诉求](http://www.play.hengshemaoyi.cn/xiju/5729760.htm)
-- [解放军双语喊话菲飞机：立即离开](http://www.play.hengshemaoyi.cn/kongbu/8964859.htm)
-- [《明日方舟》干员「结城理」技能展示PV](http://www.movie.hkepx.cn/xiju/2546414.htm)
-- [网红村支书因女儿重度抑郁决定辞职](http://www.movie.hkepx.cn/movie/4824208.htm)
-- [温州多地紧急通知：停课一天](http://www.daogukj.com/9789170)
-- [高圆圆：最好我先走赵又廷收拾后续](http://www.play.hengshemaoyi.cn/xiju/2235964.htm)
-- [把公司当成主题乐园](http://www.play.hengshemaoyi.cn/kongbu/0944708.htm)
-- [网红村支书因女儿重度抑郁辞职](http://www.daogukj.com/1702919)
-- [黄金](http://www.movie.hkepx.cn/xiju/7626642.htm)
+- [爆款AI短剧/AI漫剧是怎么做出来的？0-1保姆级教程](http://www.play.hengshemaoyi.cn/xiju/6111090.htm)
+- [比亚迪 2026 年 8 月销量超过 44 万台，同比增长 17.84%，如何评价这一成绩？](http://www.daogukj.com/edzpadjo/)
+- [【暗区突围手游版本PV】硝烟无声，S19赛季现已上线！](http://www.movie.hkepx.cn/xiju/6105250.htm)
+- [如何看待皇马在悼念尼泊尔洪灾的英文帖文中，将西藏与尼泊尔并列？](http://www.play.hengshemaoyi.cn/kongbu/1070558.htm)
+- [有个人定制了几万只右脚的鞋，这是不是什么圈套？](http://www.play.hengshemaoyi.cn/kongbu/7084010.htm)
+- [男子去提醒邻居逃生 自己没能逃出](http://www.play.hengshemaoyi.cn/kongbu/6978620.htm)
+- [香港武打巨星陈观泰去世](http://www.daogukj.com/ydopnvwq/)
+- [泡面巨头靠涨价赚翻，销量没大涨，业绩却回暖，部分高端泡面看齐外卖价格，方便面行业真的逆袭了吗？](http://www.daogukj.com/ikvvgoqn/)
+- [“修仙也爱拍照”](http://www.play.hengshemaoyi.cn/xiju/4780278.htm)
+- [景区 NPC 的职业前景好吗？一个好的景区 NPC，最重要的能力是什么？会有职业焦虑吗？](http://www.play.hengshemaoyi.cn/kongbu/1667187.htm)
+- [⚡买瓜史上第一混乱⚡](http://www.daogukj.com/ruryuczo/)
+- [中国博士后已经50万+了](http://www.play.hengshemaoyi.cn/xiju/2905183.htm)
+- [吉隆口岸的陆路救援通道实现畅通，挖掘机械抵达核心区，将给物资输送、人员转运等灾带来哪些实质性提升？](http://www.play.hengshemaoyi.cn/xiju/5729760.htm)
+- [“什么叫程心的威慑度是100%？”](http://www.play.hengshemaoyi.cn/kongbu/8964859.htm)
+- [光伏装机超煤电 电力供给迎新格局](http://www.movie.hkepx.cn/xiju/2546414.htm)
+- [许晴当年花少2发的动态](http://www.movie.hkepx.cn/movie/4824208.htm)
+- [泥石流救援进入核心区 这一幕泪目](http://www.daogukj.com/9789170)
+- [尼泊尔泥石流已致1118死4858失联](http://www.play.hengshemaoyi.cn/xiju/2235964.htm)
+- [有市无价再创记录！世界最大顶级黄油蟹与巨型松茸的完美邂逅！鱼子酱只配当咸菜？！](http://www.play.hengshemaoyi.cn/kongbu/0944708.htm)
+- [华强买瓜，但郝哥能控制AI](http://www.daogukj.com/1702919)
+- [戴森牙刷 不坑穷人](http://www.movie.hkepx.cn/xiju/7626642.htm)
 - [宁静回应杨洋走丢](http://www.play.hengshemaoyi.cn/xiju/6504158.htm)
-- [皇马 不删帖不道歉](http://www.play.hengshemaoyi.cn/kongbu/0276729.htm)
-- [有人说「江浙沪小县城工资崩塌了」，是真的么？如果是，为什么会出现这种情况？](http://www.play.hengshemaoyi.cn/xiju/8604336.htm)
-- [迪丽热巴香辣狂欢只对粉丝开放](http://www.play.hengshemaoyi.cn/xiju/9791973.htm)
-- [尼泊尔泥石流遇难人数升至1127人](http://www.movie.hkepx.cn/movie/0865243.htm)
-- [英国为何执着于援助乌克兰](http://www.daogukj.com/2187991)
-- [多个10万亿级消费新赛道要来了](http://www.daogukj.com/awimddvt/)
-- [闪婚获近千万房产99%份额离婚得50万](http://www.movie.hkepx.cn/xiju/8479317.htm)
-- [如何看待Anthropic全面开放Claude Fable 5.1和Mythos 5.1？有哪些亮点？](http://www.daogukj.com/8710264)
-- [燧原科技开启申购 中一签或赚28万](http://www.movie.hkepx.cn/xiju/7852987.htm)
-- [有网友表示很多医院门诊一号难求，但仍有三甲医院出现裁员现象，医院爆满只是假象吗？为啥医院会有经营困难？](http://www.daogukj.com/9527639)
-- [张继科带课一个半小时25元](http://www.movie.hkepx.cn/xiju/5317341.htm)
-- [星宇股份董事长称深刻反省真诚道歉](http://www.daogukj.com/rfjzvnft/)
-- [孔绍逊任甘肃省代省长](http://www.play.hengshemaoyi.cn/kongbu/0835531.htm)
-- [绝味鸭脖半年报营业收入下降10.82%，平均每天关掉7家门店，哪些数据值得关注？线下卤味卖不动了吗？](http://www.play.hengshemaoyi.cn/kongbu/5783653.htm)
-- [吉隆口岸核心区救援通道已抢通](http://www.movie.hkepx.cn/movie/2541017.htm)
-- [大叔2600元买空调发现是8年前产品](http://www.daogukj.com/tdbkadsz/)
-- [绝活](http://www.movie.hkepx.cn/movie/8640580.htm)
-- [8 月鸿蒙智行交付 4.2 万余台，小米汽车持续交付超 3 万台，如何评价各家车企 8 月交付表现？](http://www.daogukj.com/5453849)
-- [这届学生的名字都很个性](http://www.play.hengshemaoyi.cn/xiju/3894345.htm)
-- [加拿大对美发动「精准关税战」，以龙虾和奶酪作武器，这波操作能影响美国中期选举吗？](http://www.daogukj.com/hayaidza/)
-- [花儿与少年2026官宣](http://www.daogukj.com/ppbihxts/)
-- [万千气象看北京](http://www.play.hengshemaoyi.cn/kongbu/7747218.htm)
-- [新加坡人均gdp9万美元，怎么基层工作岗位的工资，还没有一些人均gdp4万美元左右的国家高？](http://www.daogukj.com/8988221)
-- [井柏然对花少2原班人马拍剧否定三连](http://www.play.hengshemaoyi.cn/xiju/0659400.htm)
-- [普京硬核回应俄日关系恶化](http://www.movie.hkepx.cn/xiju/3713545.htm)
-- [我国电力供给迎来新格局](http://www.play.hengshemaoyi.cn/xiju/1948140.htm)
-- [俄罗斯人拿人民币在黑河夜市疯狂扫货](http://www.movie.hkepx.cn/xiju/3130950.htm)
-- [【何同学】库克时代](http://www.movie.hkepx.cn/movie/0216360.htm)
+- [外网脊椎专家一个视频治疗腰痛](http://www.play.hengshemaoyi.cn/kongbu/0276729.htm)
+- [08年美国讽刺金曲《朋友的酒》（英语填词cover）“空城计の小曲”](http://www.play.hengshemaoyi.cn/xiju/8604336.htm)
+- [多地社保缴费基数结束连年快涨](http://www.play.hengshemaoyi.cn/xiju/9791973.htm)
+- [第260名不满与第2600名同寝想退学](http://www.movie.hkepx.cn/movie/0865243.htm)
+- [赛考斯时隔27年再访中国 外交部回应](http://www.daogukj.com/2187991)
+- [苹果、小米、华为发布时间撞档，为啥大家都选 9 月发布新品？扎堆发布不会影响销量吗？](http://www.daogukj.com/awimddvt/)
+- [家长投诉老师婚姻状况](http://www.movie.hkepx.cn/xiju/8479317.htm)
+- [美伊再次开打，特朗普威胁伊朗若报复将遭受「更猛烈」打击，此轮袭击将如何影响中东局势？](http://www.daogukj.com/8710264)
+- [国台办回应台陆委会称赴大陆有风险](http://www.movie.hkepx.cn/xiju/7852987.htm)
+- [【蕾米埃尔】：入木三分，原来是字面意思？](http://www.daogukj.com/9527639)
+- [井柏然双眼皮 年纪大了皮松了](http://www.movie.hkepx.cn/xiju/5317341.htm)
+- [女子带娃迎接退伍丈夫泪洒当场](http://www.daogukj.com/rfjzvnft/)
+- [宇树机器狗隐秘灰产链曝光](http://www.play.hengshemaoyi.cn/kongbu/0835531.htm)
+- [预计9月将有2-3个台风登陆或影响我国](http://www.play.hengshemaoyi.cn/kongbu/5783653.htm)
+- [直观感受到长期大量阅读的好处](http://www.movie.hkepx.cn/movie/2541017.htm)
+- [有网友表示很多医院门诊一号难求，但仍有三甲医院出现裁员现象，医院爆满只是假象吗？为啥医院会有经营困难？](http://www.daogukj.com/tdbkadsz/)
+- [把公司当成主题乐园](http://www.movie.hkepx.cn/movie/8640580.htm)
+- [《明日方舟》干员「结城理」技能展示PV](http://www.daogukj.com/5453849)
+- [黄之锋当庭认罪](http://www.play.hengshemaoyi.cn/xiju/3894345.htm)
+- [高圆圆：最好我先走赵又廷收拾后续](http://www.daogukj.com/hayaidza/)
+- [反中乱港分子黄之锋当庭认罪](http://www.daogukj.com/ppbihxts/)
+- [读懂这个“50.9%”的分量](http://www.play.hengshemaoyi.cn/kongbu/7747218.htm)
+- [雷军晒小米18 Fold真机](http://www.daogukj.com/8988221)
+- [“樊振东效应”在德国持续扩大](http://www.play.hengshemaoyi.cn/xiju/0659400.htm)
+- [绝活](http://www.movie.hkepx.cn/xiju/3713545.htm)
+- [交通运输部回应网友建议「取消 ETC 设备使用，采用车牌感应支付」，车牌感应是否可行？](http://www.play.hengshemaoyi.cn/xiju/1948140.htm)
+- [皮鞋大王奥康国际四年亏 9 亿，红蜻蜓连年亏损，为啥中国男人不爱买皮鞋了？](http://www.movie.hkepx.cn/xiju/3130950.htm)
+- [兵线全被卡住了，但这样我防御塔就安全了](http://www.movie.hkepx.cn/movie/0216360.htm)
 
 </details>
 
 ## 原始来源
 
-- [9月1日正式实施的新律师法，对律师和当事人有什么影响？](https://www.zhihu.com/question/2076974267665859089)
+- [曾经最成功的游戏类型，为什么没人做了？](https://b23.tv/BV1Zpt36PE2n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4a9499deefd4dbe853aa -->
+<!-- content-fingerprint: 39bf404c593da251c975 -->
