@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 星际超级荒诞动画喜剧！《外星小偷里贝》第07话：吃苦星球【UP动画】
+# 爸爸肺癌晚期，老公答应卖房去美国治疗了，但他现在反悔了怎么办？
 
-> 来源：哔哩哔哩热门 · 排名：第 8 位 · 热度：165401 · 分类：小剧场 · 更新：2026-09-03T21:55:49+08:00
+> 来源：知乎热榜 · 排名：第 8 位 · 热度：238 万热度 · 分类：问答 · 更新：2026-09-04T01:39:44+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“星际超级荒诞动画喜剧！《外星小偷里贝》第07话：吃苦星球【UP动画】”位列第 8 位，公开热度指标为 165401，榜单分类为“小剧场”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“爸爸肺癌晚期，老公答应卖房去美国治疗了，但他现在反悔了怎么办？”位列第 8 位，公开热度指标为 238 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：两个生活在灰色漂流城“烂柯”的底层星际小偷，老油条西木，带着他的新人搭档——天赋极高却理想主义过头的小偷里贝，在一次次偷取离谱奇物的行动中，被卷入混乱、骗局与社会结构之中。他们身边聚集着前联盟捕手索拉、赏金猎人兄妹、杂货铺老板玛特、玩世不恭的富家女盗贼诺瓦、黑市怪人、等一群古怪搞笑的角色。在“烂柯”与其他人搞笑的日常故事中，他们不断撞上关于社会与人性的荒诞现实，也让这对搭档开始成长和思考...... 视频使用AI制作完成 制作平台：tapnow 制作团队：梦游牛油果工作室 特别鸣谢片尾曲来自好朋友的乐队
+来源公开摘要显示：1年前我爸爸发现了肺癌晚期，我非常难受，老公问我打算怎么办，我说积极配合治疗吧，无论花多少钱，只要能让我爸多活一天就不能放弃，老公同意了。三个月前我家的几十万积蓄也已经全部花完了，我是公司前台工资4000，老公是一家企业的一个部门部长工资12000，现在考工资已经没办法供应上我爸的治疗了，而且我爸的病情还是在不断恶化，于是我俩上商量就把房卖了，带我爸去美国治疗，他犹豫了一天后说不想看见我难受自责也同意了，两个星期前卖完房子还完贷款后，还剩下两百万出头，可就在一切就绪想去美国时，老公突然反悔了，因为他妈妈也检查出了乳腺癌早期，也要很多钱治疗。 他现在不同意
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `小剧场`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [山东一产妇剖宫产术中身亡](yi-jian-shuang-diao.md)
-- [酒店集团正集体盯上大学生](shou-zhu-dai-tu.md)
-- [武大通报女教授被举报事件](wang-mei-zhi-ke.md)
-- [中方：中委合作不容第三方置喙](wen-ji-qi-wu.md)
+- [韩语版《朋友的酒》【韩国大叔Trot版】（空城计の小曲）](yi-jian-shuang-diao.md)
+- [流感疫苗市场变天了](shou-zhu-dai-tu.md)
+- [普通人没必要追求电子产品顶配](wang-mei-zhi-ke.md)
+- [解放军“战巡黄岩岛”透露哪些信号](wen-ji-qi-wu.md)
 
 ## 站内推荐
 
-- [男子充值 1000 元账户误到账 26419933 亿，疯狂消费后拒不退还，该男子需要承担法律责任吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [建水紫陶](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [“用最温柔的方式，体面的告别了这个世界”｜听歌/小曲](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [黄 毛 抢 钱 记](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [这也能装？给车内塞一套工作站！小米澎程N90 Max用车体验！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [张继科乒乓球班录取率低于 5%，比 985 还难进，还实行集训末位淘汰45%的机制，怎样看待这种方式？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [上海多家银行明确，1991 年以前出生的人不能新办理 40 年期个人房贷，如何看待这一标准？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [你觉得中国女篮李月汝「护照遗失」的理由成立吗，因公护照和个人护照补办的流程差在哪里，真的完全来不及吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [如何看待李飞飞团队发布的多模态世界模型 Atlas？有哪些值得关注的亮点？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [美国「林肯」号航母锈迹斑斑、内部环境差，这反映出美军哪些深层问题？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [TF家族 新音](http://www.daogukj.com/fudrdubx/)
-- [中方：中委合作不容第三方置喙](http://www.daogukj.com/jnybznkv/)
-- [极度冰凌·阿克希亚角色PV——坚毅的温柔](http://www.daogukj.com/4844384)
+- [鸡蛋快跟猪肉一个价了](http://www.daogukj.com/fudrdubx/)
+- [解放军“战巡黄岩岛”透露哪些信号](http://www.daogukj.com/jnybznkv/)
+- [从小沉迷游戏的父亲不给10岁女儿买NS2，被一句「你当年还不是打游戏」怼到沉默，你怎么看？](http://www.daogukj.com/4844384)
 - [网络热传生物鉴定 第63期](http://www.daogukj.com/sgrsjaxr/)
 - [【IGN独家】《鸣潮》共鸣者「心」、「锁暝」演示](http://www.play.hengshemaoyi.cn/xiju/2709685.htm)
-- [山东一产妇剖宫产身亡](http://www.daogukj.com/2157977)
-- [重庆机场集团反腐风暴8名高管被抓](http://www.play.hengshemaoyi.cn/kongbu/7420321.htm)
-- [不同年代气血很足的美！这是一条气血很足的视频哦](http://www.movie.hkepx.cn/xiju/8620011.htm)
-- [酒店集团正集体盯上大学生](http://www.play.hengshemaoyi.cn/kongbu/8118071.htm)
-- [存5年3年2年利息不如存1年](http://www.daogukj.com/ybylltrh/)
-- [比亚迪海狮 08 上市 22.99 万元起，这个价格会给大型 SUV 市场带来多大冲击？](http://www.play.hengshemaoyi.cn/xiju/7207629.htm)
-- [人贩子梅姨被提起「公诉」，案件进入审判阶段，法律能给出什么样的答案？](http://www.play.hengshemaoyi.cn/xiju/8320007.htm)
-- [美国癌症治疗](http://www.play.hengshemaoyi.cn/kongbu/8567673.htm)
-- [媒体：中国房子迎来真正的分水岭](http://www.movie.hkepx.cn/xiju/6034585.htm)
-- [9 月 3 日淘宝App突发大面积服务器故障，大量用户无法查看订单，可能是什么原因导致的？你遇到了吗？](http://www.movie.hkepx.cn/xiju/6364290.htm)
-- [尚之桃提出分手](http://www.movie.hkepx.cn/xiju/0846089.htm)
-- [周冬雨上花少 马思纯比本人还紧张](http://www.daogukj.com/1651835)
-- [巴西马术比赛马匹失控 女孩化解危机](http://www.daogukj.com/amghneqm/)
-- [《富爸爸穷爸爸》作者自曝负债 12 亿美元，前妻称系与其合作伙伴共同持有的债务，为啥他会深陷巨额债务？](http://www.movie.hkepx.cn/xiju/4371729.htm)
-- [倪虹洁喻恩泰在《燃烧吧爸爸》演夫妻](http://www.daogukj.com/gzlhbupb/)
-- [黄渤家门口骑自行车摔骨折](http://www.daogukj.com/dhxrjyno/)
-- [爷爷生前偷偷给我买的保险叫美满一生](http://www.play.hengshemaoyi.cn/kongbu/0642618.htm)
-- [四川地震](http://www.play.hengshemaoyi.cn/xiju/9001524.htm)
-- [黄 毛 抢 钱 记](http://www.movie.hkepx.cn/xiju/9522798.htm)
-- [“我从小抽核弹长大的”，抽一个可变形核弹发射井模型](http://www.play.hengshemaoyi.cn/xiju/7270146.htm)
-- [为什么会有“珠心算部队”？](http://www.movie.hkepx.cn/xiju/6713581.htm)
-- [微信 液态玻璃](http://www.movie.hkepx.cn/xiju/1107922.htm)
-- [人人影视APP上线](http://www.play.hengshemaoyi.cn/kongbu/1709616.htm)
-- [微信 单删提示](http://www.daogukj.com/1746327)
-- [“温州瑞安高速路口强降雨致死”不实](http://www.movie.hkepx.cn/xiju/9443648.htm)
-- [四川绵阳北川县发生4.8级地震](http://www.movie.hkepx.cn/movie/6311095.htm)
-- [李登科说孙千不会升咖](http://www.play.hengshemaoyi.cn/xiju/1238840.htm)
-- [为什么《欢迎来龙餐馆》在上映之前专业机构预测票房能过 50 亿，但现在连 20 亿都困难？](http://www.daogukj.com/5649815)
-- [“新疆布尔津加气站重度漏气”不实](http://www.movie.hkepx.cn/movie/6082292.htm)
-- [上海多家银行：办40年房贷需35岁以下](http://www.daogukj.com/7096702)
-- [建水紫陶](http://www.movie.hkepx.cn/xiju/6645727.htm)
-- [山东一产妇剖宫产术中身亡](http://www.play.hengshemaoyi.cn/xiju/6625835.htm)
-- [乌外长：俄乌和平进程有望迎来新进展](http://www.daogukj.com/qkznereg/)
-- [谁能想到钓个鱼能这么好笑？渔力全开！](http://www.movie.hkepx.cn/xiju/8695048.htm)
-- [为什么大家造车都去抄保时捷，没有抄兰博基尼的？](http://www.play.hengshemaoyi.cn/xiju/6994271.htm)
-- [欢迎来到霍格沃茨的新学年](http://www.play.hengshemaoyi.cn/kongbu/9150882.htm)
-- [A股 量化机构](http://www.movie.hkepx.cn/xiju/4430995.htm)
-- [韩语版《朋友的酒》【韩国大叔Trot版】（空城计の小曲）](http://www.play.hengshemaoyi.cn/xiju/0984127.htm)
-- [原来洗洁精是这么用来洗碗的](http://www.play.hengshemaoyi.cn/kongbu/0936148.htm)
-- [14岁女孩开学首日遇车祸左腿截肢](http://www.movie.hkepx.cn/xiju/8400822.htm)
-- [四川绵阳地震](http://www.daogukj.com/ogibyscz/)
-- [伊朗导弹致大量美军死伤](http://www.daogukj.com/1532292)
-- [朴彩英拒绝100亿韩元中国奶茶代言](http://www.movie.hkepx.cn/xiju/9678115.htm)
-- [脱口秀适合当微信签名的句子](http://www.movie.hkepx.cn/movie/0181516.htm)
-- [黄渤骨折](http://www.movie.hkepx.cn/movie/7964895.htm)
+- [女子花11万请人收纳屋子称很值得](http://www.daogukj.com/2157977)
+- [关晓彤生逢其时首播收视率](http://www.play.hengshemaoyi.cn/kongbu/7420321.htm)
+- [家长自报干部身份，希望老师多关照孩子，保定纪检组介入调查，反映了哪些问题？家长会受到处罚吗？](http://www.movie.hkepx.cn/xiju/8620011.htm)
+- [流感疫苗市场变天了](http://www.play.hengshemaoyi.cn/kongbu/8118071.htm)
+- [Pov：那个喜欢雄竞 又要装低调的男生](http://www.daogukj.com/ybylltrh/)
+- [全球冰川50年累计损失超9万亿吨冰体](http://www.play.hengshemaoyi.cn/xiju/7207629.htm)
+- [郑丽文柯文哲展现蓝白力挺高虹安决心](http://www.play.hengshemaoyi.cn/xiju/8320007.htm)
+- [“没有Token的CS学生 应立即退学”](http://www.play.hengshemaoyi.cn/kongbu/8567673.htm)
+- [AG老五人组倒计时](http://www.movie.hkepx.cn/xiju/6034585.htm)
+- [人人影视APP上线](http://www.movie.hkepx.cn/xiju/6364290.htm)
+- [“粥饼伦”门店全部关闭](http://www.movie.hkepx.cn/xiju/0846089.htm)
+- [难绷：尼泊尔就泥石流灾害对中美印提出赔偿要求](http://www.daogukj.com/1651835)
+- [一年级 陈学冬综艺](http://www.daogukj.com/amghneqm/)
+- [男子花250元被5位大妈按摩按到发红](http://www.movie.hkepx.cn/xiju/4371729.htm)
+- [【加勒比海盗1-3】神级配乐如何成就海盗冒险史诗？](http://www.daogukj.com/gzlhbupb/)
+- [这一期视频我不允许任何人漏看！！你们自己要的男生超详细全流程护肤教程！！！！](http://www.daogukj.com/dhxrjyno/)
+- [《后西游记》每集成本仅2-3万](http://www.play.hengshemaoyi.cn/kongbu/0642618.htm)
+- [微信 液态玻璃](http://www.play.hengshemaoyi.cn/xiju/9001524.htm)
+- [如何看待李飞飞团队发布的多模态世界模型 Atlas？有哪些值得关注的亮点？](http://www.movie.hkepx.cn/xiju/9522798.htm)
+- [从某一刻开始，游戏的性质已经变了【B站笑点大赛】](http://www.play.hengshemaoyi.cn/xiju/7270146.htm)
+- [尼泊尔泥石流遇难人数升至1259人](http://www.movie.hkepx.cn/xiju/6713581.htm)
+- [人人影视变正版了](http://www.movie.hkepx.cn/xiju/1107922.htm)
+- [世界进入极端天气“危险区”](http://www.play.hengshemaoyi.cn/kongbu/1709616.htm)
+- [长生 退役](http://www.daogukj.com/1746327)
+- [山东一产妇剖宫产身亡](http://www.movie.hkepx.cn/xiju/9443648.htm)
+- [美国癌症治疗](http://www.movie.hkepx.cn/movie/6311095.htm)
+- [“新疆布尔津加气站重度漏气”不实](http://www.play.hengshemaoyi.cn/xiju/1238840.htm)
+- [9月3日晚ChatGPT、Grok、Claude、Cursor 集体突发故障，怎么回事？带来哪些影响？](http://www.daogukj.com/5649815)
+- [这首歌改变了我的人生，并带我走进了中国这个美丽的世界。](http://www.movie.hkepx.cn/movie/6082292.htm)
+- [小米18Fold真机全球首秀](http://www.daogukj.com/7096702)
+- [上海多家银行明确，1991 年以前出生的人不能新办理 40 年期个人房贷，如何看待这一标准？](http://www.movie.hkepx.cn/xiju/6645727.htm)
+- [韩语版《朋友的酒》【韩国大叔Trot版】（空城计の小曲）](http://www.play.hengshemaoyi.cn/xiju/6625835.htm)
+- [王者荣耀985高校认证闲鱼卖上千元](http://www.daogukj.com/qkznereg/)
+- [香港中文大学（深圳）校长呼吁新生「不要看不起高考成绩不如自己的同学」，如何看待本科生对高考分数的执着？](http://www.movie.hkepx.cn/xiju/8695048.htm)
+- [乌兰察布市委书记周凯被查](http://www.play.hengshemaoyi.cn/xiju/6994271.htm)
+- [香港演员刘兆铭去世，曾在《倩女幽魂》中饰演树妖姥姥，他在影坛留下了哪些经典作品？你对他有哪些记忆？](http://www.play.hengshemaoyi.cn/kongbu/9150882.htm)
+- [三胞胎迎接退役军爸 被一把抱起](http://www.movie.hkepx.cn/xiju/4430995.htm)
+- [如何评价剧版《哈利波特》新预告？](http://www.play.hengshemaoyi.cn/xiju/0984127.htm)
+- [宁静内涵花少2有人干涉剪辑](http://www.play.hengshemaoyi.cn/kongbu/0936148.htm)
+- [“修仙也爱拍照”](http://www.movie.hkepx.cn/xiju/8400822.htm)
+- [广州取消校服统一订购](http://www.daogukj.com/ogibyscz/)
+- [专家谈胚胎案重婚罪未成立](http://www.daogukj.com/1532292)
+- [酒店集团正集体盯上大学生](http://www.movie.hkepx.cn/xiju/9678115.htm)
+- [黄渤家门口骑自行车摔骨折](http://www.movie.hkepx.cn/movie/0181516.htm)
+- [教官在新生面前像个新兵蛋子](http://www.movie.hkepx.cn/movie/7964895.htm)
 
 </details>
 
 ## 原始来源
 
-- [星际超级荒诞动画喜剧！《外星小偷里贝》第07话：吃苦星球【UP动画】](https://b23.tv/BV11ytX6cE1t)
+- [爸爸肺癌晚期，老公答应卖房去美国治疗了，但他现在反悔了怎么办？](https://www.zhihu.com/question/542192203)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4a7af24eebd0a1e0966f -->
+<!-- content-fingerprint: d50fd52634837b04aae2 -->
