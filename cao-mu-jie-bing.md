@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 印5名特种兵从直升机跳入河中2人失踪
+# 男子盘手串包浆后被妻子用刷子搓净，玩家集体破防，到底什么是包浆？女子洗掉的到底是包浆还是油泥？
 
-> 来源：今日头条热榜 · 排名：第 7 位 · 热度：12982351 · 更新：2026-09-03T06:27:37+08:00
+> 来源：知乎热榜 · 排名：第 7 位 · 热度：134 万热度 · 分类：问答 · 更新：2026-09-03T08:32:49+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“印5名特种兵从直升机跳入河中2人失踪”位列第 7 位，公开热度指标为 12982351。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“男子盘手串包浆后被妻子用刷子搓净，玩家集体破防，到底什么是包浆？女子洗掉的到底是包浆还是油泥？”位列第 7 位，公开热度指标为 134 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：8月31日（发布），江苏。老公每天盘串盘得包浆锃亮，女子嫌脏实在看不下去了，直接上手帮忙给手串做“深度清洁”。倒上洗衣粉、抄起刷子就是一顿猛搓！结果没搓几下，水就变成了浓褐色，油花和角质全浮上来了。当事人：还得是洗衣粉，洗出来的水都是褐色的。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [怎么看美国《外交政策》（Foreign Policy）称「中国的成功正迫使美国重新思考AI战略」？](feng-sheng-he-li.md)
-- [又一害惨中国年轻人的网红翻车：新型智商税，早该被曝光了](ru-huo-ru-tu.md)
-- [李月汝因遗失护照落选女篮大名单](yi-gu-zuo-qi.md)
-- [花少2毛阿敏放现在算虐待老人](yi-zi-qian-jin.md)
+- [星期日：纯路人，我觉得封面很可爱](feng-sheng-he-li.md)
+- [李月汝因遗失护照落选女篮大名单](ru-huo-ru-tu.md)
+- [沙德尔第3次登陆](yi-gu-zuo-qi.md)
+- [国台办回应郑丽文向西藏灾区捐款](yi-zi-qian-jin.md)
 
 ## 站内推荐
 
-- [“常来祖宗海更能体会飞行意义”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [吉隆泥石流致21人遇难541人失联](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [俄罗斯人拿人民币在黑河夜市疯狂扫货](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [Gemini 3.8 Flash 发布，有什么值得关注的？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [大学生一个月该给多少生活费？答案差了近3倍](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [乌克兰两部门在基辅交火](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [对“岁月是把杀猪刀”有什么好的诠释？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [欢迎来到霍格沃茨的新学年](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [“口袋空调”卖爆了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [花少8 真正意义上的纯陌生人](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [李月汝因遗失护照落选女篮大名单](http://www.play.hengshemaoyi.cn/kongbu/8543260.htm)
-- [男子盘手串包浆后被妻子用刷子搓净，玩家集体破防，到底什么是包浆？女子洗掉的到底是包浆还是油泥？](http://www.movie.hkepx.cn/movie/4724518.htm)
-- [吉隆泥石流遇难21人失联541人](http://www.play.hengshemaoyi.cn/kongbu/0028042.htm)
-- [井柏然回应双眼皮：年纪大了皮松了](http://www.play.hengshemaoyi.cn/xiju/3193472.htm)
-- [乌克兰两部门在基辅交火](http://www.movie.hkepx.cn/xiju/5695874.htm)
-- [Gemini 3.8 Flash 发布，有什么值得关注的？](http://www.play.hengshemaoyi.cn/kongbu/9716007.htm)
-- [吉隆泥石流灾害发现遗物847件](http://www.play.hengshemaoyi.cn/kongbu/6976710.htm)
-- [“温州瑞安高速强降雨致人员死亡”不实](http://www.daogukj.com/6389351)
-- [“用最温柔的方式，体面的告别了这个世界”｜听歌/小曲](http://www.movie.hkepx.cn/xiju/4891708.htm)
-- [微信新功能专治各种看不见](http://www.movie.hkepx.cn/xiju/9183020.htm)
-- [手机涨价以为会疯抢结果询价都没人](http://www.daogukj.com/mgeudand/)
-- [港媒曝香港武打巨星陈观泰去世，享年80岁，曾出演《马永贞》《血滴子》等，你对他塑造的角色有哪些记忆？](http://www.daogukj.com/thgbmsar/)
-- [兵线全被卡住了，但这样我防御塔就安全了](http://www.movie.hkepx.cn/movie/7141685.htm)
-- [没有性生活也有必要打HPV疫苗](http://www.movie.hkepx.cn/movie/8285250.htm)
-- [黄之锋在香港高等法院就「串谋勾结外国或者境外势力危害国家安全」案当庭认罪，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/8845063.htm)
-- [辽宁中考 历史不计入总分](http://www.play.hengshemaoyi.cn/xiju/1186264.htm)
-- [好讨厌需要靠争抢来的东西](http://www.movie.hkepx.cn/xiju/0249486.htm)
-- [“常来祖宗海更能体会飞行意义”](http://www.daogukj.com/7987932)
-- [为什么爱流向不缺爱的人](http://www.play.hengshemaoyi.cn/xiju/9727864.htm)
+- [沙德尔第3次登陆](http://www.play.hengshemaoyi.cn/kongbu/8543260.htm)
+- [青甘大环线司机撞死 53 只羊赔超8万元，死伤羊仍归牧民，为啥赔了钱不能带走羊？羊在马路上真没问题吗？](http://www.movie.hkepx.cn/movie/4724518.htm)
+- [太阳熄灭一分钟和氧气消失一分钟，哪个对地球影响更大？](http://www.play.hengshemaoyi.cn/kongbu/0028042.htm)
+- [浙江暴雨致鞋厂被冲 满大街都是鞋](http://www.play.hengshemaoyi.cn/xiju/3193472.htm)
+- [家长班级群自报干部身份让关照孩子](http://www.movie.hkepx.cn/xiju/5695874.htm)
+- [“口袋空调”卖爆了](http://www.play.hengshemaoyi.cn/kongbu/9716007.htm)
+- [孙千跟妈妈共用一张脸](http://www.play.hengshemaoyi.cn/kongbu/6976710.htm)
+- [这首歌改变了我的人生，并带我走进了中国这个美丽的世界。](http://www.daogukj.com/6389351)
+- [极限挑战——时光大桥](http://www.movie.hkepx.cn/xiju/4891708.htm)
+- [难怪陈意涵花少2能一直忍着不闹脾气](http://www.movie.hkepx.cn/xiju/9183020.htm)
+- [【花小烙】手上的汗疱疹是怎么冒出来的？](http://www.daogukj.com/mgeudand/)
+- [曹骏 断层第一](http://www.daogukj.com/thgbmsar/)
+- [微信新功能专治各种看不见](http://www.movie.hkepx.cn/movie/7141685.htm)
+- [小学老师感慨「梓萱」「子涵」已成过去式， 现在取名有哪些新趋势？为啥会发生这种变化？](http://www.movie.hkepx.cn/movie/8285250.htm)
+- [印5名特种兵从直升机跳入河中2人失踪](http://www.play.hengshemaoyi.cn/kongbu/8845063.htm)
+- [如何评价最白的乌鸦新书《请勿高考时渡劫》达成10万首订，这本书有意思不？](http://www.play.hengshemaoyi.cn/xiju/1186264.htm)
+- [全球股市大反转](http://www.movie.hkepx.cn/xiju/0249486.htm)
+- [乌克兰两部门在基辅交火](http://www.daogukj.com/7987932)
+- [专家解读初一新生5000多人96个班](http://www.play.hengshemaoyi.cn/xiju/9727864.htm)
 - [西藏泥石流已致 21 死 541 失联，发现遗物 847 件，有哪些信息值得关注？](http://www.daogukj.com/1491749)
-- [年轻人迷上“假装点外卖”](http://www.play.hengshemaoyi.cn/xiju/5312952.htm)
-- [一个外挂100块，从零挑战四款FPS，会遇到多少挂？](http://www.movie.hkepx.cn/movie/1704748.htm)
-- [【何同学】库克时代](http://www.movie.hkepx.cn/movie/6434749.htm)
-- [“口袋空调”卖爆了](http://www.movie.hkepx.cn/xiju/3903629.htm)
-- [多地小学老师转教初中](http://www.play.hengshemaoyi.cn/kongbu/1169569.htm)
-- [怎么看美国《外交政策》（Foreign Policy）称「中国的成功正迫使美国重新思考AI战略」？](http://www.movie.hkepx.cn/movie/4527568.htm)
-- [苹果、小米、华为发布时间撞档，为啥大家都选 9 月发布新品？扎堆发布不会影响销量吗？](http://www.play.hengshemaoyi.cn/xiju/6189163.htm)
-- [曹骏 断层第一](http://www.daogukj.com/0521779)
-- [每 天 一 遍 🔥 烦 恼 拜 拜！](http://www.daogukj.com/5716979)
-- [08年美国讽刺金曲《朋友的酒》（英语填词cover）“空城计の小曲”](http://www.movie.hkepx.cn/movie/6813612.htm)
-- [为继承母亲手机号 姐弟三人打官司](http://www.play.hengshemaoyi.cn/kongbu/0013525.htm)
-- [每个中国人都该记住0903](http://www.daogukj.com/sijbwiiz/)
+- [95后特警抡锤猛砸护栏泄洪](http://www.play.hengshemaoyi.cn/xiju/5312952.htm)
+- [不同年代气血很足的美！这是一条气血很足的视频哦](http://www.movie.hkepx.cn/movie/1704748.htm)
+- [美伊再次开打，特朗普威胁伊朗若报复将遭受「更猛烈」打击，此轮袭击将如何影响中东局势？](http://www.movie.hkepx.cn/movie/6434749.htm)
+- [多地小学老师转教初中](http://www.movie.hkepx.cn/xiju/3903629.htm)
+- [今天 致敬伟大胜利](http://www.play.hengshemaoyi.cn/kongbu/1169569.htm)
+- [星期日：纯路人，我觉得封面很可爱](http://www.movie.hkepx.cn/movie/4527568.htm)
+- [大连通报扫黑除恶专项行动](http://www.play.hengshemaoyi.cn/xiju/6189163.htm)
+- [“沙德尔”在福建漳州第三次登陆](http://www.daogukj.com/0521779)
+- [“常来祖宗海更能体会飞行意义”](http://www.daogukj.com/5716979)
+- [超级暴雨来袭：沙德尔急转弯严重影响浙闽粤，台风科罗旺西调](http://www.movie.hkepx.cn/movie/6813612.htm)
+- [保定一中称对所有学生一视同仁](http://www.play.hengshemaoyi.cn/kongbu/0013525.htm)
+- [人教版语文教材新增这篇课文](http://www.daogukj.com/sijbwiiz/)
 - [开局之年看山西](http://www.movie.hkepx.cn/xiju/5793926.htm)
-- [小学老师感慨「梓萱」「子涵」已成过去式， 现在取名有哪些新趋势？为啥会发生这种变化？](http://www.movie.hkepx.cn/movie/5566595.htm)
-- [老人帮忙带娃半年瘦了40斤确诊焦虑症](http://www.movie.hkepx.cn/movie/7078471.htm)
-- [能不能莫名其妙给大学生一个实用的冷知识？](http://www.play.hengshemaoyi.cn/kongbu/3140322.htm)
-- [我们进入西藏吉隆救援核心区，中国安能24小时轮班抢通生命通道](http://www.play.hengshemaoyi.cn/kongbu/9870126.htm)
-- [张雪惊讶97岁李锦记掌门人喝冰可乐](http://www.movie.hkepx.cn/movie/3347353.htm)
-- [温州多家鞋厂被淹 村民上街捞鞋](http://www.play.hengshemaoyi.cn/xiju/4013867.htm)
-- [幼儿园上午开学下午停办](http://www.daogukj.com/neoiosto/)
+- [我们进入西藏吉隆救援核心区，中国安能24小时轮班抢通生命通道](http://www.movie.hkepx.cn/movie/5566595.htm)
+- [广西横州养蛇厂家：养蛇是为了救人](http://www.movie.hkepx.cn/movie/7078471.htm)
+- [老人帮带娃半年瘦了40斤确诊焦虑症](http://www.play.hengshemaoyi.cn/kongbu/3140322.htm)
+- [每 天 一 遍 🔥 烦 恼 拜 拜！](http://www.play.hengshemaoyi.cn/kongbu/9870126.htm)
+- [TOP登陆少年开演唱会，徐州12345被粉丝用作「对线」工具，近5万件诉求涌入，这种行为该受到处罚吗？](http://www.movie.hkepx.cn/movie/3347353.htm)
+- [黄之锋在香港高等法院就「串谋勾结外国或者境外势力危害国家安全」案当庭认罪，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/4013867.htm)
+- [「药茅」片仔癀半年报利润下滑 24.22%，其市值较巅峰已蒸发超 2100 亿，如何解读？](http://www.daogukj.com/neoiosto/)
 - [读懂这个“50.9%”的分量](http://www.daogukj.com/2254144)
-- [国台办回应郑丽文向西藏灾区捐款](http://www.play.hengshemaoyi.cn/xiju/2382409.htm)
-- [如何评价 22.99 万起售的比亚迪海狮 08？有哪些亮点值得关注？](http://www.daogukj.com/9886230)
-- [又一害惨中国年轻人的网红翻车：新型智商税，早该被曝光了](http://www.play.hengshemaoyi.cn/kongbu/5207966.htm)
-- [《明日方舟》干员「结城理」技能展示PV](http://www.movie.hkepx.cn/movie/7743518.htm)
-- [林心如现身九寨沟](http://www.daogukj.com/dzqtqzgj/)
-- [15 万的油车与 15 万的电车，相同用车情况下，8 年费用对比如何？](http://www.play.hengshemaoyi.cn/kongbu/2288019.htm)
-- [清醒地反省，无奈地重蹈覆辙](http://www.play.hengshemaoyi.cn/xiju/9678725.htm)
-- [深圳校服为何让全网感叹真香](http://www.play.hengshemaoyi.cn/kongbu/9902985.htm)
-- [“什么叫程心的威慑度是100%？”](http://www.play.hengshemaoyi.cn/kongbu/8033858.htm)
+- [李月汝护照遗失缺席世界杯](http://www.play.hengshemaoyi.cn/xiju/2382409.htm)
+- [黄 毛 抢 钱 记](http://www.daogukj.com/9886230)
+- [李月汝因遗失护照落选女篮大名单](http://www.play.hengshemaoyi.cn/kongbu/5207966.htm)
+- [吉隆泥石流灾害发现遗物847件](http://www.movie.hkepx.cn/movie/7743518.htm)
+- [古网终于有合理解释了！创造者是节肢动物？](http://www.daogukj.com/dzqtqzgj/)
+- [AI爆火后35岁变成香饽饽了](http://www.play.hengshemaoyi.cn/kongbu/2288019.htm)
+- [1分钟重温2025九三盛大阅兵](http://www.play.hengshemaoyi.cn/xiju/9678725.htm)
+- [“什么叫程心的威慑度是100%？”](http://www.play.hengshemaoyi.cn/kongbu/9902985.htm)
+- [宇树科技回应只有罚几乎没有奖](http://www.play.hengshemaoyi.cn/kongbu/8033858.htm)
 
 </details>
 
 ## 原始来源
 
-- [印5名特种兵从直升机跳入河中2人失踪](https://www.toutiao.com/trending/7680508955814379561/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%220%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227680508955814379561%22%2C%22hot_board_impr_id%22%3A%22202609030627351AC14AA4E87C182294C8%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [男子盘手串包浆后被妻子用刷子搓净，玩家集体破防，到底什么是包浆？女子洗掉的到底是包浆还是油泥？](https://www.zhihu.com/question/2078389946146976610)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 03775411b685e085c9a1 -->
+<!-- content-fingerprint: 74978b493291f45f0a00 -->
