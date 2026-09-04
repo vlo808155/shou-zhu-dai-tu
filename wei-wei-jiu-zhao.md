@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 苏州等地初中出现一个年级 90 多个班，为何会出现这种情况？超大规模办学会带来什么影响？
+# 央视晚会将「乡音无改鬓毛衰」读 shuāi 而非 cuī，为什么和早年学的不一样了？如何看待这一变化？
 
-> 来源：知乎热榜 · 排名：第 6 位 · 热度：159 万热度 · 分类：问答 · 更新：2026-09-04T12:58:41+08:00
+> 来源：知乎热榜 · 排名：第 6 位 · 热度：223 万热度 · 分类：问答 · 更新：2026-09-04T17:29:08+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“苏州等地初中出现一个年级 90 多个班，为何会出现这种情况？超大规模办学会带来什么影响？”位列第 6 位，公开热度指标为 159 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“央视晚会将「乡音无改鬓毛衰」读 shuāi 而非 cuī，为什么和早年学的不一样了？如何看待这一变化？”位列第 6 位，公开热度指标为 223 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，多地初中新生规模引发家长关注。 有沈阳市虹桥初级中学（以下简称“虹桥中学”）2026届新生家长在社交平台发帖称，初一年级共有62个班，报到当天校门口“人山人海”。苏州高新区实验初级中学（以下简称“高新实验中学”）也有家长反映，新初一有5000多名学生、96个班级。部分家长担心，学生数量过多可能带来卫生间紧张、上下学拥堵等问题。 沈阳市虹桥初级中学初一新生报到日。图/社交平台截图 8月31日，九派新闻分别向两地相关方面核实。虹桥中学工作人员表示，今年新初一确有62个班，全部安排在同一个校区，初二、初三则分别在其他校区。苏州高新区教育局工作人员则证实，
+来源公开摘要显示：今年中央广播电视总台七夕晚会上，唐诗《回乡偶书》中“乡音无改鬓毛衰”的“衰”被诵读为shuāi而非cuī，引发关注。 古诗文争议读音如何判定？汉字读音变化有哪些原因？对音韵美及语言学习有何影响？对此，记者采访了北京大学中国语言文学系教授孙玉文。 鬓毛“衰shuāi”念对了吗 记者：乡音无改鬓毛“衰”、远上寒山石径“斜”、一“骑”红尘妃子笑、“解”甲归田…这些古诗文里打引号的字，读音常被讨论。它们到底该怎么读？古诗文为什么会冒出不同读法？ 孙玉文：根据《普通话异读词审音表》和现行权威辞书，这4个字在诗中的规范读音分别是：衰shuāi、斜xié、骑qí、解j
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [网络热传生物鉴定 第63期](wan-bi-gui-zhao.md)
-- [AGI时代真到来了吗](fu-jing-qing-zui.md)
-- [韩警方认定遇害女生与嫌犯曾是恋人](mao-sui-zi-jian.md)
-- [郑钦文现场怒怼主裁双标](san-gu-mao-lu.md)
+- [《三角洲行动》全新【群星】赛季故事短片](wan-bi-gui-zhao.md)
+- [古天乐被追债1.28亿元？旗下公司回应](fu-jing-qing-zui.md)
+- [骨髓救母发现非亲生女子被医院威胁](mao-sui-zi-jian.md)
+- [评论员：A股震荡磨底或进入尾声](san-gu-mao-lu.md)
 
 ## 站内推荐
 
-- [梅姨真实年龄曝光，在 70 岁左右，不到 71 周岁，律师称可以适用无期徒刑和死刑，哪些信息值得关注？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [《马老师：这世上还是好人多呀》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [女子打119报警后 上传火警视频却跳转出开屏广告](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [桃花源记](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [这一期视频我不允许任何人漏看！！你们自己要的男生超详细全流程护肤教程！！！！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [菲律宾地方法院下令逮捕副总统莎拉](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [德克圣堂炸鸡中国首店开业，代排费炒至百元，如何看待如此热潮？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [如何看待金灿荣跨圈发问「为什么像樊振东、朱婷这样的优秀运动员，都不怎么代表国家队比赛了」？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [女留学生被杀，凶手作案动机初步披露，系被害人要公开二人关系，凶手担心失去教职，还有哪些细节值得关注？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [美国拉斯维加斯有点爽！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [《崩坏：星穹铁道》走近星穹——「砂金•戏浪：苏乐达给了你多少广告费？」](http://www.play.hengshemaoyi.cn/xiju/4420977.htm)
-- [「豆包手机」努比亚 NaviX Ultra 完成大模型备案与入网许可，计划9月开售，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/6290781.htm)
-- [韩警方认定遇害女生与嫌犯曾是恋人](http://www.play.hengshemaoyi.cn/xiju/1162679.htm)
-- [武大举报事件男方为安徽大学副校长](http://www.play.hengshemaoyi.cn/xiju/9289380.htm)
-- [男童长期吃剩饭中毒 家长以为气色差](http://www.play.hengshemaoyi.cn/xiju/6272185.htm)
-- [“中国游”带火这门“新生意”](http://www.daogukj.com/pjwrhddu/)
-- [研究发现每天吃够豆类高血压风险降低](http://www.movie.hkepx.cn/movie/5053706.htm)
-- [尼泊尔不向中国寻求气候正义赔偿](http://www.movie.hkepx.cn/xiju/7285942.htm)
-- [贵州秋假连着中秋国庆连休13天系谣言](http://www.movie.hkepx.cn/xiju/7103473.htm)
-- [德克圣堂炸鸡中国首店开业，代排费炒至百元，如何看待如此热潮？](http://www.daogukj.com/4576080)
-- [天 雷 滚 滚 纽 约 城【神奇组织53】](http://www.play.hengshemaoyi.cn/xiju/8196743.htm)
-- [黄磊正式确认不再参与《向往的生活》后续录制，称核心原因是创作陷入瓶颈，怎样看待他的选择？](http://www.daogukj.com/1630471)
-- [王楚钦因伤退出澳门冠军赛](http://www.movie.hkepx.cn/xiju/0613701.htm)
-- [同样一道炒菜，马路边小饭馆卖30元，大饭店卖100元，有什么区别？](http://www.daogukj.com/7876238)
-- [尼泊尔民众拍下山洪吞没建筑过程](http://www.daogukj.com/scqpktqq/)
-- [笑死~日本新发现一名铁血精中！！比98%的中国人都愿意爱中国！！](http://www.movie.hkepx.cn/movie/1554482.htm)
+- [我国博士后进站人数正式突破50万，如何看待这一发展趋势？](http://www.play.hengshemaoyi.cn/xiju/4420977.htm)
+- [直击解放军防空分队实弹对抗演练](http://www.play.hengshemaoyi.cn/kongbu/6290781.htm)
+- [骨髓救母发现非亲生女子被医院威胁](http://www.play.hengshemaoyi.cn/xiju/1162679.htm)
+- [小姑娘第一天上幼儿园视频火了](http://www.play.hengshemaoyi.cn/xiju/9289380.htm)
+- [尽力了，没带攻击键，放跑了对面牢玩家](http://www.play.hengshemaoyi.cn/xiju/6272185.htm)
+- [吉隆口岸临时供电线路已抢通](http://www.daogukj.com/pjwrhddu/)
+- [麻了开学第一天被学姐立规矩](http://www.movie.hkepx.cn/movie/5053706.htm)
+- [人贩子将出狱 孙海洋担心被报复](http://www.movie.hkepx.cn/xiju/7285942.htm)
+- [Lisa曝BLACKPINK时期曾隐藏恋爱](http://www.movie.hkepx.cn/xiju/7103473.htm)
+- [朱忠明任上海市代市长](http://www.daogukj.com/4576080)
+- [中国广电一体化电视适配器集采公告正式发布，将告别传统机顶盒，未来电视的观看方式将如何发展？你会购买吗？](http://www.play.hengshemaoyi.cn/xiju/8196743.htm)
+- [王华杰任上海市副市长](http://www.daogukj.com/1630471)
+- [女高音歌唱家龚爽因病离世 年仅37岁](http://www.movie.hkepx.cn/xiju/0613701.htm)
+- [李月汝护照弄丢到底是谁的责任](http://www.daogukj.com/7876238)
+- [福建莆田因强降雨已造成多人失联](http://www.daogukj.com/scqpktqq/)
+- [这只猫，性格好到让我无语](http://www.movie.hkepx.cn/movie/1554482.htm)
 - [OpenAI总裁宣布AGI到来](http://www.play.hengshemaoyi.cn/xiju/0772044.htm)
-- [致热爱捉宠的你——《伊莫》幕后制作纪录片](http://www.movie.hkepx.cn/movie/3835091.htm)
-- [全国唯一有两所211高校县级市迎新生](http://www.movie.hkepx.cn/movie/1956900.htm)
-- [郑钦文现场怒怼主裁双标](http://www.play.hengshemaoyi.cn/kongbu/9186735.htm)
-- [为什么共享单车、共享充电宝都变这么贵了？是不是显现出共享经济是悖论？](http://www.movie.hkepx.cn/movie/2541991.htm)
-- [男子借5千万还1亿多后还要还2千多万](http://www.movie.hkepx.cn/movie/5129374.htm)
-- [《三角洲行动》全新【群星】赛季故事短片](http://www.play.hengshemaoyi.cn/kongbu/1343141.htm)
-- [桃花源记](http://www.daogukj.com/ewserevh/)
-- [外交部：已向韩方提出严正交涉](http://www.movie.hkepx.cn/movie/2272129.htm)
-- [福建莆田因强降雨有人员失联](http://www.daogukj.com/9822826)
-- [郑钦文倒地怒吼庆祝](http://www.daogukj.com/dscmsufj/)
-- [《绝区零》克拉蕾角色展示 | 不想培训，但攻略已写好](http://www.play.hengshemaoyi.cn/kongbu/5951111.htm)
-- [付磊曾梦琪 柯南灰原哀](http://www.daogukj.com/tnivesrf/)
-- [周雨彤的天什么时候能亮](http://www.play.hengshemaoyi.cn/xiju/4490303.htm)
-- [最近内存、存储甚至显卡涨价，一个个都说自己要当等等党，难不成你要等到2040年么？](http://www.daogukj.com/1235102)
-- [760元一粒的片仔癀 卖不动了](http://www.daogukj.com/rpvaskok/)
-- [AGI时代真到来了吗](http://www.daogukj.com/3380276)
-- [中国广电一体化电视适配器集采公告正式发布，将告别传统机顶盒，未来电视的观看方式将如何发展？你会购买吗？](http://www.daogukj.com/delpozze/)
-- [用羊毛做一只抽象橘猫](http://www.movie.hkepx.cn/movie/3925230.htm)
-- [葫芦娃爷爷紧闭20多年的房门被打开](http://www.play.hengshemaoyi.cn/kongbu/7751069.htm)
-- [福建莆田洪水倒灌地下车库](http://www.play.hengshemaoyi.cn/kongbu/6834788.htm)
-- [这一期视频我不允许任何人漏看！！你们自己要的男生超详细全流程护肤教程！！！！](http://www.movie.hkepx.cn/xiju/6554047.htm)
-- [许家印律师欲提120万港元被拒](http://www.daogukj.com/7914276)
-- [《辐射》与《地铁》，哪个世界更绝望？如果让你二选一，你选哪个？](http://www.movie.hkepx.cn/movie/9563353.htm)
-- [男子欠债想轻生学胖东来还清105万](http://www.movie.hkepx.cn/movie/6888942.htm)
-- [《花少2》诞生的 “花学”](http://www.play.hengshemaoyi.cn/xiju/7362106.htm)
-- [网络热传生物鉴定 第63期](http://www.play.hengshemaoyi.cn/xiju/5372734.htm)
-- [在吉隆 这些坚定的身影令人动容](http://www.play.hengshemaoyi.cn/kongbu/8641789.htm)
-- [中国女篮今晚首战美国队](http://www.play.hengshemaoyi.cn/xiju/8026453.htm)
-- [雨中折返扶起88岁老人的男子发声](http://www.daogukj.com/lpbahrjj/)
-- [吉隆泥石流灾害核心区恢复供电](http://www.play.hengshemaoyi.cn/kongbu/0335371.htm)
-- [毛阿敏对许晴称呼的变化](http://www.daogukj.com/iomkliqb/)
-- [女高音歌唱家龚爽因病离世 年仅37岁](http://www.daogukj.com/9403181)
-- [小猫喝水陶醉得像在喝玉液琼浆](http://www.movie.hkepx.cn/xiju/8965411.htm)
+- [人人影视回归变正版，会员定价 25 元/月，用户们还会为曾经的情怀买单吗？你看好其市场前景吗？](http://www.movie.hkepx.cn/movie/3835091.htm)
+- [新音](http://www.movie.hkepx.cn/movie/1956900.htm)
+- [评论员：A股震荡磨底或进入尾声](http://www.play.hengshemaoyi.cn/kongbu/9186735.htm)
+- [公司强制员工转发朋友圈、互相点赞，违者扣绩效罚款，有销售上班28天倒欠3000元，这些做法合法吗？](http://www.movie.hkepx.cn/movie/2541991.htm)
+- [井柏然直播澄清](http://www.movie.hkepx.cn/movie/5129374.htm)
+- [如何看待今年的超级厄尔尼诺现象？](http://www.play.hengshemaoyi.cn/kongbu/1343141.htm)
+- [女留学生被杀，凶手作案动机初步披露，系被害人要公开二人关系，凶手担心失去教职，还有哪些细节值得关注？](http://www.daogukj.com/ewserevh/)
+- [尼泊尔泥石流已致1287人遇难](http://www.movie.hkepx.cn/movie/2272129.htm)
+- [《崩坏：星穹铁道》走近星穹——「砂金•戏浪：苏乐达给了你多少广告费？」](http://www.daogukj.com/9822826)
+- [用羊毛做一只抽象橘猫](http://www.daogukj.com/dscmsufj/)
+- [如何评价GPT-6打破孪生素数猜想最新纪录？](http://www.play.hengshemaoyi.cn/kongbu/5951111.htm)
+- [武大女教授被举报 不能只查曾某某](http://www.daogukj.com/tnivesrf/)
+- [教育部：对师德失范行为“零容忍”](http://www.play.hengshemaoyi.cn/xiju/4490303.htm)
+- [佟丽娅与陈思诚合体带娃吃饭](http://www.daogukj.com/1235102)
+- [【月行水上】SR-1至SR-8 摆完挂机 简单好抄](http://www.daogukj.com/rpvaskok/)
+- [古天乐被追债1.28亿元？旗下公司回应](http://www.daogukj.com/3380276)
+- [深耕特色业态 激活文旅消费新动能](http://www.daogukj.com/delpozze/)
+- [苏州等地初中出现一个年级 90 多个班，为何会出现这种情况？超大规模办学会带来什么影响？](http://www.movie.hkepx.cn/movie/3925230.htm)
+- [乡音无改鬓毛shuāi远上寒山石径xié](http://www.play.hengshemaoyi.cn/kongbu/7751069.htm)
+- [我在日本，找到了被李白杀死的遣唐使](http://www.play.hengshemaoyi.cn/kongbu/6834788.htm)
+- [美国拉斯维加斯有点爽！](http://www.movie.hkepx.cn/xiju/6554047.htm)
+- [龚爽去世](http://www.daogukj.com/7914276)
+- [如何看待王楚钦因伤退出 2026WTT 澳门冠军赛？会对他出战亚运会造成影响吗？](http://www.movie.hkepx.cn/movie/9563353.htm)
+- [Pro Max大乱斗](http://www.movie.hkepx.cn/movie/6888942.htm)
+- [男子被医院误诊胃癌切全胃 获赔22万](http://www.play.hengshemaoyi.cn/xiju/7362106.htm)
+- [《三角洲行动》全新【群星】赛季故事短片](http://www.play.hengshemaoyi.cn/xiju/5372734.htm)
+- [《绝区零》克拉蕾角色展示 | 不想培训，但攻略已写好](http://www.play.hengshemaoyi.cn/kongbu/8641789.htm)
+- [欠百万绝望小伙学胖东来理念翻盘买车](http://www.play.hengshemaoyi.cn/xiju/8026453.htm)
+- [不敢相信这是合租房](http://www.daogukj.com/lpbahrjj/)
+- [“中国游”带火这门“新生意”](http://www.play.hengshemaoyi.cn/kongbu/0335371.htm)
+- [有人想靠复盘花少6洗白](http://www.daogukj.com/iomkliqb/)
+- [哪里来的麦片王，敢和我赛一下吗?](http://www.daogukj.com/9403181)
+- [天崩开局，读博两年，我的论文中了顶会](http://www.movie.hkepx.cn/xiju/8965411.htm)
 
 </details>
 
 ## 原始来源
 
-- [苏州等地初中出现一个年级 90 多个班，为何会出现这种情况？超大规模办学会带来什么影响？](https://www.zhihu.com/question/2078137358277522076)
+- [央视晚会将「乡音无改鬓毛衰」读 shuāi 而非 cuī，为什么和早年学的不一样了？如何看待这一变化？](https://www.zhihu.com/question/2079167935671530420)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 770c5444d700a4e4465a -->
+<!-- content-fingerprint: 7cba695226c08b939f9d -->
