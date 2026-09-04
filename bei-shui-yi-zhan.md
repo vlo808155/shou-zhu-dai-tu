@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 小姑娘第一天上幼儿园视频火了
+# 西藏泥石流已致31人遇难531人失联
 
-> 来源：微博热搜 · 排名：第 6 位 · 热度：567605 · 分类：幽默 · 更新：2026-09-04T17:29:08+08:00
+> 来源：百度热搜 · 排名：第 5 位 · 热度：7332881 · 更新：2026-09-04T21:42:46+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“小姑娘第一天上幼儿园视频火了”位列第 6 位，公开热度指标为 567605，榜单分类为“幽默”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“西藏泥石流已致31人遇难531人失联”位列第 5 位，公开热度指标为 7332881。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+百度热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `幽默`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [尼泊尔泥石流已致1287人遇难](zhi-shang-tan-bing.md)
-- [央视晚会将「乡音无改鬓毛衰」读 shuāi 而非 cuī，为什么和早年学的不一样了？如何看待这一变化？](wei-wei-jiu-zhao.md)
-- [《三角洲行动》全新【群星】赛季故事短片](wan-bi-gui-zhao.md)
-- [古天乐被追债1.28亿元？旗下公司回应](fu-jing-qing-zui.md)
+- [邓为花少8情商](zhi-shang-tan-bing.md)
+- [人人影视回归变正版，会员定价 25 元/月，用户们还会为曾经的情怀买单吗？你看好其市场前景吗？](wei-wei-jiu-zhao.md)
+- [【月行水上】SR-1至SR-8 摆完挂机 简单好抄](wan-bi-gui-zhao.md)
+- [长安启源Q06预售开启](fu-jing-qing-zui.md)
 
 ## 站内推荐
 
-- [修地铁挖出施工人员？住建局回应](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [麻了开学第一天被学姐立规矩](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [Lisa曝BLACKPINK时期曾隐藏恋爱](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [新音](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [欠百万绝望小伙学胖东来理念翻盘买车](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [烧水喝和买桶装水喝 哪个更健康](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [吉隆泥石流遇难31人失联531人](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [特朗普 AI](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [纪姿含北电落榜](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [沈佳润骨折](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [龚正辞去上海市市长职务](http://www.play.hengshemaoyi.cn/kongbu/0102137.htm)
-- [「魔岩三杰」之一、摇滚歌手何勇去世，享年 57 岁，你对他的音乐有哪些深刻记忆？](http://www.movie.hkepx.cn/xiju/5709027.htm)
-- [当你觉得自己很没用时：](http://www.daogukj.com/ptmfwdkn/)
-- [二游最豪自行车，随时站起来蹬拉爆保时捷，见证异环超级体育生](http://www.movie.hkepx.cn/xiju/7509997.htm)
-- [直击福建莆田暴雨内涝现场](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
-- [Pro Max大乱斗](http://www.movie.hkepx.cn/xiju/7276031.htm)
-- [佟丽娅与陈思诚合体带娃吃饭](http://www.daogukj.com/qxoqgypn/)
-- [苏州等地初中出现一个年级 90 多个班，为何会出现这种情况？超大规模办学会带来什么影响？](http://www.daogukj.com/2637140)
-- [山东省委书记、省长带头捐款](http://www.daogukj.com/lcagyyzr/)
-- [欠百万绝望小伙学胖东来理念翻盘买车](http://www.daogukj.com/nckagbek/)
-- [多国从美国运回黄金有何影响](http://www.movie.hkepx.cn/movie/0871738.htm)
-- [男子被医院误诊胃癌切全胃 获赔22万](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
-- [如何看待今年的超级厄尔尼诺现象？](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
-- [修地铁挖出施工人员？住建局回应](http://www.daogukj.com/kwifztpg/)
-- [国家发改委新设国防动员司](http://www.movie.hkepx.cn/movie/5703439.htm)
-- [我国博士后进站人数正式突破50万，如何看待这一发展趋势？](http://www.daogukj.com/ifbvcvnj/)
-- [这次是真玩爽了](http://www.daogukj.com/6568203)
-- [我在日本，找到了被李白杀死的遣唐使](http://www.daogukj.com/0211136)
-- [特斯拉Cybercab在美投入运营，取消方向盘和踏板，纯视觉技术路线无人车型，会颠覆美国网约车行业吗？](http://www.movie.hkepx.cn/xiju/0370085.htm)
-- [突然发现大家都有省钱意识了](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
-- [【月行水上】SR-1至SR-8 摆完挂机 简单好抄](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
+- [美国非农大超预期](http://www.play.hengshemaoyi.cn/kongbu/0102137.htm)
+- [33岁抗癌博主唐豆豆离世](http://www.movie.hkepx.cn/xiju/5709027.htm)
+- [天 雷 滚 滚 纽 约 城【神奇组织53】](http://www.daogukj.com/ptmfwdkn/)
+- [《马老师：这世上还是好人多呀》](http://www.movie.hkepx.cn/xiju/7509997.htm)
+- [火锅店回应锅底爬出大量活蛆](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
+- [教育部回应教师不敢管学生](http://www.movie.hkepx.cn/xiju/7276031.htm)
+- [Cybercab怎么影响中国网约车司机](http://www.daogukj.com/qxoqgypn/)
+- [如何评价《矮人要塞》作者称“老板们想按个按钮就生成游戏，却忘了失业的玩家根本买不起”的言论？](http://www.daogukj.com/2637140)
+- [新型“鼻炎针”进医保](http://www.daogukj.com/lcagyyzr/)
+- [沈佳润骨折](http://www.daogukj.com/nckagbek/)
+- [产妇剖宫产身亡3次鉴定3种结论](http://www.movie.hkepx.cn/movie/0871738.htm)
+- [当我们决定：在村里给自己拍婚纱照，会发生什么？](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
+- [如何评价勇哥新开的社区食堂？](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
+- [烧水喝和买桶装水喝 哪个更健康](http://www.daogukj.com/kwifztpg/)
+- [一家三口吃水洗鸡蛋集体中毒](http://www.movie.hkepx.cn/movie/5703439.htm)
+- [消息称月之暗面保密递交港股IPO，估值冲刺350亿美元，从不着急上市到骤然提速，背后有何考量？](http://www.daogukj.com/ifbvcvnj/)
+- [「魔岩三杰」之一、摇滚歌手何勇去世，享年 57 岁，你对他的音乐有哪些深刻记忆？](http://www.daogukj.com/6568203)
+- [阿诺撒……我让你站起来你耳朵🐉吗？](http://www.daogukj.com/0211136)
+- [曝西贝拖欠离职补偿金，贾国龙称「要到2028年才能给」，这种行为在法律上如何定性？离职员工如何维权？](http://www.movie.hkepx.cn/xiju/0370085.htm)
+- [Lisa曝BLACKPINK时期曾隐藏恋爱](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
+- [《绝区零》克拉蕾角色展示 | 不想培训，但攻略已写好](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
 - [贵州秋假连着中秋国庆休13天系谣言](http://www.movie.hkepx.cn/xiju/4676858.htm)
-- [武大女教授被举报 不能只查曾某某](http://www.movie.hkepx.cn/movie/9996697.htm)
+- [尼泊尔不向中国寻求气候正义赔偿](http://www.movie.hkepx.cn/movie/9996697.htm)
 - [教育部：对师德失范行为“零容忍”](http://www.movie.hkepx.cn/xiju/2854874.htm)
-- [古天乐被追债1.28亿元？旗下公司回应](http://www.daogukj.com/crhtjcoa/)
-- [女生眼里进虫直接用手扒拉出来](http://www.movie.hkepx.cn/xiju/5398219.htm)
-- [“中国游”带火这门“新生意”](http://www.movie.hkepx.cn/xiju/9887508.htm)
-- [中国广电一体化电视适配器集采公告正式发布，将告别传统机顶盒，未来电视的观看方式将如何发展？你会购买吗？](http://www.play.hengshemaoyi.cn/xiju/6315447.htm)
-- [如何看待王楚钦因伤退出 2026WTT 澳门冠军赛？会对他出战亚运会造成影响吗？](http://www.movie.hkepx.cn/movie/8094400.htm)
-- [解放军将派出兵力赴俄参加实兵演习](http://www.movie.hkepx.cn/movie/8053500.htm)
-- [菲律宾地方法院下令逮捕副总统莎拉](http://www.movie.hkepx.cn/xiju/8733503.htm)
-- [女高音歌唱家龚爽因病离世 年仅37岁](http://www.play.hengshemaoyi.cn/kongbu/6039715.htm)
-- [结城理的入职测试！【明日方舟】](http://www.daogukj.com/9356439)
-- [曝西贝拖欠离职补偿金，贾国龙称「要到2028年才能给」，这种行为在法律上如何定性？离职员工如何维权？](http://www.daogukj.com/ianqofdj/)
-- [美航母停靠泰国 指挥官严令禁止嫖娼](http://www.daogukj.com/sizrvcao/)
+- [长安启源Q06预售开启](http://www.daogukj.com/crhtjcoa/)
+- [教育部回应“教师面对学生不敢管”](http://www.movie.hkepx.cn/xiju/5398219.htm)
+- [今年的东博会、峰会有哪些不同](http://www.movie.hkepx.cn/xiju/9887508.htm)
+- [央视晚会将「乡音无改鬓毛衰」读 shuāi 而非 cuī，为什么和早年学的不一样了？如何看待这一变化？](http://www.play.hengshemaoyi.cn/xiju/6315447.htm)
+- [为什么手机卖不动了反而要涨价](http://www.movie.hkepx.cn/movie/8094400.htm)
+- [女篮世界杯中国vs美国](http://www.movie.hkepx.cn/movie/8053500.htm)
+- [黄金跌幅](http://www.movie.hkepx.cn/xiju/8733503.htm)
+- [49岁公司高管接受临床试药后死亡](http://www.play.hengshemaoyi.cn/kongbu/6039715.htm)
+- [如果你线下买票看了一个脱口秀演员的专场，后面ta拿专场的段子放在节目里免费讲，你会很生气吗？](http://www.daogukj.com/9356439)
+- [为什么一只蚂蚁无论从多高的地方摔下来都不会被摔伤摔死，其他动物摔下来直接死翘翘了，背后是什么原理呢？](http://www.daogukj.com/ianqofdj/)
+- [杨小菁当选河南许昌市委书记](http://www.daogukj.com/sizrvcao/)
 - [如何评价GPT-6打破孪生素数猜想最新纪录？](http://www.play.hengshemaoyi.cn/xiju/7255725.htm)
-- [乡音无改鬓毛shuāi远上寒山石径xié](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
-- [吉林一高校宿舍空调上锁不让用，校方称空调电压较高，线路仍在完善，为啥装了空调却用不上？暴露了哪些问题？](http://www.daogukj.com/rwxeygms/)
-- [深耕特色业态 激活文旅消费新动能](http://www.play.hengshemaoyi.cn/kongbu/9837059.htm)
-- [女留学生被杀，凶手作案动机初步披露，系被害人要公开二人关系，凶手担心失去教职，还有哪些细节值得关注？](http://www.daogukj.com/2160602)
-- [孙卓被拐案人贩子本月将出狱](http://www.play.hengshemaoyi.cn/kongbu/7208069.htm)
-- [天 雷 滚 滚 纽 约 城【神奇组织53】](http://www.movie.hkepx.cn/movie/2235201.htm)
-- [《花少5》是花少系列唯一获奖作品](http://www.play.hengshemaoyi.cn/kongbu/1046080.htm)
-- [尼泊尔不向中国寻求气候正义赔偿](http://www.movie.hkepx.cn/xiju/2538742.htm)
-- [《三角洲行动》全新【群星】赛季故事短片](http://www.daogukj.com/9489918)
-- [【独家】时光代理人 第三季 PartOne 第5集 接风宴【8月国创】](http://www.movie.hkepx.cn/xiju/2931592.htm)
-- [为什么一只蚂蚁无论从多高的地方摔下来都不会被摔伤摔死，其他动物摔下来直接死翘翘了，背后是什么原理呢？](http://www.daogukj.com/ottjwhke/)
-- [笑死~日本新发现一名铁血精中！！比98%的中国人都愿意爱中国！！](http://www.movie.hkepx.cn/movie/7215484.htm)
-- [阿诺撒……我让你站起来你耳朵🐉吗？](http://www.movie.hkepx.cn/xiju/4060244.htm)
-- [德克圣堂炸鸡中国首店开业，代排费炒至百元，如何看待如此热潮？](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
+- [三角洲行动 全身动态特效+史上最强数值手感！新刀重塑全网最详细测评与优缺点介绍！](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
+- [美国 8月非农就业人数大增 16.2 万人，失业率报 4.1%，这意味着什么？有哪些信息值得关注？](http://www.daogukj.com/rwxeygms/)
+- [稳步提升参保质量 推动“三医”协同发展](http://www.play.hengshemaoyi.cn/kongbu/9837059.htm)
+- [第 20 届亚运会中国体育代表团成立，平均年龄 24 岁，有36 名奥运会冠军参赛，你最期待谁的表现？](http://www.daogukj.com/2160602)
+- [98岁老人25年捐款近6000万元](http://www.play.hengshemaoyi.cn/kongbu/7208069.htm)
+- [男子肚子疼被误诊为胃癌，医院瞒着切全胃，为何会出现如此离谱的医疗事故？医院赔22万，能抵消男子损失吗？](http://www.movie.hkepx.cn/movie/2235201.htm)
+- [人贩子将出狱 孙海洋担心被报复](http://www.play.hengshemaoyi.cn/kongbu/1046080.htm)
+- [这次是真玩爽了](http://www.movie.hkepx.cn/xiju/2538742.htm)
+- [【月行水上】SR-1至SR-8 摆完挂机 简单好抄](http://www.daogukj.com/9489918)
+- [这只猫，性格好到让我无语](http://www.movie.hkepx.cn/xiju/2931592.htm)
+- [福建因强降雨受灾严重](http://www.daogukj.com/ottjwhke/)
+- [天崩开局，读博两年，我的论文中了顶会](http://www.movie.hkepx.cn/movie/7215484.htm)
+- [DECO*27 - 洗脳 feat. 初音未来](http://www.movie.hkepx.cn/xiju/4060244.htm)
+- [苹果现在才做折叠屏，是来得太晚，还是正好等到了技术成熟？](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
 
 </details>
 
 ## 原始来源
 
-- [小姑娘第一天上幼儿园视频火了](https://s.weibo.com/weibo?q=%E5%B0%8F%E5%A7%91%E5%A8%98%E7%AC%AC%E4%B8%80%E5%A4%A9%E4%B8%8A%E5%B9%BC%E5%84%BF%E5%9B%AD%E8%A7%86%E9%A2%91%E7%81%AB%E4%BA%86)
+- [西藏泥石流已致31人遇难531人失联](https://www.baidu.com/s?wd=%E8%A5%BF%E8%97%8F%E6%B3%A5%E7%9F%B3%E6%B5%81%E5%B7%B2%E8%87%B431%E4%BA%BA%E9%81%87%E9%9A%BE531%E4%BA%BA%E5%A4%B1%E8%81%94&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0c269366b38bbe0bc5b3 -->
+<!-- content-fingerprint: cf4ce30aab937abbd018 -->
