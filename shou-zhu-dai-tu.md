@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 流感疫苗市场变天了
+# “没有Token的CS学生 应立即退学”
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7424525 · 更新：2026-09-04T06:33:36+08:00
+> 来源：百度热搜 · 排名：第 4 位 · 热度：7425580 · 更新：2026-09-04T08:23:18+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“流感疫苗市场变天了”位列第 4 位，公开热度指标为 7424525。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，““没有Token的CS学生 应立即退学””位列第 4 位，公开热度指标为 7425580。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月2日，中国疾病预防控制中心发布最新流感疫苗接种指南，仅推荐三价流感疫苗。此前，因全球未检出B/Yamagata系流感病毒，世界卫生组织今年2月调整推荐剔除了该毒株。受此影响，四价流感疫苗参与减少，三价疫苗成市场主流且公费中标价有所回升。
+来源公开摘要显示：近日，南京大学计算机学院副教授蒋炎岩在课堂中提出“没有Token的CS学生应立即退学”，要求学生自费烧Token并禁止古法编程。此举引发热议，多数网友赞成。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [宁静内涵花少2有人干涉剪辑](wang-mei-zhi-ke.md)
-- [上海多家银行：办40年房贷需35岁以下](wen-ji-qi-wu.md)
+- [吉隆口岸淤泥里发现警服](wang-mei-zhi-ke.md)
+- [郑钦文2-1普丁塞娃晋级美网32强](wen-ji-qi-wu.md)
 - [为什么大家造车都去抄保时捷，没有抄兰博基尼的？](wo-xin-chang-dan.md)
-- [为了测试这台7座车，我们找来了最难伺候的6种人！](po-fu-chen-zhou.md)
+- [难绷：尼泊尔就泥石流灾害对中美印提出赔偿要求](po-fu-chen-zhou.md)
 
 ## 站内推荐
 
 - [新学期建议家长每天抓好这3件小事](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [《后西游记》每集成本仅2-3万](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [“新疆布尔津加气站重度漏气”不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [男子在夜市被5名大妈按摩按到发红](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [折叠屏三国杀](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [美网五连胜！郑钦文晋级女单32强](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [谢贤前女友Coco直播高情商回应](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [小米18Fold定价](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [苏州等地初中出现一个年级 90 多个班，为何会出现这种情况？超大规模办学会带来什么影响？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [广州取消校服统一订购](http://www.daogukj.com/srmtipfy/)
-- [剖宫产身亡3名涉事医生停职7至9个月](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
-- [不是孩子离不开 是家长离不开孩子](http://www.daogukj.com/5764219)
-- [最近内存、存储甚至显卡涨价，一个个都说自己要当等等党，难不成你要等到2040年么？](http://www.daogukj.com/5051205)
+- [“Token贷”火出圈](http://www.daogukj.com/srmtipfy/)
+- [从某一刻开始，游戏的性质已经变了【B站笑点大赛】](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
+- [特斯拉的 CyberCab 一旦全世界大范围铺开，会对中国的新能源汽车产业带来什么影响？](http://www.daogukj.com/5764219)
+- [杨洋贯穿了毛阿敏许晴全过程](http://www.daogukj.com/5051205)
 - [【独家】时光代理人 第三季 PartOne 第5集 接风宴【8月国创】](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
-- [从小沉迷游戏的父亲不给10岁女儿买NS2，被一句「你当年还不是打游戏」怼到沉默，你怎么看？](http://www.movie.hkepx.cn/movie/3745200.htm)
-- [“粥饼伦”门店全部关闭](http://www.daogukj.com/eptgayul/)
-- [美方发日本投降历史图片 日右翼急了](http://www.daogukj.com/zzzmzdnw/)
-- [青海5.1级地震](http://www.daogukj.com/2895651)
-- [希望韩国政府切实践行一个中国原则](http://www.daogukj.com/bmrafxkl/)
-- [男子花250元被5位大妈按摩按到发红](http://www.movie.hkepx.cn/movie/6678209.htm)
-- [难绷：尼泊尔就泥石流灾害对中美印提出赔偿要求](http://www.daogukj.com/2230415)
-- [“用最温柔的方式，体面的告别了这个世界”｜听歌/小曲](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
-- [韩语版《朋友的酒》【韩国大叔Trot版】（空城计の小曲）](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
-- [上海多家银行明确，1991 年以前出生的人不能新办理 40 年期个人房贷，如何看待这一标准？](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
-- [网传部分家长因老师「不婚主义」而向学校投诉，校方要求老师好好道歉，具体情况如何？这算是过度干预吗？](http://www.movie.hkepx.cn/xiju/6217864.htm)
-- [普通人没必要追求电子产品顶配](http://www.movie.hkepx.cn/movie/4778790.htm)
-- [妈妈害怕葡萄藏虫子直接煮熟](http://www.movie.hkepx.cn/movie/7470449.htm)
-- [张继科乒乓球班录取率低于 5%，比 985 还难进，还实行集训末位淘汰45%的机制，怎样看待这种方式？](http://www.movie.hkepx.cn/movie/6111499.htm)
-- [上海多家银行：办40年房贷需35岁以下](http://www.movie.hkepx.cn/xiju/2348853.htm)
-- [许家印律师欲提120万港元被拒](http://www.daogukj.com/fygnbifa/)
-- [郑钦文首胜普丁塞娃](http://www.daogukj.com/9070712)
-- [世界已进入极端天气危险区](http://www.daogukj.com/hoflukum/)
-- [男子在夜市被5名大妈按摩按到发红](http://www.daogukj.com/3336484)
-- [男子杀害情人丈夫后潜逃50年落网](http://www.movie.hkepx.cn/movie/3675931.htm)
-- [女子花11万请人收纳屋子称很值得](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
-- [折叠屏三国杀](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
-- [特斯拉的 CyberCab 一旦全世界大范围铺开，对中国的新能源汽车产业是否会带来毁灭性打击？](http://www.daogukj.com/xljzrgjc/)
-- [男子高血压擅自停药诱发脑梗死](http://www.daogukj.com/sfjdsknb/)
-- [没有人会教你真正核心的东西](http://www.movie.hkepx.cn/xiju/0712256.htm)
-- [广州取消校服统一订购后遇开学大考](http://www.daogukj.com/blhofduy/)
-- [这首歌改变了我的人生，并带我走进了中国这个美丽的世界。](http://www.daogukj.com/qdmxuvra/)
-- [“新疆布尔津加气站重度漏气”不实](http://www.daogukj.com/3062862)
-- [3岁男童长期吃隔夜菜中毒住进PICU](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
-- [中国驻俄使馆就征兵类信息发布提醒](http://www.daogukj.com/4819328)
-- [【warma/怒九】两个大聪明的宇宙冒险！《轨道双子星》实况【更新P2】](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
-- [建水紫陶](http://www.movie.hkepx.cn/xiju/6449274.htm)
-- [如何看待问赛力斯8月新能源车销量同比「下降43.96%」？侧面反映出哪些问题？哪些重点信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
-- [媒体：中国房子迎来真正的分水岭](http://www.movie.hkepx.cn/xiju/8624591.htm)
-- [“我从小抽核弹长大的”，抽一个可变形核弹发射井模型](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
-- [一年级学生不知出生年份](http://www.daogukj.com/2518516)
-- [充值1000误到账26419933亿元](http://www.movie.hkepx.cn/movie/2625646.htm)
+- [最近内存、存储甚至显卡涨价，一个个都说自己要当等等党，难不成你要等到2040年么？](http://www.movie.hkepx.cn/movie/3745200.htm)
+- [林俊杰张凌赫逐玉的缘分](http://www.daogukj.com/eptgayul/)
+- [特斯拉Cybercab正式在美国投入运营](http://www.daogukj.com/zzzmzdnw/)
+- [上海多家银行：办40年房贷需35岁以下](http://www.daogukj.com/2895651)
+- [如何看待问赛力斯8月新能源车销量同比「下降43.96%」？侧面反映出哪些问题？哪些重点信息值得关注？](http://www.daogukj.com/bmrafxkl/)
+- [人民日报批饭圈刷爆12345](http://www.movie.hkepx.cn/movie/6678209.htm)
+- [女子打119报警后 上传火警视频却跳转出开屏广告](http://www.daogukj.com/2230415)
+- [刘雯点赞井柏然国贸大片](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
+- [致热爱捉宠的你——《伊莫》幕后制作纪录片](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
+- [从小沉迷游戏的父亲不给10岁女儿买NS2，被一句「你当年还不是打游戏」怼到沉默，你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
+- [一年级 陈学冬综艺](http://www.movie.hkepx.cn/xiju/6217864.htm)
+- [中国汽车开还“速成债”](http://www.movie.hkepx.cn/movie/4778790.htm)
+- [IGN中国给《鬼武者：剑之道》打8分，《黑神话：悟空》10分，与IGN的评分正好相反，对此你怎么看？](http://www.movie.hkepx.cn/movie/7470449.htm)
+- [山东一产妇剖宫产身亡，事故鉴定结论三度反转，涉事医生被停职，为何鉴定结果几度反转？如何看待责任认定？](http://www.movie.hkepx.cn/movie/6111499.htm)
+- [郑钦文2-1普丁塞娃晋级美网32强](http://www.movie.hkepx.cn/xiju/2348853.htm)
+- [OpenAI发布GPT-6 Astra](http://www.daogukj.com/fygnbifa/)
+- [武大大可不必等86页PDF逼出来](http://www.daogukj.com/9070712)
+- [深夜突发！美国AI大宕机](http://www.daogukj.com/hoflukum/)
+- [小米18Fold定价](http://www.daogukj.com/3336484)
+- [上海多家银行明确，1991 年以前出生的人不能新办理 40 年期个人房贷，如何看待这一标准？](http://www.movie.hkepx.cn/movie/3675931.htm)
+- [易烊千玺工作室真的太能藏了](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
+- [苏州等地初中出现一个年级 90 多个班，为何会出现这种情况？超大规模办学会带来什么影响？](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
+- [字节跳动将获约296亿美元银团贷款，全年最高700亿美元AI资本开支，字节正在变成一家「基建公司」吗？](http://www.daogukj.com/xljzrgjc/)
+- [感动世界！最强一集！菜月昴15连死！夏乌拉百年等待！【Re:0第四季/原作动画对比分析#15】](http://www.daogukj.com/sfjdsknb/)
+- [郑钦文首胜普丁塞娃](http://www.movie.hkepx.cn/xiju/0712256.htm)
+- [Token经济要开始崩了吗](http://www.daogukj.com/blhofduy/)
+- [剖宫产身亡3名涉事医生停职7至9个月](http://www.daogukj.com/qdmxuvra/)
+- [谢贤前女友Coco直播高情商回应](http://www.daogukj.com/3062862)
+- [曾3次参加阅兵的火箭军退役军人返乡](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
+- [全国唯一有两所211高校县级市迎新生](http://www.daogukj.com/4819328)
+- [“新疆布尔津加气站重度漏气”不实](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
+- [郑钦文对手气得摔拍子](http://www.movie.hkepx.cn/xiju/6449274.htm)
+- [吓哭了！电影级大招，心月狐直接给我干到无限城了！！！？](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
+- [外交部：已向韩方提出严正交涉](http://www.movie.hkepx.cn/xiju/8624591.htm)
+- [【科学修仙】今日不死，儿孙满堂！【up动画】](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
+- [赵心童4-2乔伊斯](http://www.daogukj.com/2518516)
+- [三胞胎迎接退役军爸被一把抱起](http://www.movie.hkepx.cn/movie/2625646.htm)
 - [为什么大家造车都去抄保时捷，没有抄兰博基尼的？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
-- [吓哭了！电影级大招，心月狐直接给我干到无限城了！！！？](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
-- [张一山谈《重案六组》：不是都得谈恋爱](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
-- [苹果发布会定档北京时间 9 月 10 日，首款折叠屏 iPhone 将亮相，有哪些信息值得特别关注？](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
-- [金正恩：要使朝鲜教育成为世界一流](http://www.movie.hkepx.cn/xiju/9162988.htm)
-- [男子充值 1000 元账户误到账 26419933 亿，疯狂消费后拒不退还，该男子需要承担法律责任吗？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
-- [媒体：加拿大对美复刻“中国式反击”](http://www.daogukj.com/xfhybzga/)
-- [男童长期吃剩饭中毒 家长以为气色差](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
+- [男童长期吃剩饭中毒 家长以为气色差](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
+- [詹俊：郑钦文决胜盘表现出色](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
+- [【IGN独家】《鸣潮》共鸣者「心」、「锁暝」演示](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
+- [教官在新生面前像个新兵蛋子](http://www.movie.hkepx.cn/xiju/9162988.htm)
+- [张继科乒乓球班录取率低于 5%，比 985 还难进，还实行集训末位淘汰45%的机制，怎样看待这种方式？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
+- [为什么共享单车、共享充电宝都变这么贵了？是不是显现出共享经济是悖论？](http://www.daogukj.com/xfhybzga/)
+- [AI短剧“千人一面”](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
 
 </details>
 
 ## 原始来源
 
-- [流感疫苗市场变天了](https://www.baidu.com/s?wd=%E6%B5%81%E6%84%9F%E7%96%AB%E8%8B%97%E5%B8%82%E5%9C%BA%E5%8F%98%E5%A4%A9%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
+- [“没有Token的CS学生 应立即退学”](https://www.baidu.com/s?wd=%E2%80%9C%E6%B2%A1%E6%9C%89Token%E7%9A%84CS%E5%AD%A6%E7%94%9F+%E5%BA%94%E7%AB%8B%E5%8D%B3%E9%80%80%E5%AD%A6%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 48fa4821cb4e46e8b53e -->
+<!-- content-fingerprint: 347d09cfa594d3619c77 -->

@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 中国房子迎来真正的分水岭
+# 青海海西州地震
 
-> 来源：百度热搜 · 排名：第 5 位 · 热度：7331587 · 更新：2026-09-04T06:33:36+08:00
+> 来源：百度热搜 · 排名：第 5 位 · 热度：7328654 · 更新：2026-09-04T08:23:18+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“中国房子迎来真正的分水岭”位列第 5 位，公开热度指标为 7331587。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“青海海西州地震”位列第 5 位，公开热度指标为 7328654。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月28日，住建、金融等部门推出房地产新政，明确有力有序推行现房销售，新出让土地项目优先现房；继续预售的项目须主体封顶，购房资金全程监管。个人房贷最长期限可延至40年。
+来源公开摘要显示：中国地震台网正式测定：9月4日1时4分，在青海海西州直辖区（北纬37.84度，东经95.59度）发生5.1级地震，震源深度10公里。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [美网女单第二轮](zhi-shang-tan-bing.md)
-- [男子花250元被5位大妈按摩按到发红](wei-wei-jiu-zhao.md)
-- [上海多家银行明确，1991 年以前出生的人不能新办理 40 年期个人房贷，如何看待这一标准？](wan-bi-gui-zhao.md)
-- [难绷：尼泊尔就泥石流灾害对中美印提出赔偿要求](fu-jing-qing-zui.md)
+- [小米手环11](zhi-shang-tan-bing.md)
+- [人民日报批饭圈刷爆12345](wei-wei-jiu-zhao.md)
+- [从小沉迷游戏的父亲不给10岁女儿买NS2，被一句「你当年还不是打游戏」怼到沉默，你怎么看？](wan-bi-gui-zhao.md)
+- [女子打119报警后 上传火警视频却跳转出开屏广告](fu-jing-qing-zui.md)
 
 ## 站内推荐
 
-- [手机集体涨价 吓跑了买手机的人](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [男童长期吃剩饭中毒 家长以为气色差](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [女子花11万请人收纳屋子称很值得](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [一年级学生不知出生年份](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [不是孩子离不开 是家长离不开孩子](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [一次“时髦”尝试 换来生活不能自理](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [AI短剧“千人一面”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [易烊千玺工作室真的太能藏了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [赵心童4-2乔伊斯](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [特斯拉的 CyberCab 一旦全世界大范围铺开，会对中国的新能源汽车产业带来什么影响？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [充值1000误到账26419933亿元](http://www.play.hengshemaoyi.cn/kongbu/0102137.htm)
-- [四川地震](http://www.movie.hkepx.cn/xiju/5709027.htm)
-- [【IGN独家】《鸣潮》共鸣者「心」、「锁暝」演示](http://www.daogukj.com/ptmfwdkn/)
-- [上海交大内部 PPT 曝光高校AI教育困局，课程迭代远落后技术发展，学生反超老师成常态，该怎样破解？](http://www.movie.hkepx.cn/xiju/7509997.htm)
-- [“用最温柔的方式，体面的告别了这个世界”｜听歌/小曲](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
+- [三胞胎迎接退役军爸被一把抱起](http://www.play.hengshemaoyi.cn/kongbu/0102137.htm)
+- [“用最温柔的方式，体面的告别了这个世界”｜听歌/小曲](http://www.movie.hkepx.cn/xiju/5709027.htm)
+- [网络热传生物鉴定 第63期](http://www.daogukj.com/ptmfwdkn/)
+- [黄 毛 抢 钱 记](http://www.movie.hkepx.cn/xiju/7509997.htm)
+- [刘雯点赞井柏然国贸大片](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
 - [人人影视变正版了](http://www.movie.hkepx.cn/xiju/7276031.htm)
-- [3岁男童长期吃隔夜菜中毒住进PICU](http://www.daogukj.com/qxoqgypn/)
-- [男子高血压擅自停药诱发脑梗死](http://www.daogukj.com/2637140)
-- [建水紫陶](http://www.daogukj.com/lcagyyzr/)
-- [不是孩子离不开 是家长离不开孩子](http://www.daogukj.com/nckagbek/)
-- [折叠屏三国杀](http://www.movie.hkepx.cn/movie/0871738.htm)
-- [网传部分家长因老师「不婚主义」而向学校投诉，校方要求老师好好道歉，具体情况如何？这算是过度干预吗？](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
-- [张继科乒乓球班录取率低于 5%，比 985 还难进，还实行集训末位淘汰45%的机制，怎样看待这种方式？](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
-- [手机集体涨价 吓跑了买手机的人](http://www.daogukj.com/kwifztpg/)
-- [妈妈害怕葡萄藏虫子直接煮熟](http://www.movie.hkepx.cn/movie/5703439.htm)
-- [老人喝下3两敌敌畏开车2小时去医院](http://www.daogukj.com/ifbvcvnj/)
-- [金正恩：要使朝鲜教育成为世界一流](http://www.daogukj.com/6568203)
-- [如何看待问赛力斯8月新能源车销量同比「下降43.96%」？侧面反映出哪些问题？哪些重点信息值得关注？](http://www.daogukj.com/0211136)
-- [男子充值 1000 元账户误到账 26419933 亿，疯狂消费后拒不退还，该男子需要承担法律责任吗？](http://www.movie.hkepx.cn/xiju/0370085.htm)
-- [黄渤家门口骑自行车摔骨折](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
-- [致热爱捉宠的你——《伊莫》幕后制作纪录片](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
-- [【warma/怒九】两个大聪明的宇宙冒险！《轨道双子星》实况【更新P2】](http://www.movie.hkepx.cn/xiju/4676858.htm)
-- [黄 毛 抢 钱 记](http://www.movie.hkepx.cn/movie/9996697.htm)
-- [谁能想到钓个鱼能这么好笑？渔力全开！](http://www.movie.hkepx.cn/xiju/2854874.htm)
-- [难绷：尼泊尔就泥石流灾害对中美印提出赔偿要求](http://www.daogukj.com/crhtjcoa/)
-- [许家印律师欲提120万港元被拒](http://www.movie.hkepx.cn/xiju/5398219.htm)
+- [曾3次参加阅兵的火箭军退役军人返乡](http://www.daogukj.com/qxoqgypn/)
+- [感动世界！最强一集！菜月昴15连死！夏乌拉百年等待！【Re:0第四季/原作动画对比分析#15】](http://www.daogukj.com/2637140)
+- [郑钦文对手气得摔拍子](http://www.daogukj.com/lcagyyzr/)
+- [特斯拉的 CyberCab 一旦全世界大范围铺开，会对中国的新能源汽车产业带来什么影响？](http://www.daogukj.com/nckagbek/)
+- [苏州等地初中出现一个年级 90 多个班，为何会出现这种情况？超大规模办学会带来什么影响？](http://www.movie.hkepx.cn/movie/0871738.htm)
+- [一年级 陈学冬综艺](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
+- [山东一产妇剖宫产身亡，事故鉴定结论三度反转，涉事医生被停职，为何鉴定结果几度反转？如何看待责任认定？](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
+- [一次“时髦”尝试 换来生活不能自理](http://www.daogukj.com/kwifztpg/)
+- [IGN中国给《鬼武者：剑之道》打8分，《黑神话：悟空》10分，与IGN的评分正好相反，对此你怎么看？](http://www.movie.hkepx.cn/movie/5703439.htm)
+- [50亿年后太阳熄灭变成白矮星，人类何去何从，困死地球太阳系吗?](http://www.daogukj.com/ifbvcvnj/)
+- [教官在新生面前像个新兵蛋子](http://www.daogukj.com/6568203)
+- [吓哭了！电影级大招，心月狐直接给我干到无限城了！！！？](http://www.daogukj.com/0211136)
+- [张继科乒乓球班录取率低于 5%，比 985 还难进，还实行集训末位淘汰45%的机制，怎样看待这种方式？](http://www.movie.hkepx.cn/xiju/0370085.htm)
+- [普通人没必要追求电子产品顶配](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
+- [为了测试这台7座车，我们找来了最难伺候的6种人！](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
+- [“新疆布尔津加气站重度漏气”不实](http://www.movie.hkepx.cn/xiju/4676858.htm)
+- [手机集体涨价 吓跑了买手机的人](http://www.movie.hkepx.cn/movie/9996697.htm)
+- [美股标普500指数创近一个月最大涨幅](http://www.movie.hkepx.cn/xiju/2854874.htm)
+- [女子打119报警后 上传火警视频却跳转出开屏广告](http://www.daogukj.com/crhtjcoa/)
+- [OpenAI发布GPT-6 Astra](http://www.movie.hkepx.cn/xiju/5398219.htm)
 - [新学期建议家长每天抓好这3件小事](http://www.movie.hkepx.cn/xiju/9887508.htm)
-- [9月3日晚ChatGPT、Grok、Claude、Cursor 集体突发故障，怎么回事？带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/6315447.htm)
-- [广州取消中小学校服统一订购](http://www.movie.hkepx.cn/movie/8094400.htm)
-- [媒体：中国房子迎来真正的分水岭](http://www.movie.hkepx.cn/movie/8053500.htm)
-- [中国驻俄使馆就征兵类信息发布提醒](http://www.movie.hkepx.cn/xiju/8733503.htm)
-- [世界已进入极端天气危险区](http://www.play.hengshemaoyi.cn/kongbu/6039715.htm)
-- [人人影视APP上线](http://www.daogukj.com/9356439)
-- [特斯拉的 CyberCab 一旦全世界大范围铺开，对中国的新能源汽车产业是否会带来毁灭性打击？](http://www.daogukj.com/ianqofdj/)
-- [希望韩国政府切实践行一个中国原则](http://www.daogukj.com/sizrvcao/)
-- [尼泊尔泥石流遇难人数升至1259人](http://www.play.hengshemaoyi.cn/xiju/7255725.htm)
-- [美国「林肯」号航母锈迹斑斑、内部环境差，这反映出美军哪些深层问题？](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
-- [男子杀害情人丈夫后潜逃50年落网](http://www.daogukj.com/rwxeygms/)
+- [如何评价《凡人修仙传》动漫制作组对 189 集回应？](http://www.play.hengshemaoyi.cn/xiju/6315447.htm)
+- [【深度】四渡赤水的胜利之水？为什么出了茅台镇就酿不出茅台酒？](http://www.movie.hkepx.cn/movie/8094400.htm)
+- [外交部：已向韩方提出严正交涉](http://www.movie.hkepx.cn/movie/8053500.htm)
+- [全国唯一有两所211高校县级市迎新生](http://www.movie.hkepx.cn/xiju/8733503.htm)
+- [深夜突发！美国AI大宕机](http://www.play.hengshemaoyi.cn/kongbu/6039715.htm)
+- [酒店集团正集体盯上大学生](http://www.daogukj.com/9356439)
+- [字节跳动将获约296亿美元银团贷款，全年最高700亿美元AI资本开支，字节正在变成一家「基建公司」吗？](http://www.daogukj.com/ianqofdj/)
+- [如何看待问赛力斯8月新能源车销量同比「下降43.96%」？侧面反映出哪些问题？哪些重点信息值得关注？](http://www.daogukj.com/sizrvcao/)
+- [苹果发布会定档北京时间 9 月 10 日，首款折叠屏 iPhone 将亮相，有哪些信息值得特别关注？](http://www.play.hengshemaoyi.cn/xiju/7255725.htm)
+- [许家印律师欲提120万港元被拒](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
+- [上海多家银行明确，1991 年以前出生的人不能新办理 40 年期个人房贷，如何看待这一标准？](http://www.daogukj.com/rwxeygms/)
 - [促进中小企业发展“十五五”规划发布](http://www.play.hengshemaoyi.cn/kongbu/9837059.htm)
-- [伊朗导弹致大量美军死伤](http://www.daogukj.com/2160602)
-- [陈翔六点半：渴望远方，却困在楼下](http://www.play.hengshemaoyi.cn/kongbu/7208069.htm)
+- [这一期视频我不允许任何人漏看！！你们自己要的男生超详细全流程护肤教程！！！！](http://www.daogukj.com/2160602)
+- [郑丽文：民进党不倒台湾不会好](http://www.play.hengshemaoyi.cn/kongbu/7208069.htm)
 - [为什么大家造车都去抄保时捷，没有抄兰博基尼的？](http://www.movie.hkepx.cn/movie/2235201.htm)
-- [这首歌改变了我的人生，并带我走进了中国这个美丽的世界。](http://www.play.hengshemaoyi.cn/kongbu/1046080.htm)
-- [为了测试这台7座车，我们找来了最难伺候的6种人！](http://www.movie.hkepx.cn/xiju/2538742.htm)
-- [上海多家银行明确，1991 年以前出生的人不能新办理 40 年期个人房贷，如何看待这一标准？](http://www.daogukj.com/9489918)
+- [剖宫产身亡3名涉事医生停职7至9个月](http://www.play.hengshemaoyi.cn/kongbu/1046080.htm)
+- [难绷：尼泊尔就泥石流灾害对中美印提出赔偿要求](http://www.movie.hkepx.cn/xiju/2538742.htm)
+- [从小沉迷游戏的父亲不给10岁女儿买NS2，被一句「你当年还不是打游戏」怼到沉默，你怎么看？](http://www.daogukj.com/9489918)
 - [【独家】时光代理人 第三季 PartOne 第5集 接风宴【8月国创】](http://www.movie.hkepx.cn/xiju/2931592.htm)
-- [上海多家银行：办40年房贷需35岁以下](http://www.daogukj.com/ottjwhke/)
-- [苹果发布会定档北京时间 9 月 10 日，首款折叠屏 iPhone 将亮相，有哪些信息值得特别关注？](http://www.movie.hkepx.cn/movie/7215484.htm)
+- [郑钦文2-1普丁塞娃晋级美网32强](http://www.daogukj.com/ottjwhke/)
+- [【IGN独家】《鸣潮》共鸣者「心」、「锁暝」演示](http://www.movie.hkepx.cn/movie/7215484.htm)
 - [爸爸肺癌晚期，老公答应卖房去美国治疗了，但他现在反悔了怎么办？](http://www.movie.hkepx.cn/xiju/4060244.htm)
-- [广州取消校服统一订购后遇开学大考](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
+- [Token经济要开始崩了吗](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
 
 </details>
 
 ## 原始来源
 
-- [中国房子迎来真正的分水岭](https://www.baidu.com/s?wd=%E4%B8%AD%E5%9B%BD%E6%88%BF%E5%AD%90%E8%BF%8E%E6%9D%A5%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%88%86%E6%B0%B4%E5%B2%AD&sa=fyb_news&rsv_dl=fyb_news)
+- [青海海西州地震](https://www.baidu.com/s?wd=%E9%9D%92%E6%B5%B7%E6%B5%B7%E8%A5%BF%E5%B7%9E%E5%9C%B0%E9%9C%87&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7f37b27bf6abb9810c95 -->
+<!-- content-fingerprint: 01ad022a9c76a67cc3c7 -->
