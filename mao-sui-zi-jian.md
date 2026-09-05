@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 撒贝宁：只要不上班就来丹霞山
+# 尼泊尔泥石流灾害1名中国公民获救
 
-> 来源：百度热搜 · 排名：第 6 位 · 热度：7235939 · 更新：2026-09-05T13:51:49+08:00
+> 来源：百度热搜 · 排名：第 6 位 · 热度：7238600 · 更新：2026-09-05T18:14:41+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“撒贝宁：只要不上班就来丹霞山”位列第 6 位，公开热度指标为 7235939。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“尼泊尔泥石流灾害1名中国公民获救”位列第 6 位，公开热度指标为 7238600。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，50岁撒贝宁现身丹霞山，现场用一句话介绍韶关丹霞山：只要不上班，就来丹霞山。
+来源公开摘要显示：当地时间9月5日，1名受困中国公民在尼泊尔北部热索瓦泥石流受灾地区获救。随后，尼泊尔总理办公室发帖确认该中国公民获救消息。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [井柏然人气一夜之间回到十年前](san-gu-mao-lu.md)
-- [农村的老人为什么都不太喜欢去城里住？](cao-mu-jie-bing.md)
-- [旗腹姬蜂是蟑螂杀手](feng-sheng-he-li.md)
-- [张雪机车今晚冲击第七冠](ru-huo-ru-tu.md)
+- [苹果多款新品售价曝光](san-gu-mao-lu.md)
+- [尼泊尔泥石流1名受困中国公民获救](cao-mu-jie-bing.md)
+- [江西吉安遂川县高坪镇发生山体滑坡，十余人被埋，目前救援进展如何？](feng-sheng-he-li.md)
+- [花600天做一道菜，切开的瞬间发光了！](ru-huo-ru-tu.md)
 
 ## 站内推荐
 
-- [小学回应家长自费买349元一套桌椅](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [这种鞋子不要给孩子天天穿](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [“梅姨”画像更新](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [这只猫，性格好到让我无语](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [苹果将迎最大规模产品发布潮](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [7500万乙肝患者有望告别终身服药](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [男子撞上羊群 赔了钱为什么不能带走](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [汤家凤呼吁取消英语主科地位](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [陈丽君人走了手机落下了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [老楼加装电梯遭一楼住户反对](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [吴恩达称「AI时代部分高校困在22年」，高校现在真和AI时代脱节了吗？学生又该如何跟上时代的步伐？](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
-- [“宇宙最大医院”连续3任院长落马](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
-- [西藏泥石流已致 31 死 531 失联，发现遗物 987 件，有哪些信息值得关注？](http://www.daogukj.com/hiiwohqb/)
-- [极限挑战六人重聚为何争议重重](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
-- [1岁裸体男童沙漠走失12小时](http://www.daogukj.com/2806482)
-- [江西遂川泥石流致1人死亡11人失联](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
-- [小学回应家长自费买课桌：非强制](http://www.daogukj.com/9832220)
-- [美国总统爱吃的芝士牛排三明治，什么味儿？](http://www.movie.hkepx.cn/xiju/4624070.htm)
+- [WorkBuddy 金融版正式发布，可为券商提供覆盖投研、尽调支持，具体能力如何？](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
+- [王楚钦退赛「1000」分卫冕积分将清零，如何影响其世界排名及赛程？](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
+- [轮椅老人上高架蓄意碰瓷？不实](http://www.daogukj.com/hiiwohqb/)
+- [慢下来，就会死！](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
+- [张家齐13岁赚了81万](http://www.daogukj.com/2806482)
+- [特斯拉无人驾驶电车内只有座椅和屏幕](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
+- [《虹猫蓝兔七侠传》发长文](http://www.daogukj.com/9832220)
+- [为啥银行会出现「存 1 年利息高于存 5 年」的倒挂？会给普通储户带来哪些影响？](http://www.movie.hkepx.cn/xiju/4624070.htm)
 - [【独家】《凡人修仙传之慕兰之战》第14集【总第190集】](http://www.movie.hkepx.cn/movie/0841033.htm)
-- [我好像突然对钱有了概念](http://www.movie.hkepx.cn/movie/4609262.htm)
-- [两名美军水兵在巴达雅喝醉后打架](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
-- [雪花牛肉疑似造假](http://www.daogukj.com/1127111)
-- [菲法院为何下令逮捕副总统](http://www.daogukj.com/pldvwggd/)
-- [以旧换新激活消费新动能](http://www.movie.hkepx.cn/xiju/1287269.htm)
-- [农村的老人为什么都不太喜欢去城里住？](http://www.daogukj.com/unklghpc/)
-- [女子配型救母发现非亲生称将起诉医院](http://www.daogukj.com/4404570)
-- [苹果将迎最大规模产品发布潮](http://www.daogukj.com/wfqplasc/)
-- [花600天做一道菜，切开的瞬间发光了！](http://www.daogukj.com/grgritvr/)
-- [如何看待 Anthropic 利用 Claude 完成费马大定理的 lean4 形式化证明？](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
-- [全B站最垃圾的一期视频](http://www.movie.hkepx.cn/movie/3539496.htm)
-- [江苏省委书记省长带头捐款](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
-- [为啥银行会出现「存 1 年利息高于存 5 年」的倒挂？会给普通储户带来哪些影响？](http://www.movie.hkepx.cn/xiju/3922759.htm)
-- [自从有了电车](http://www.daogukj.com/ynpujsgi/)
-- [新 生 开 学 有 多 爽 ？！！](http://www.movie.hkepx.cn/movie/2603972.htm)
-- [耿同学锤刘光慧、曲静的《Nature》论文涉数据造假，哪些信息值得关注？](http://www.daogukj.com/9238608)
-- [“请与我一同，战胜时间的伟力。”](http://www.daogukj.com/xdtzeasn/)
-- [未来五年医保改革划了哪些重点](http://www.daogukj.com/2229169)
-- [美国拉斯维加斯有点爽！](http://www.daogukj.com/pnnlzznp/)
-- [女子吃甜虾后肚子痛 10 多天，肠道发现寄生虫，人们常说海水里的生鲜没有寄生虫靠谱吗？怎样吃才安全？](http://www.movie.hkepx.cn/movie/1141317.htm)
-- [如何看待王者荣耀上线高校认证功能，清华北大认证在二手平台炒到两千元，客服称已下线？这会加重学历焦虑吗？](http://www.daogukj.com/3669738)
-- [8月大宗商品市场运行向好](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
-- [对面一个牢玩家李白，打我们这边4个牢玩家](http://www.movie.hkepx.cn/xiju/8333303.htm)
-- [张雪机车今晚冲击第七冠](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
-- [员工因拒绝通宵出差安排，直接被公司以「不出差算旷工」为由开除，这合法吗？暴露出哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
+- [张雅琪被花少8剪掉了](http://www.movie.hkepx.cn/movie/4609262.htm)
+- [1岁裸体男童沙漠走失12小时被找到](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
+- [美国『林肯』号航母现身油漆脱落、遍布锈迹，这在航母日常维护中属于正常现象吗？](http://www.daogukj.com/1127111)
+- [父亲送女儿到郑州上大学直呼高大上](http://www.daogukj.com/pldvwggd/)
+- [青春华章因创新更燃](http://www.movie.hkepx.cn/xiju/1287269.htm)
+- [尼泊尔泥石流1名受困中国公民获救](http://www.daogukj.com/unklghpc/)
+- [GPT-6 Astra 价格达上一代旗舰5.6 Sol 的2.5 倍，从性能等方面看，这价格贵吗？](http://www.daogukj.com/4404570)
+- [老楼加装电梯遭一楼住户反对](http://www.daogukj.com/wfqplasc/)
+- [常规小升级？Alienware 18 Area-51 U9 290HX+RTX5090到底强不强？](http://www.daogukj.com/grgritvr/)
+- [港姐王菲与歌手张子丰宣布订婚](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
+- [午夜轮班，伪人超市](http://www.movie.hkepx.cn/movie/3539496.htm)
+- [打雷 拔插头](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
+- [尼泊尔泥石流灾害一中国公民获救](http://www.movie.hkepx.cn/xiju/3922759.htm)
+- [全球黄金大迁徙](http://www.daogukj.com/ynpujsgi/)
+- [凌晨巨响 江西遂川一大桥被冲毁](http://www.movie.hkepx.cn/movie/2603972.htm)
+- [拉康：我们如何用一生，从别人那里偷来一个“我”？](http://www.daogukj.com/9238608)
+- [如何看待王者荣耀上线高校认证功能，清华北大认证在二手平台炒到两千元，客服称已下线？这会加重学历焦虑吗？](http://www.daogukj.com/xdtzeasn/)
+- [中国电动卡车走向世界](http://www.daogukj.com/2229169)
+- [男子在头等舱闹事被绑成“木乃伊”](http://www.daogukj.com/pnnlzznp/)
+- [华为何庭波再提「本该烧毁的『τ芯片』」，这揭示了华为怎样的芯片自研能力？](http://www.movie.hkepx.cn/movie/1141317.htm)
+- [中国会出现公认的第五个一线城市吗?](http://www.daogukj.com/3669738)
+- [8月中国物流需求保持扩张](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
+- [西藏泥石流已致 31 死 531 失联，发现遗物 987 件，有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/8333303.htm)
+- [花600天做一道菜，切开的瞬间发光了！](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
+- [《营救匪徒》](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
 - [第一批戴运动手环的受害者出现了](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
-- [这种鞋子不要给孩子天天穿](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
-- [安静公主说王俊凯粉丝既要又要](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
-- [港姐王菲与歌手张子丰宣布订婚](http://www.movie.hkepx.cn/movie/7218961.htm)
-- [剧本杀 色情服务](http://www.movie.hkepx.cn/xiju/0034458.htm)
-- [98岁老人25年捐款近6000万元](http://www.movie.hkepx.cn/movie/1373526.htm)
-- [江西遂川大桥被冲毁无伤亡](http://www.movie.hkepx.cn/movie/8174344.htm)
-- [华为何庭波再提「本该烧毁的『τ芯片』」，这揭示了华为怎样的芯片自研能力？](http://www.movie.hkepx.cn/xiju/7049500.htm)
-- [1岁裸体男童沙漠走失12小时被找到](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
-- [工人因赊1碗面后连续吃121天](http://www.daogukj.com/1670030)
-- [有什么XX把XX带到了不属于它高度的鲜活例子？](http://www.daogukj.com/4917906)
-- [两岁男童误把百草枯当饮料喝下](http://www.daogukj.com/jjbeajdp/)
-- [为什么脱口秀演员徐志胜会这么火？](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
-- [汤家凤呼吁取消英语主科地位](http://www.daogukj.com/2644309)
-- [美国『林肯』号航母现身油漆脱落、遍布锈迹，这在航母日常维护中属于正常现象吗？](http://www.daogukj.com/2520362)
-- [刘雯 避嫌](http://www.daogukj.com/4354347)
+- [男子撞上羊群 赔了钱为什么不能带走](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
+- [官方通报染色莴笋：6家企业被立案](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
+- [剧本杀 色情服务](http://www.movie.hkepx.cn/movie/7218961.htm)
+- [联通在青岛大学与校方起冲突系谣言](http://www.movie.hkepx.cn/xiju/0034458.htm)
+- [传播武汉大学举报 PDF 会涉嫌违法吗？如何从法律角度解读？](http://www.movie.hkepx.cn/movie/1373526.htm)
+- [女子吃避孕药后久坐旅游患肺栓塞](http://www.movie.hkepx.cn/movie/8174344.htm)
+- [剧本杀恋陪涉黄乱象](http://www.movie.hkepx.cn/xiju/7049500.htm)
+- [特斯拉市值一夜蒸发超6000亿](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
+- [这种鞋子不要给孩子天天穿](http://www.daogukj.com/1670030)
+- [如何看待因被要求补缴社保，老板在店门口滚屏抱怨”选择员工需谨慎”？](http://www.daogukj.com/4917906)
+- [卢昱晓瘦成竹竿了](http://www.daogukj.com/jjbeajdp/)
+- [程序员每天消耗几千万上亿的Token，到底产出了什么？](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
+- [葫芦娃真的“救”了爷爷](http://www.daogukj.com/2644309)
+- [喝多了没人能制裁我 除了我老婆](http://www.daogukj.com/2520362)
+- [我们来做手替，帮你试了破窗锤了！](http://www.daogukj.com/4354347)
 
 </details>
 
 ## 原始来源
 
-- [撒贝宁：只要不上班就来丹霞山](https://www.baidu.com/s?wd=%E6%92%92%E8%B4%9D%E5%AE%81%EF%BC%9A%E5%8F%AA%E8%A6%81%E4%B8%8D%E4%B8%8A%E7%8F%AD%E5%B0%B1%E6%9D%A5%E4%B8%B9%E9%9C%9E%E5%B1%B1&sa=fyb_news&rsv_dl=fyb_news)
+- [尼泊尔泥石流灾害1名中国公民获救](https://www.baidu.com/s?wd=%E5%B0%BC%E6%B3%8A%E5%B0%94%E6%B3%A5%E7%9F%B3%E6%B5%81%E7%81%BE%E5%AE%B31%E5%90%8D%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%E8%8E%B7%E6%95%91&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d54e07291f47c140057e -->
+<!-- content-fingerprint: 05307251479447044323 -->
