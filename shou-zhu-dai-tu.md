@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 手机涨价 最先扛不住的竟是经销商
+# 这种鞋子不要给孩子天天穿
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7428173 · 更新：2026-09-05T09:17:39+08:00
+> 来源：百度热搜 · 排名：第 4 位 · 热度：7424357 · 更新：2026-09-05T13:51:49+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“手机涨价 最先扛不住的竟是经销商”位列第 4 位，公开热度指标为 7428173。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“这种鞋子不要给孩子天天穿”位列第 4 位，公开热度指标为 7424357。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：日前，多家品牌同步上调手机官方标价。然而，市场呈现明显反差：品牌官方标价普涨，但终端实际成交价并未同步走高。有经销商坦言，自品牌启动调价后，旗下门店销量同比普遍下滑两至三成，经营压力已触及历史高点。
+来源公开摘要显示：外形炫酷、科技感十足的碳板跑鞋，正成为不少中小学生的“新宠”。然而，多地医院骨科、运动医学门诊已接诊多名因长期穿碳板鞋而导致足弓塌陷、足底筋膜炎、下肢运动损伤的青少年患者。碳板跑鞋本身并非“问题装备”，关键在于不能不分场景、日复一日穿着。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [超1万册永乐大典副本下落不明](wang-mei-zhi-ke.md)
-- [中国女篮不敌美国女篮](wen-ji-qi-wu.md)
-- [同样一道炒菜，马路边小饭馆卖30元，大饭店卖100元，有什么区别？](wo-xin-chang-dan.md)
-- [我发现了动画最离谱的BUG？](po-fu-chen-zhou.md)
+- [第一批戴运动手环的受害者出现了](wang-mei-zhi-ke.md)
+- [菲法院为何下令逮捕副总统](wen-ji-qi-wu.md)
+- [考研数学名师汤家凤呼吁取消英语主科地位，你赞同吗？将对人才培养和学生发展带来哪些影响？](wo-xin-chang-dan.md)
+- [拉康：我们如何用一生，从别人那里偷来一个“我”？](po-fu-chen-zhou.md)
 
 ## 站内推荐
 
-- [今年的东博会、峰会有哪些不同](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [在夜市买了一只很可爱的串串小狗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [刘雯 避嫌](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [导师要求学生开门保持1.5米](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [张帅蒋欣玗女双晋级](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [未来五年医保改革划了哪些重点](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [撒贝宁：只要不上班就来丹霞山](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [港姐王菲与歌手张子丰宣布订婚](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [安静公主说王俊凯粉丝既要又要](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [LCK 季后赛 DK 3:1 KT，DK 晋级 S16 全球总决赛，如何评价这场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [中国拼好房 全球开眼了](http://www.daogukj.com/srmtipfy/)
-- [洪水侵袭“中国白茶第一镇”](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
-- [工人因赊1碗面后连续吃121天](http://www.daogukj.com/5764219)
-- [男子与前女友纠纷被其现男友压制致死](http://www.daogukj.com/5051205)
-- [真实事件改编！一口气抢268个银行保险柜，翻出公主私密照，官员play实录，有钱人玩儿得够花！《银行大劫案》](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
-- [多诺米骨牌](http://www.movie.hkepx.cn/movie/3745200.htm)
-- [为什么现在这么流行耳夹式耳机](http://www.daogukj.com/eptgayul/)
-- [结城理的入职测试！【明日方舟】](http://www.daogukj.com/zzzmzdnw/)
-- [“阔屏手机”风起 厂商纷纷跟进](http://www.daogukj.com/2895651)
-- [美存储芯片光通信集体暴涨](http://www.daogukj.com/bmrafxkl/)
-- [如何看待王者荣耀上线高校认证功能，清华北大认证在二手平台炒到两千元，客服称已下线？这会加重学历焦虑吗？](http://www.movie.hkepx.cn/movie/6678209.htm)
-- [赵心童1-5不敌特鲁姆普无缘半决赛](http://www.daogukj.com/2230415)
-- [员工拒坐硬座通宵出差被开除](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
-- [王楚钦退赛1000卫冕积分即将清零](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
-- [这只猫，性格好到让我无语](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
-- [解毒大师](http://www.movie.hkepx.cn/xiju/6217864.htm)
-- [马斯克的无人驾驶车是划时代产品吗](http://www.movie.hkepx.cn/movie/4778790.htm)
-- [82岁朱幼麟在香港首驾张雪机车](http://www.movie.hkepx.cn/movie/7470449.htm)
-- [家长在寿司郎餐位用杯子给孩童接尿，顾客称服务员未加制止，从海底捞到寿司郎，门店遇此类事该怎么妥善处理？](http://www.movie.hkepx.cn/movie/6111499.htm)
-- [中国女篮不敌美国女篮](http://www.movie.hkepx.cn/xiju/2348853.htm)
-- [网友偶遇张馨予何捷广州看车](http://www.daogukj.com/fygnbifa/)
-- [极限挑战 重拍](http://www.daogukj.com/9070712)
-- [深圳校服“热搜” 本地家长“冷淡”](http://www.daogukj.com/hoflukum/)
-- [导师要求学生开门保持1.5米](http://www.daogukj.com/3336484)
-- [苹果现在才做折叠屏，是来得太晚，还是正好等到了技术成熟？](http://www.movie.hkepx.cn/movie/3675931.htm)
-- [罗志祥复出争议](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
-- [张帅蒋欣玗女双晋级](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
-- [为什么大部分老实人改不掉反应慢的毛病，被欺辱了不会当场反击，只会事后记仇？](http://www.daogukj.com/xljzrgjc/)
-- [我儿子开学上初一了，大概从四年级开始成绩开始下滑，现在只能考70分了，我应该放手吗？](http://www.daogukj.com/sfjdsknb/)
-- [日本请求俄拆纪念碑菊花纹章遭拒](http://www.movie.hkepx.cn/xiju/0712256.htm)
-- [突然之间破亿，鸿蒙系统和开源鸿蒙为什么发展的如此之快？](http://www.daogukj.com/blhofduy/)
-- [《花少2》 干活表](http://www.daogukj.com/qdmxuvra/)
-- [刘雯 避嫌](http://www.daogukj.com/3062862)
-- [章泽天不抢话为什么成了一个问题](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
-- [张雪机车法国站排位赛包揽前二](http://www.daogukj.com/4819328)
-- [贵州秋假连着中秋国庆休13天系谣言](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
-- [证监会开出2.55亿巨额罚单](http://www.movie.hkepx.cn/xiju/6449274.htm)
-- [史上最烂DC电影！万字赤石《超女》！](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
-- [公司霸气回应日本打机床牌卡中国脖子](http://www.movie.hkepx.cn/xiju/8624591.htm)
-- [国货零食全球爆单](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
-- [刘雯评论区](http://www.daogukj.com/2518516)
-- [菲法院为何下令逮捕副总统](http://www.movie.hkepx.cn/movie/2625646.htm)
-- [同样一道炒菜，马路边小饭馆卖30元，大饭店卖100元，有什么区别？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
-- [98岁老人25年捐款近6000万元](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
-- [俄罗斯建粉碎大日本帝国纪念碑](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
-- [接了好多蝌蚪…](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
-- [如何评价电影《一刀倾城》（又名神州第一刀）？](http://www.movie.hkepx.cn/xiju/9162988.htm)
-- [女子吃甜虾后肚子痛 10 多天，肠道发现寄生虫，人们常说海水里的生鲜没有寄生虫靠谱吗？怎样吃才安全？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
-- [如何评价勇哥新开的社区食堂？](http://www.daogukj.com/xfhybzga/)
-- [皇马 姆巴佩](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
+- [小学回应家长自费买349元一套桌椅](http://www.daogukj.com/srmtipfy/)
+- [美国总统爱吃的芝士牛排三明治，什么味儿？](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
+- [吴恩达称「AI时代部分高校困在22年」，高校现在真和AI时代脱节了吗？学生又该如何跟上时代的步伐？](http://www.daogukj.com/5764219)
+- [赵一鸣门店回应幼童排便后家长离开](http://www.daogukj.com/5051205)
+- [慢下来，就会死！](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
+- [旗腹姬蜂是蟑螂杀手](http://www.movie.hkepx.cn/movie/3745200.htm)
+- [“梅姨”画像更新](http://www.daogukj.com/eptgayul/)
+- [猪奶为何成不了人类饮品](http://www.daogukj.com/zzzmzdnw/)
+- [为什么下围棋讲究安静，不能像下象棋一样周围围一圈人七嘴八舌的指指点点？](http://www.daogukj.com/2895651)
+- [女子配型救母发现非亲生称将起诉医院](http://www.daogukj.com/bmrafxkl/)
+- [两名美军水兵在巴达雅喝醉后打架](http://www.movie.hkepx.cn/movie/6678209.htm)
+- [花600天做一道菜，切开的瞬间发光了！](http://www.daogukj.com/2230415)
+- [两岁男童误把百草枯当饮料喝下](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
+- [井柏然 毛阿敏同款发型](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
+- [如何评价《凡人修仙传》第190集？](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
+- [自从有了电车](http://www.movie.hkepx.cn/xiju/6217864.htm)
+- [为啥银行会出现「存 1 年利息高于存 5 年」的倒挂？会给普通储户带来哪些影响？](http://www.movie.hkepx.cn/movie/4778790.htm)
+- [98岁老人25年捐款近6000万元](http://www.movie.hkepx.cn/movie/7470449.htm)
+- [女子吃甜虾后肚子痛 10 多天，肠道发现寄生虫，人们常说海水里的生鲜没有寄生虫靠谱吗？怎样吃才安全？](http://www.movie.hkepx.cn/movie/6111499.htm)
+- [菲法院为何下令逮捕副总统](http://www.movie.hkepx.cn/xiju/2348853.htm)
+- [雪花牛肉疑似造假](http://www.daogukj.com/fygnbifa/)
+- [我好像突然对钱有了概念](http://www.daogukj.com/9070712)
+- [汤家凤呼吁取消英语主科地位](http://www.daogukj.com/hoflukum/)
+- [安静公主说王俊凯粉丝既要又要](http://www.daogukj.com/3336484)
+- [极限挑战六人重聚为何争议重重](http://www.movie.hkepx.cn/movie/3675931.htm)
+- [西藏泥石流已致 31 死 531 失联，发现遗物 987 件，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
+- [LCK 季后赛 DK 3:1 KT，DK 晋级 S16 全球总决赛，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
+- [江苏一小学家长自费更换桌椅，校方称「学校提供桌椅，家长自主行为」，如何看待此事？](http://www.daogukj.com/xljzrgjc/)
+- [美国『林肯』号航母现身油漆脱落、遍布锈迹，这在航母日常维护中属于正常现象吗？](http://www.daogukj.com/sfjdsknb/)
+- [1岁裸体男童沙漠走失12小时](http://www.movie.hkepx.cn/xiju/0712256.htm)
+- [华为何庭波再提「本该烧毁的『τ芯片』」，这揭示了华为怎样的芯片自研能力？](http://www.daogukj.com/blhofduy/)
+- [中级会计 好难](http://www.daogukj.com/qdmxuvra/)
+- [港姐王菲与歌手张子丰宣布订婚](http://www.daogukj.com/3062862)
+- [“宇宙最大医院”连续3任院长落马](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
+- [江西遂川山体滑坡已致1死11失联](http://www.daogukj.com/4819328)
+- [剧本杀 色情服务](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
+- [江苏省委书记省长带头捐款](http://www.movie.hkepx.cn/xiju/6449274.htm)
+- [多诺米骨牌](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
+- [1岁裸体男童沙漠走失12小时被找到](http://www.movie.hkepx.cn/xiju/8624591.htm)
+- [张雪机车今晚冲击第七冠](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
+- [中国证监会开出天价罚单](http://www.daogukj.com/2518516)
+- [超1万册永乐大典副本下落不明](http://www.movie.hkepx.cn/movie/2625646.htm)
+- [考研数学名师汤家凤呼吁取消英语主科地位，你赞同吗？将对人才培养和学生发展带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
+- [轮椅老人上高架蓄意碰瓷？不实](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
+- [苹果将迎最大规模产品发布潮](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
+- [联通在青岛大学与校方起冲突系谣言](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
+- [我们全班都在嘲笑物理老师那支丑爆了的棕色](http://www.movie.hkepx.cn/xiju/9162988.htm)
+- [有什么XX把XX带到了不属于它高度的鲜活例子？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
+- [这次是真玩爽了](http://www.daogukj.com/xfhybzga/)
+- [张凌赫卢昱晓进组](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
 
 </details>
 
 ## 原始来源
 
-- [手机涨价 最先扛不住的竟是经销商](https://www.baidu.com/s?wd=%E6%89%8B%E6%9C%BA%E6%B6%A8%E4%BB%B7+%E6%9C%80%E5%85%88%E6%89%9B%E4%B8%8D%E4%BD%8F%E7%9A%84%E7%AB%9F%E6%98%AF%E7%BB%8F%E9%94%80%E5%95%86&sa=fyb_news&rsv_dl=fyb_news)
+- [这种鞋子不要给孩子天天穿](https://www.baidu.com/s?wd=%E8%BF%99%E7%A7%8D%E9%9E%8B%E5%AD%90%E4%B8%8D%E8%A6%81%E7%BB%99%E5%AD%A9%E5%AD%90%E5%A4%A9%E5%A4%A9%E7%A9%BF&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 96c8b3c6f600b2caa4b9 -->
+<!-- content-fingerprint: 6bab62987472890c87b5 -->
