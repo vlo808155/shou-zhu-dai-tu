@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 对标SpaceX 西安这家公司出手了
+# 手机涨价 最先扛不住的竟是经销商
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7426753 · 更新：2026-09-05T07:26:09+08:00
+> 来源：百度热搜 · 排名：第 4 位 · 热度：7428173 · 更新：2026-09-05T09:17:39+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“对标SpaceX 西安这家公司出手了”位列第 4 位，公开热度指标为 7426753。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“手机涨价 最先扛不住的竟是经销商”位列第 4 位，公开热度指标为 7428173。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：日前，西部航天科技（陕西）集团有限公司发布“超级工厂”项目招标计划，总投资38亿元。项目涵盖火箭与卫星制造，对标SpaceX打造“星箭一体”协同布局，填补了陕西商业航天在整星整箭总装总测、系统集成方面的空白。
+来源公开摘要显示：日前，多家品牌同步上调手机官方标价。然而，市场呈现明显反差：品牌官方标价普涨，但终端实际成交价并未同步走高。有经销商坦言，自品牌启动调价后，旗下门店销量同比普遍下滑两至三成，经营压力已触及历史高点。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [极限挑战 重拍](wang-mei-zhi-ke.md)
-- [解放军将派出兵力赴俄参加实兵演习](wen-ji-qi-wu.md)
-- [如何评价勇哥新开的社区食堂？](wo-xin-chang-dan.md)
-- [【半佛】下一代的孩子还会知道原神吗？](po-fu-chen-zhou.md)
+- [超1万册永乐大典副本下落不明](wang-mei-zhi-ke.md)
+- [中国女篮不敌美国女篮](wen-ji-qi-wu.md)
+- [同样一道炒菜，马路边小饭馆卖30元，大饭店卖100元，有什么区别？](wo-xin-chang-dan.md)
+- [我发现了动画最离谱的BUG？](po-fu-chen-zhou.md)
 
 ## 站内推荐
 
 - [今年的东博会、峰会有哪些不同](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [吴易昺止步美网32强](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [刘雯评论区](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [2015湖南台综艺有多神](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [俄罗斯建粉碎大日本帝国纪念碑](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [在夜市买了一只很可爱的串串小狗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [刘雯 避嫌](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [导师要求学生开门保持1.5米](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [张帅蒋欣玗女双晋级](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [“张雪机车”再夺第1名](http://www.daogukj.com/srmtipfy/)
-- [华为国行 5G 疑似回归，Mate90 系列入网，为何在此时选择回归？其 5G 回归有何技术突破创新？](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
-- [李月汝护照弄丢到底是谁的责任](http://www.daogukj.com/5764219)
+- [中国拼好房 全球开眼了](http://www.daogukj.com/srmtipfy/)
+- [洪水侵袭“中国白茶第一镇”](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
+- [工人因赊1碗面后连续吃121天](http://www.daogukj.com/5764219)
 - [男子与前女友纠纷被其现男友压制致死](http://www.daogukj.com/5051205)
-- [《绝区零》克拉蕾角色展示 | 不想培训，但攻略已写好](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
-- [云南人最宝贝的一根棍子，巨下饭！](http://www.movie.hkepx.cn/movie/3745200.htm)
-- [上海到成都被订硬座还打卡女子拒出差](http://www.daogukj.com/eptgayul/)
-- [多诺米骨牌](http://www.daogukj.com/zzzmzdnw/)
-- [长期这样吃饭全身炎症上升](http://www.daogukj.com/2895651)
-- [男子得知母亲去世大哭到无法开车](http://www.daogukj.com/bmrafxkl/)
-- [张雪机车法国站排位赛包揽前二](http://www.movie.hkepx.cn/movie/6678209.htm)
-- [史上最烂DC电影！万字赤石《超女》！](http://www.daogukj.com/2230415)
-- [贺娇龙母亲：不要为她立雕像](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
-- [抗癌博主小詹去世 年仅24岁](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
-- [大学养的 10 只鸡和 2 只鹅被校内工人偷走，施工方赔7000元，如何看待处罚结果？应承担哪些责任？](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
-- [本该退伍的22名子弟兵主动请战](http://www.movie.hkepx.cn/xiju/6217864.htm)
-- [中国女篮不敌美国女篮](http://www.movie.hkepx.cn/movie/4778790.htm)
-- [“梅姨”画像更新](http://www.movie.hkepx.cn/movie/7470449.htm)
-- [如何看待《重案六组：消失的警号》开播后，观众呼吁「还我季洁」？季洁为何在观众心中不可替代？](http://www.movie.hkepx.cn/movie/6111499.htm)
-- [解放军将派出兵力赴俄参加实兵演习](http://www.movie.hkepx.cn/xiju/2348853.htm)
-- [佟丽娅与陈思诚合体带娃吃饭](http://www.daogukj.com/fygnbifa/)
-- [为什么现在这么流行耳夹式耳机](http://www.daogukj.com/9070712)
-- [上海和平饭店回应一杯椰汁50元](http://www.daogukj.com/hoflukum/)
-- [2015湖南台综艺有多神](http://www.daogukj.com/3336484)
-- [如何将过度思考变成深度思考？](http://www.movie.hkepx.cn/movie/3675931.htm)
-- [王楚钦退赛1000卫冕积分即将清零](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
-- [俄罗斯建粉碎大日本帝国纪念碑](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
+- [真实事件改编！一口气抢268个银行保险柜，翻出公主私密照，官员play实录，有钱人玩儿得够花！《银行大劫案》](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
+- [多诺米骨牌](http://www.movie.hkepx.cn/movie/3745200.htm)
+- [为什么现在这么流行耳夹式耳机](http://www.daogukj.com/eptgayul/)
+- [结城理的入职测试！【明日方舟】](http://www.daogukj.com/zzzmzdnw/)
+- [“阔屏手机”风起 厂商纷纷跟进](http://www.daogukj.com/2895651)
+- [美存储芯片光通信集体暴涨](http://www.daogukj.com/bmrafxkl/)
+- [如何看待王者荣耀上线高校认证功能，清华北大认证在二手平台炒到两千元，客服称已下线？这会加重学历焦虑吗？](http://www.movie.hkepx.cn/movie/6678209.htm)
+- [赵心童1-5不敌特鲁姆普无缘半决赛](http://www.daogukj.com/2230415)
+- [员工拒坐硬座通宵出差被开除](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
+- [王楚钦退赛1000卫冕积分即将清零](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
+- [这只猫，性格好到让我无语](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
+- [解毒大师](http://www.movie.hkepx.cn/xiju/6217864.htm)
+- [马斯克的无人驾驶车是划时代产品吗](http://www.movie.hkepx.cn/movie/4778790.htm)
+- [82岁朱幼麟在香港首驾张雪机车](http://www.movie.hkepx.cn/movie/7470449.htm)
+- [家长在寿司郎餐位用杯子给孩童接尿，顾客称服务员未加制止，从海底捞到寿司郎，门店遇此类事该怎么妥善处理？](http://www.movie.hkepx.cn/movie/6111499.htm)
+- [中国女篮不敌美国女篮](http://www.movie.hkepx.cn/xiju/2348853.htm)
+- [网友偶遇张馨予何捷广州看车](http://www.daogukj.com/fygnbifa/)
+- [极限挑战 重拍](http://www.daogukj.com/9070712)
+- [深圳校服“热搜” 本地家长“冷淡”](http://www.daogukj.com/hoflukum/)
+- [导师要求学生开门保持1.5米](http://www.daogukj.com/3336484)
+- [苹果现在才做折叠屏，是来得太晚，还是正好等到了技术成熟？](http://www.movie.hkepx.cn/movie/3675931.htm)
+- [罗志祥复出争议](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
+- [张帅蒋欣玗女双晋级](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
 - [为什么大部分老实人改不掉反应慢的毛病，被欺辱了不会当场反击，只会事后记仇？](http://www.daogukj.com/xljzrgjc/)
 - [我儿子开学上初一了，大概从四年级开始成绩开始下滑，现在只能考70分了，我应该放手吗？](http://www.daogukj.com/sfjdsknb/)
 - [日本请求俄拆纪念碑菊花纹章遭拒](http://www.movie.hkepx.cn/xiju/0712256.htm)
-- [苹果现在才做折叠屏，是来得太晚，还是正好等到了技术成熟？](http://www.daogukj.com/blhofduy/)
-- [纯过日子人](http://www.daogukj.com/qdmxuvra/)
-- [刘雯评论区](http://www.daogukj.com/3062862)
-- [为什么手机卖不动了反而要涨价](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
-- [52名新加坡公民在广西被捕](http://www.daogukj.com/4819328)
+- [突然之间破亿，鸿蒙系统和开源鸿蒙为什么发展的如此之快？](http://www.daogukj.com/blhofduy/)
+- [《花少2》 干活表](http://www.daogukj.com/qdmxuvra/)
+- [刘雯 避嫌](http://www.daogukj.com/3062862)
+- [章泽天不抢话为什么成了一个问题](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
+- [张雪机车法国站排位赛包揽前二](http://www.daogukj.com/4819328)
 - [贵州秋假连着中秋国庆休13天系谣言](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
-- [员工拒坐硬座通宵出差被开除](http://www.movie.hkepx.cn/xiju/6449274.htm)
-- [笑死~日本新发现一名铁血精中！！比98%的中国人都愿意爱中国！！](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
-- [如是书院学员辟谷一天只喝水吃5个枣](http://www.movie.hkepx.cn/xiju/8624591.htm)
-- [防止职校生实习成“法外飞地”](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
-- [吴易昺0比3阿尔卡拉斯](http://www.daogukj.com/2518516)
-- [新加坡谈52人在广西涉案被扣](http://www.movie.hkepx.cn/movie/2625646.htm)
-- [如何评价勇哥新开的社区食堂？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
-- [吴易昺0-3阿尔卡拉斯](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
-- [男子被打持刀反抗却遭压制窒息而死](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
-- [这只猫，性格好到让我无语](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
-- [尼泊尔校长 10 秒内撤离 900 学生，对学校灾害应急预案有何借鉴意义？](http://www.movie.hkepx.cn/xiju/9162988.htm)
-- [突然之间破亿，鸿蒙系统和开源鸿蒙为什么发展的如此之快？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
-- [如何评价电影《一刀倾城》（又名神州第一刀）？](http://www.daogukj.com/xfhybzga/)
-- [这是真正凭本事吃饭的行业](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
+- [证监会开出2.55亿巨额罚单](http://www.movie.hkepx.cn/xiju/6449274.htm)
+- [史上最烂DC电影！万字赤石《超女》！](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
+- [公司霸气回应日本打机床牌卡中国脖子](http://www.movie.hkepx.cn/xiju/8624591.htm)
+- [国货零食全球爆单](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
+- [刘雯评论区](http://www.daogukj.com/2518516)
+- [菲法院为何下令逮捕副总统](http://www.movie.hkepx.cn/movie/2625646.htm)
+- [同样一道炒菜，马路边小饭馆卖30元，大饭店卖100元，有什么区别？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
+- [98岁老人25年捐款近6000万元](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
+- [俄罗斯建粉碎大日本帝国纪念碑](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
+- [接了好多蝌蚪…](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
+- [如何评价电影《一刀倾城》（又名神州第一刀）？](http://www.movie.hkepx.cn/xiju/9162988.htm)
+- [女子吃甜虾后肚子痛 10 多天，肠道发现寄生虫，人们常说海水里的生鲜没有寄生虫靠谱吗？怎样吃才安全？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
+- [如何评价勇哥新开的社区食堂？](http://www.daogukj.com/xfhybzga/)
+- [皇马 姆巴佩](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
 
 </details>
 
 ## 原始来源
 
-- [对标SpaceX 西安这家公司出手了](https://www.baidu.com/s?wd=%E5%AF%B9%E6%A0%87SpaceX+%E8%A5%BF%E5%AE%89%E8%BF%99%E5%AE%B6%E5%85%AC%E5%8F%B8%E5%87%BA%E6%89%8B%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
+- [手机涨价 最先扛不住的竟是经销商](https://www.baidu.com/s?wd=%E6%89%8B%E6%9C%BA%E6%B6%A8%E4%BB%B7+%E6%9C%80%E5%85%88%E6%89%9B%E4%B8%8D%E4%BD%8F%E7%9A%84%E7%AB%9F%E6%98%AF%E7%BB%8F%E9%94%80%E5%95%86&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d9f4a4f175ff6585e494 -->
+<!-- content-fingerprint: 96c8b3c6f600b2caa4b9 -->
