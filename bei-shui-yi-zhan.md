@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 年轻人正在“忘记”打字
+# 同名同姓同年同月同日生同校同专业
 
-> 来源：百度热搜 · 排名：第 5 位 · 热度：7332245 · 更新：2026-09-07T05:42:22+08:00
+> 来源：百度热搜 · 排名：第 5 位 · 热度：7334288 · 更新：2026-09-07T07:16:07+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“年轻人正在“忘记”打字”位列第 5 位，公开热度指标为 7332245。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“同名同姓同年同月同日生同校同专业”位列第 5 位，公开热度指标为 7334288。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近年来，越来越多的年轻人，聊天时不再低着头敲屏幕打字，而是对着手机麦克风，按住说话。分析认为，打字不会完全消失，但角色会改变。正如网友热议的那样：“键盘不会立刻消失，但在越来越多的场景里，它已经悄悄退成语音之后的‘编辑器’。”
+来源公开摘要显示：9月6日，三峡大学新生报到，数据科学与大数据技术专业迎来两位“刘欣怡”。两人不仅同名同姓，且同年同月同日生，高考成绩仅相差3分。两人对此感到惊喜，相约大学四年携手努力。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,18 +18,18 @@
 
 ## 相关热点
 
-- [中国女篮大概率小组出线](zhi-shang-tan-bing.md)
-- [高校两新生同名同姓同年同月同日生](wei-wei-jiu-zhao.md)
-- [「葫芦娃爷爷」剪掉了全网走红的 7 个青葫芦，为何要提前剪藤？游客的「热情」为何最终成了老人的负担？](wan-bi-gui-zhao.md)
-- [三年之期已到，恭迎世一上归位！【第7集】](fu-jing-qing-zui.md)
+- [为啥大家不穿皮鞋了](zhi-shang-tan-bing.md)
+- [中国女篮力克捷克 出线占据主动](wei-wei-jiu-zhao.md)
+- [胖东来要求供应商提供社保，此举对行业发展有何影响？](wan-bi-gui-zhao.md)
+- [《崩坏：星穹铁道》千星纪游PV——「深水区」](fu-jing-qing-zui.md)
 
 ## 站内推荐
 
 - [滕王阁 终身免费票](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [同名同姓同年同月同日生同校同专业](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [“东山再起”的东山在哪](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [郑钦文美网惊天逆转](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [8家中央金融企业迎来增资 有何考量](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [白露时节如何养生](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [井柏然的两次扔行李箱](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [内蒙古贺兰山发现6个新物种](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [微塑料 10大日用品](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [女生赴港看演唱会被取消低保](http://www.play.hengshemaoyi.cn/kongbu/0102137.htm)
-- [以为是偏心没想到是贫穷](http://www.movie.hkepx.cn/xiju/5709027.htm)
+- [美网认证郑钦文Queen](http://www.movie.hkepx.cn/xiju/5709027.htm)
 - [《下一个是谁》第七季（4）](http://www.daogukj.com/ptmfwdkn/)
 - [如何看待阿根廷总统米莱表示，英国应像把香港归还给中国一样，把马岛归还给阿根廷，阿方可接受香港模式？](http://www.movie.hkepx.cn/xiju/7509997.htm)
-- [怎么有网友让我走到西藏啊…](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
-- [大家不爱住民宿了吗](http://www.movie.hkepx.cn/xiju/7276031.htm)
-- [婚内强奸案男子性侵妻子拍下视频](http://www.daogukj.com/qxoqgypn/)
-- [俄新武器击碎乌民众“战局扭转”幻想](http://www.daogukj.com/2637140)
-- [我去了世界最大的男女混浴温泉瀑布，泡起来到底多刺激？](http://www.daogukj.com/lcagyyzr/)
-- [8家中央金融企业迎来增资 有何考量](http://www.daogukj.com/nckagbek/)
-- [北京的路边摊都去了哪儿](http://www.movie.hkepx.cn/movie/0871738.htm)
-- [为啥白宫开始流行吃酸菜了？万斯自称吃酸菜减重成功，酸菜真能减肥吗？](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
-- [财政部将向中国工商银行等八家金融央企增资共计 3600 亿元，如何解读？](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
+- [假如格林穿越到了re0的世界（王选篇3）](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
+- [官方回应赴港看演唱会被取消全家低保](http://www.movie.hkepx.cn/xiju/7276031.htm)
+- [陈晓妈妈仍会帮陈妍希带孩子](http://www.daogukj.com/qxoqgypn/)
+- [一张地图何以引发164比1的国际对峙](http://www.daogukj.com/2637140)
+- [我爸是老总，公司大部分女性都是他情人，还有5个私生子，又用我的名字贷了巨款，让我无法翻身【探照灯计划】](http://www.daogukj.com/lcagyyzr/)
+- [微塑料 10大日用品](http://www.daogukj.com/nckagbek/)
+- [总被蚊子盯上难道真是血型惹的祸](http://www.movie.hkepx.cn/movie/0871738.htm)
+- [AI 写出来的代码越来越多，未来的软件会不会变得「没人真正看得懂」？](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
+- [多地严查赵一鸣、好想来等量贩零食品牌，有人买4块牛肉干64.58元复秤17.29元，暴露出哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
 - [滕王阁 终身免费票](http://www.daogukj.com/kwifztpg/)
-- [LPL四强出炉](http://www.movie.hkepx.cn/movie/5703439.htm)
-- [ETC该不该取消](http://www.daogukj.com/ifbvcvnj/)
-- [女子怀孕后工资从8000调到3000](http://www.daogukj.com/6568203)
+- [爷爷提前剪葫芦是给流量的一记耳光](http://www.movie.hkepx.cn/movie/5703439.htm)
+- [央视曝光幽灵外卖乱象](http://www.daogukj.com/ifbvcvnj/)
+- [财政部将发行3000亿特别国债](http://www.daogukj.com/6568203)
 - [贵中医二附院一医生疑被患者捅伤，一名肠癌患者将刀具藏在锦旗中带入，警方通报嫌疑人被刑拘，如何看待此事？](http://www.daogukj.com/0211136)
-- [多地严查赵一鸣、好想来等量贩零食品牌，有人买4块牛肉干64.58元复秤17.29元，暴露出哪些问题？](http://www.movie.hkepx.cn/xiju/0370085.htm)
-- [“塞夫”拍完告别戏崩溃大哭](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
-- [华强买瓜，但死神来了](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
-- [【早期视频】逃离电视宝宝联机，绝命逃亡](http://www.movie.hkepx.cn/xiju/4676858.htm)
-- [我爸是老总，公司大部分女性都是他情人，还有5个私生子，又用我的名字贷了巨款，让我无法翻身【探照灯计划】](http://www.movie.hkepx.cn/movie/9996697.htm)
-- [【招笑版】新僵尸1:健忘撑杆跳](http://www.movie.hkepx.cn/xiju/2854874.htm)
-- [三年之期已到，恭迎世一上归位！【第7集】](http://www.daogukj.com/crhtjcoa/)
-- [阿森纳切尔西 互捅局](http://www.movie.hkepx.cn/xiju/5398219.htm)
+- [江西一低保家庭女孩自己攒钱去香港看演唱会，网传其全家低保资格被取消，当地民政局回应正在核查，你怎么看？](http://www.movie.hkepx.cn/xiju/0370085.htm)
+- [400元买块“塑料砖头”戒手机](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
+- [当你吃出口腔溃疡时体内正在发生什么](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
+- [全网首发！爆肝3天！S11新NPC佐拉、唐吉任务线全流程攻略！完成后送口琴和火箭！可演奏可互动可入局！单人几乎无法完成！](http://www.movie.hkepx.cn/xiju/4676858.htm)
+- [西部神枪手快意恩仇，亲手报血海深仇后，却坠入一场惊天大阴谋](http://www.movie.hkepx.cn/movie/9996697.htm)
+- [困守地面！丧尸与极寒步步紧逼？！绝境之下我们如何重返天空？！缆车末日惊变 100 天！](http://www.movie.hkepx.cn/xiju/2854874.htm)
+- [《崩坏：星穹铁道》千星纪游PV——「深水区」](http://www.daogukj.com/crhtjcoa/)
+- [半个娱乐圈明星都去李宇春演唱会](http://www.movie.hkepx.cn/xiju/5398219.htm)
 - [相约“青春华章”](http://www.movie.hkepx.cn/xiju/9887508.htm)
-- [江西一低保家庭女孩自己攒钱去香港看演唱会，网传其全家低保资格被取消，当地民政局回应正在核查，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/6315447.htm)
-- [阿森纳2比1切尔西](http://www.movie.hkepx.cn/movie/8094400.htm)
+- [财政部将向中国工商银行等八家金融央企增资共计 3600 亿元，如何解读？](http://www.play.hengshemaoyi.cn/xiju/6315447.htm)
+- [中国博主伦敦直播遭外籍青年挑衅殴打](http://www.movie.hkepx.cn/movie/8094400.htm)
 - [多地严查赵一鸣等零食品牌](http://www.movie.hkepx.cn/movie/8053500.htm)
-- [校长回应开学一年级只有一个人报到](http://www.movie.hkepx.cn/xiju/8733503.htm)
+- [高校两新生同名同姓同年同月同日生](http://www.movie.hkepx.cn/xiju/8733503.htm)
 - [安徽 新“五子登科”](http://www.play.hengshemaoyi.cn/kongbu/6039715.htm)
-- [4位车企掌门人首次同时来到一所大学](http://www.daogukj.com/9356439)
+- [俄新武器击碎乌民众“战局扭转”幻想](http://www.daogukj.com/9356439)
 - [多家银行集中「清淤」，工行核销超 800 亿元，背后原因是什么？释放出哪些信号？](http://www.daogukj.com/ianqofdj/)
-- [单亲妈妈月捐数年无人问停捐后遭催捐](http://www.daogukj.com/sizrvcao/)
+- [毛阿敏工作室早期博文 活人感](http://www.daogukj.com/sizrvcao/)
 - [网传“青铜峡大坝开始泄洪”系谣言](http://www.play.hengshemaoyi.cn/xiju/7255725.htm)
-- [全球首个乙肝功能性治愈新药日本获批，慢性乙肝患者这下真能摆脱终身服药了吗？](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
+- [如何看待张家齐已是奥运冠军，妈妈却仍因她不会收拾、整理而频繁数落？暴露了怎样的亲子关系问题？](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
 - [62岁后睡觉尽量做到这4点](http://www.daogukj.com/rwxeygms/)
 - [中国节水账本里的“节约密码”](http://www.play.hengshemaoyi.cn/kongbu/9837059.htm)
-- [财政部将发行3000亿特别国债](http://www.daogukj.com/2160602)
+- [陈妍希离婚后首谈二胎](http://www.daogukj.com/2160602)
 - [《杜鹃》](http://www.play.hengshemaoyi.cn/kongbu/7208069.htm)
 - [如何评价据传iPhone 18 Pro 9999元起，Ultra 14999元起，新增红色和蓝色款？](http://www.movie.hkepx.cn/movie/2235201.htm)
-- [九年义务教育，正在变成“义务坐牢”——“减负”反变“增负”，一个小学老师发现了背后的残酷真相](http://www.play.hengshemaoyi.cn/kongbu/1046080.htm)
-- [《崩坏：星穹铁道》千星纪游PV——「深水区」](http://www.movie.hkepx.cn/xiju/2538742.htm)
-- [「葫芦娃爷爷」剪掉了全网走红的 7 个青葫芦，为何要提前剪藤？游客的「热情」为何最终成了老人的负担？](http://www.daogukj.com/9489918)
+- [我去了世界最大的男女混浴温泉瀑布，泡起来到底多刺激？](http://www.play.hengshemaoyi.cn/kongbu/1046080.htm)
+- [三年之期已到，恭迎世一上归位！【第7集】](http://www.movie.hkepx.cn/xiju/2538742.htm)
+- [胖东来要求供应商提供社保，此举对行业发展有何影响？](http://www.daogukj.com/9489918)
 - [【独家】牧神记 第99集 医毒斗法](http://www.movie.hkepx.cn/xiju/2931592.htm)
-- [中国女篮力克捷克 出线占据主动](http://www.daogukj.com/ottjwhke/)
-- [如何看待联合国倡导使用“平等地球投影法”，这会让统治地图圈几百年的“墨卡托投影”彻底退出历史舞台吗？](http://www.movie.hkepx.cn/movie/7215484.htm)
-- [胖东来要求供应商提供社保，此举对行业发展有何影响？](http://www.movie.hkepx.cn/xiju/4060244.htm)
-- [萌娃进滕王阁 系统提示终身免费票](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
+- [萌娃进滕王阁 系统提示终身免费票](http://www.daogukj.com/ottjwhke/)
+- [章泽天专访何超琼时被指采访深度不足，甚至出现「主客反转」，你如何评价她的采访水平？](http://www.movie.hkepx.cn/movie/7215484.htm)
+- [5岁女童电子病历被医生标注“刁蛮”，卫健局工作人员称当事人网上发帖是抹黑当地，如何看待此事？](http://www.movie.hkepx.cn/xiju/4060244.htm)
+- [女子怀孕后工资从8000调到3000](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
 
 </details>
 
 ## 原始来源
 
-- [年轻人正在“忘记”打字](https://www.baidu.com/s?wd=%E5%B9%B4%E8%BD%BB%E4%BA%BA%E6%AD%A3%E5%9C%A8%E2%80%9C%E5%BF%98%E8%AE%B0%E2%80%9D%E6%89%93%E5%AD%97&sa=fyb_news&rsv_dl=fyb_news)
+- [同名同姓同年同月同日生同校同专业](https://www.baidu.com/s?wd=%E5%90%8C%E5%90%8D%E5%90%8C%E5%A7%93%E5%90%8C%E5%B9%B4%E5%90%8C%E6%9C%88%E5%90%8C%E6%97%A5%E7%94%9F%E5%90%8C%E6%A0%A1%E5%90%8C%E4%B8%93%E4%B8%9A&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8113aa614f86d137b4b6 -->
+<!-- content-fingerprint: f001dc43e21976df4b61 -->
