@@ -2,11 +2,11 @@
 
 # 赴港看演唱会被取消低保？当地回应
 
-> 来源：百度热搜 · 排名：第 6 位 · 热度：7237286 · 更新：2026-09-06T23:40:34+08:00
+> 来源：百度热搜 · 排名：第 6 位 · 热度：7234734 · 更新：2026-09-07T01:43:03+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“赴港看演唱会被取消低保？当地回应”位列第 6 位，公开热度指标为 7237286。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“赴港看演唱会被取消低保？当地回应”位列第 6 位，公开热度指标为 7234734。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：近日，一则“江西赣州一名低保家庭女生因赴香港观看演唱会，返程后全家低保资格被取消”的消息在网络上持续发酵。9月6日，赣州市民政局值班人员表示，市本级及下属各县市区正在对该事件进行核查，目前尚未确认具体情况。
 
@@ -18,73 +18,73 @@
 
 ## 相关热点
 
-- [花少2摄影师曾劝杨洋明天跑吧](san-gu-mao-lu.md)
-- [谁在郑钦文低谷期选择了“不分手”](cao-mu-jie-bing.md)
+- [中国女篮大概率小组出线](san-gu-mao-lu.md)
+- [一张地图何以引发164比1的国际对峙](cao-mu-jie-bing.md)
 - [如何看待张家齐已是奥运冠军，妈妈却仍因她不会收拾、整理而频繁数落？暴露了怎样的亲子关系问题？](feng-sheng-he-li.md)
-- [三年之期已到，恭迎世一上归位！【第7集】](ru-huo-ru-tu.md)
+- [【STN快报第8.5季19】这德国科隆给我干哪来了？这真不是国内吗？](ru-huo-ru-tu.md)
 
 ## 站内推荐
 
 - [小区禁止新能源汽车进地库 律师解读](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
 - [女篮世界杯中国队加时险胜捷克队](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
 - [除了惊天逆转 郑钦文还有高情商发言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [同名同姓同年同月同日生同校同专业](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [中国博主伦敦直播遭外籍青年挑衅殴打](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [埃弗顿绝平曼联](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [电视台 卖药](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [一张地图何以引发164比1的国际对峙](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
-- [丁程鑫手伤是断掉了](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
-- [为啥大家不穿皮鞋了](http://www.daogukj.com/hiiwohqb/)
-- [财政部将发行3000亿特别国债](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
-- [交锋](http://www.daogukj.com/2806482)
+- [终南山怪虫](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
+- [校长回应开学一年级只有一个人报到](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
+- [为什么没人喝猪奶](http://www.daogukj.com/hiiwohqb/)
+- [全球首个乙肝功能性治愈新药日本获批，慢性乙肝患者这下真能摆脱终身服药了吗？](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
+- [大家不爱住民宿了吗](http://www.daogukj.com/2806482)
 - [滕王阁 终身免费票](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
 - [演员郑国霖回应成NPC顶流：剧本多了](http://www.daogukj.com/9832220)
-- [如何评价据传iPhone 18 Pro 9999元起，Ultra 14999元起，新增红色和蓝色款？](http://www.movie.hkepx.cn/xiju/4624070.htm)
-- [《下一个是谁》第七季（4）](http://www.movie.hkepx.cn/movie/0841033.htm)
-- [杨舒予绝平](http://www.movie.hkepx.cn/movie/4609262.htm)
-- [拜登儿子亨特称可能会参选美国总统](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
-- [葫芦娃爷爷 流量暴力](http://www.daogukj.com/1127111)
-- [财政部将向中国太平注资70亿](http://www.daogukj.com/pldvwggd/)
+- [八国外长联合声明强烈谴责以色列](http://www.movie.hkepx.cn/xiju/4624070.htm)
+- [华强买瓜，但死神来了](http://www.movie.hkepx.cn/movie/0841033.htm)
+- [肖战背后拍爸妈看李宇春演唱会](http://www.movie.hkepx.cn/movie/4609262.htm)
+- [女子怀孕后工资从8000调到3000](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
+- [财政部将向中国人寿注资350亿](http://www.daogukj.com/1127111)
+- [女生赴港看演唱会被取消低保](http://www.daogukj.com/pldvwggd/)
 - [青春华章向新而行](http://www.movie.hkepx.cn/xiju/1287269.htm)
-- [谁在郑钦文低谷期选择了“不分手”](http://www.daogukj.com/unklghpc/)
-- [校长回应开学一年级只有一个人报到](http://www.daogukj.com/4404570)
-- [中国博主伦敦直播遭外籍青年挑衅殴打](http://www.daogukj.com/wfqplasc/)
-- [华强买瓜，但死神来了](http://www.daogukj.com/grgritvr/)
+- [一张地图何以引发164比1的国际对峙](http://www.daogukj.com/unklghpc/)
+- [张雪机车法国站次回合获得第3名](http://www.daogukj.com/4404570)
+- [电视台 卖药](http://www.daogukj.com/wfqplasc/)
+- [三年之期已到，恭迎世一上归位！【第7集】](http://www.daogukj.com/grgritvr/)
 - [婚内强奸案男子性侵妻子拍下视频](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
-- [【2026LPL第三赛段】9月6日 IG vs WE](http://www.movie.hkepx.cn/movie/3539496.htm)
+- [《下一个是谁》第七季（4）](http://www.movie.hkepx.cn/movie/3539496.htm)
 - [井柏然的两次扔行李箱](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
-- [LGD晋级LPL四强](http://www.movie.hkepx.cn/xiju/3922759.htm)
-- [8家中央金融企业迎来增资 有何考量](http://www.daogukj.com/ynpujsgi/)
-- [不同北京人的住处差异](http://www.movie.hkepx.cn/movie/2603972.htm)
-- [网友便宜出售莆田泡水鞋 商家打假](http://www.daogukj.com/9238608)
-- [为啥白宫开始流行吃酸菜了？万斯自称吃酸菜减重成功，酸菜真能减肥吗？](http://www.daogukj.com/xdtzeasn/)
+- [陈妍希想认林心如女儿做儿媳妇](http://www.movie.hkepx.cn/xiju/3922759.htm)
+- [又是闹麻了的一天 Ep.14 【AI全民制作人】](http://www.daogukj.com/ynpujsgi/)
+- [给盲人投放弹窗广告？](http://www.movie.hkepx.cn/movie/2603972.htm)
+- [如何评价据传iPhone 18 Pro 9999元起，Ultra 14999元起，新增红色和蓝色款？](http://www.daogukj.com/9238608)
+- [多家银行集中「清淤」，工行核销超 800 亿元，背后原因是什么？释放出哪些信号？](http://www.daogukj.com/xdtzeasn/)
 - [相约“青春华章”](http://www.daogukj.com/2229169)
-- [怎么有网友让我走到西藏啊…](http://www.daogukj.com/pnnlzznp/)
-- [如何看待 China GT 上海站赛车起火，车手放弃比赛救人，车队要求调查？赛事应急救援存在哪些漏洞？](http://www.movie.hkepx.cn/movie/1141317.htm)
+- [【真实锐评】IG战胜WE theshy练英雄速度天赋最高！IG给我冲刺决赛！](http://www.daogukj.com/pnnlzznp/)
+- [财政部将向中国工商银行等八家金融央企增资共计 3600 亿元，如何解读？](http://www.movie.hkepx.cn/movie/1141317.htm)
 - [江西一低保家庭女孩自己攒钱去香港看演唱会，网传其全家低保资格被取消，当地民政局回应正在核查，你怎么看？](http://www.daogukj.com/3669738)
 - [中国节水账本里的“节约密码”](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
 - [网传“青铜峡大坝开始泄洪”系谣言](http://www.movie.hkepx.cn/xiju/8333303.htm)
-- [三年之期已到，恭迎世一上归位！【第7集】](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
-- [CBA夏季联赛：天津83-75广厦](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
-- [中国女篮vs捷克女篮](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
+- [【STN快报第8.5季19】这德国科隆给我干哪来了？这真不是国内吗？](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
+- [LPL2026 赛季季后赛 iG 3:1 淘汰 WE 跻身四强，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
+- [花少2摄影师曾劝杨洋明天跑吧](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
 - [女篮世界杯中国队加时险胜捷克队](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
-- [女子家中十万元现金悄悄“缩水”](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
+- [LPL四强出炉](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
 - [“一吨旧手机提炼200克黄金”不实](http://www.movie.hkepx.cn/movie/7218961.htm)
-- [【剧情】良医 第七季（2024）01【弗莱迪·海默 / 佩奇·斯巴勒】](http://www.movie.hkepx.cn/xiju/0034458.htm)
-- [张雪机车法国站次回合获得第3名](http://www.movie.hkepx.cn/movie/1373526.htm)
-- [雷军向所有品牌表达感谢](http://www.movie.hkepx.cn/movie/8174344.htm)
-- [怎么看财政部3600亿注资金融机构](http://www.movie.hkepx.cn/xiju/7049500.htm)
+- [《绝区零》克拉蕾EP | Link Up 血火相连](http://www.movie.hkepx.cn/xiju/0034458.htm)
+- [山西挖眼案受害男孩到长春大学报到](http://www.movie.hkepx.cn/movie/1373526.htm)
+- [杨舒予绝平](http://www.movie.hkepx.cn/movie/8174344.htm)
+- [高校两新生同名同姓同年同月同日生](http://www.movie.hkepx.cn/xiju/7049500.htm)
 - [多地严查赵一鸣等零食品牌](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
-- [多地严查赵一鸣、好想来等](http://www.daogukj.com/1670030)
-- [财政部将向中国工商银行等八家金融央企增资共计 3600 亿元，如何解读？](http://www.daogukj.com/4917906)
-- [我把汉堡搬到了星星上](http://www.daogukj.com/jjbeajdp/)
-- [俄新武器击碎乌民众“战局扭转”幻想](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
+- [同名同姓同年同月同日生同校同专业](http://www.daogukj.com/1670030)
+- [如何看待 China GT 上海站赛车起火，车手放弃比赛救人，车队要求调查？赛事应急救援存在哪些漏洞？](http://www.daogukj.com/4917906)
+- [“东山再起”的东山在哪](http://www.daogukj.com/jjbeajdp/)
+- [江西省公安厅原党委委员万秀奇被查](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
 - [安徽 新“五子登科”](http://www.daogukj.com/2644309)
-- [如何看待阿根廷总统米莱表示，英国应像把香港归还给中国一样，把马岛归还给阿根廷，阿方可接受香港模式？](http://www.daogukj.com/2520362)
+- [如何看待联合国倡导使用“平等地球投影法”，这会让统治地图圈几百年的“墨卡托投影”彻底退出历史舞台吗？](http://www.daogukj.com/2520362)
 - [张纪中妻子备孕5胎](http://www.daogukj.com/4354347)
 
 </details>
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9f50de6662b171add8f9 -->
+<!-- content-fingerprint: 5afb6d18736d2c1ab251 -->
