@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 渔民落水11天后事都办了 人回来了
+# 重返渴望现场｜百事可乐音乐盛典完整回放正式上线！
 
-> 来源：百度热搜 · 排名：第 6 位 · 热度：7237843 · 更新：2026-09-14T09:42:53+08:00
+> 来源：哔哩哔哩热门 · 排名：第 6 位 · 热度：2391732 · 分类：小剧场 · 更新：2026-09-14T15:11:47+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“渔民落水11天后事都办了 人回来了”位列第 6 位，公开热度指标为 7237843。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“重返渴望现场｜百事可乐音乐盛典完整回放正式上线！”位列第 6 位，公开热度指标为 2391732，榜单分类为“小剧场”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月3日，舟山螺门一名60岁的渔民老张在拖虾船上不慎落水后失踪。在寻找了11天后，家属本来对找到老张已经失去了信心，都已经为他办了后事。没想到11天后，9月13日，这位张姓渔民奇迹般生还，又回到了家里。
+来源公开摘要显示：渴望从不散场，感动仍在回响。✨ 「渴望就可能· 2026百事可乐音乐盛典」 完整版回放正式解锁！ 百事可乐代言人集结：阿信、王嘉尔、吴磊、﻿@登陆少年组合 ﻿ 特邀嘉宾集结： 告五人乐团、﻿@歌手唐汉霄 ﻿ 、鼓鼓吕思纬、﻿@魏嘉莹_ArrowWei ﻿ 、﻿@吴莫愁Momo- ﻿ 、百事校园最强音 点击视频，让我们一起重返渴望现场。✨
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `小剧场`
 
 ## 相关热点
 
-- [警方通报越野车高架上坠落致1死](fu-jing-qing-zui.md)
-- [60岁渔民落水失踪11天奇迹回家](mao-sui-zi-jian.md)
-- [阿里代理的《旅行青蛙》因授权到期将停止运营，如何评价？你对它有哪些回忆？](san-gu-mao-lu.md)
-- [吃一把拇指西瓜以为香甜爆汁，结果……【主播说三农】](cao-mu-jie-bing.md)
+- [野人先生人均消费26元](fu-jing-qing-zui.md)
+- [郭柯宇坦言上再见爱人是因为没有工作](mao-sui-zi-jian.md)
+- [中国男篮44分复仇菲律宾](san-gu-mao-lu.md)
+- [美国有美式中餐，中国有中式西餐吗？](cao-mu-jie-bing.md)
 
 ## 站内推荐
 
 - [内存显卡什么时候回归正常价格啊？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [一家三口“同校同院同专业”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [情侣在演唱会求婚遭后排喊坐下](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [黄灿灿103斤被粉丝说太胖了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [iPhone18Pro勃艮第酒红色卖爆了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [什么是洲同学？洲同学就是洲同学！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [特朗普：可以接受中国车企在美建厂](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [李一桐曾半年胖了30斤](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [HYROX将永久禁赛威胁运动员人员](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [斑海豹娜娜耗时6天独自游回大长山岛](http://www.daogukj.com/3042716)
-- [不少网友痴迷看单集几分钟、充满反转与爽点的 AI 短剧，你会看 AI 短剧成瘾吗？看多了会有哪些影响？](http://www.movie.hkepx.cn/movie/2061637.htm)
-- [警方通报越野车高架上坠落致1死](http://www.daogukj.com/whcykmxi/)
-- [媒体称 12345 话务员多为外包，是真的吗？会影响政务服务质量与效率吗？如何保障诉求被真正解决？](http://www.daogukj.com/8289578)
-- [如何看待极客湾对麒麟9050 Pro进行的能效实测结果？](http://www.movie.hkepx.cn/movie/6917669.htm)
-- [iPhone 17大降价](http://www.daogukj.com/1323195)
-- [Re：从零开始的异世界学园生活·序](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
-- [星宇股份被曝产业园接近 90% 的工人都是劳务派遣临时工，真的是这样吗？](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
-- [彭小苒直播穿的衣服](http://www.movie.hkepx.cn/xiju/7626363.htm)
-- [国宝级川菜大师拿下百厨总冠军，他的厨艺强在哪？体现了川菜精髓吗？](http://www.daogukj.com/zbetfxek/)
-- [胖东来新招工准则：合同4年不续签](http://www.daogukj.com/6022603)
-- [王毅与俄罗斯外长、伊朗外长友好交流](http://www.movie.hkepx.cn/xiju/5313504.htm)
-- [套假牌，超速200+，自称德国不限速。难度2星](http://www.daogukj.com/xdexhduz/)
-- [《原神》六周年配音演员祝福-「循音致远的足迹」](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
-- [我国硬核成果上新了](http://www.movie.hkepx.cn/movie/6492359.htm)
-- [人民日报曝光后 苏州市委表态：严查](http://www.daogukj.com/6000133)
-- [货车忘拉手刹失控横扫路边众摊位](http://www.daogukj.com/ajsfeojq/)
-- [举报元青花杯失踪烧烤店主改卖红薯](http://www.movie.hkepx.cn/xiju/4278075.htm)
-- [苏格兰、威尔士、北爱尔兰](http://www.movie.hkepx.cn/movie/5534562.htm)
-- [为什么扎根西北的兰州大学，没有吃到「工科苦行僧」审美的红利？](http://www.daogukj.com/6871213)
-- [情侣在演唱会求婚遭后排喊坐下](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
-- [如何看待多家券商收紧个人程序化交易接入？是为了应对 AI 量化的冲击吗？](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
-- [寻找“金砖温度”的答案](http://www.movie.hkepx.cn/xiju/4051583.htm)
-- [李梦这段演得真好](http://www.daogukj.com/4848168)
-- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
-- [网红墙绘孤独少女被围挡增添孤寂感](http://www.movie.hkepx.cn/movie/2894342.htm)
-- [「吉田凛·雷之律者」实机演示 | 9月11日登场，雳霆裁诏，狂雷涤罪！](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
-- [醉驾致夫妻身亡公职人员岗位职责曝光](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
-- [中国人能飞](http://www.movie.hkepx.cn/xiju/8848024.htm)
-- [从来没有第一学历这个概念](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
-- [《魔兽世界：永恒》11 月 4 日上线，其作为「怀旧服+」会给游戏带来哪些影响？](http://www.movie.hkepx.cn/xiju/3438884.htm)
-- [罗永浩骂苹果骂对了吗](http://www.daogukj.com/ieqapfew/)
-- [井柏然孙千体面](http://www.daogukj.com/8044050)
-- [网民造谣商业街发生枪战被拘](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
-- [多地发布提醒告诫书](http://www.movie.hkepx.cn/xiju/0303756.htm)
-- [演唱会女生拒绝男友亲吻转头亲闺蜜](http://www.daogukj.com/8598756)
-- [如何看待Anthropic、马斯克等顶级 AI 公司呼吁控制前沿 AI 发展节奏？为啥在此时喊减速？](http://www.movie.hkepx.cn/movie/4526722.htm)
-- [【1818黄金眼】女会员的健身照 店长发朋友圈引流？](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
-- [人类语言被AI一秒抛弃](http://www.daogukj.com/0218050)
-- [井柏然送孙千的衣服代言人是刘雯](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
+- [野人先生被罗永浩吐槽后涨粉数万](http://www.daogukj.com/3042716)
+- [军机处这种临时指挥机构这么好用，为何现代没有国家采用了？](http://www.movie.hkepx.cn/movie/2061637.htm)
+- [野人先生人均消费26元](http://www.daogukj.com/whcykmxi/)
+- [中国餐馆的利润大部分来源于酒水吗？如果是的话，为什么？](http://www.daogukj.com/8289578)
+- [北京一独居者离世，无配偶、子女、兄弟姐妹，叔舅姑姨九人争遗产，法院判房产归国家，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/6917669.htm)
+- [俄罗斯军列满载新坦克运往前线](http://www.daogukj.com/1323195)
+- [“死亡不是终点，遗忘才是。” | 《老秦》原创AI短片【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
+- [陈小春唱响《大东北是我的家乡》](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
+- [妻子投诉医院未经同意抢救老公](http://www.movie.hkepx.cn/xiju/7626363.htm)
+- [浙大开学典礼一教授因发型走红](http://www.daogukj.com/zbetfxek/)
+- [网红田姥姥送别小张姥姥](http://www.daogukj.com/6022603)
+- [人无法写出自己没经历过的事](http://www.movie.hkepx.cn/xiju/5313504.htm)
+- [《你以为的支教只教课时，但实际上...》](http://www.daogukj.com/xdexhduz/)
+- [《淘汰回放》](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
+- [2026年国家网络安全宣传周](http://www.movie.hkepx.cn/movie/6492359.htm)
+- [央视评“HYROX选手赛场失禁”](http://www.daogukj.com/6000133)
+- [50岁女子坚持锻炼练出6块腹肌](http://www.daogukj.com/ajsfeojq/)
+- [老婆让我滚出去睡，但是两个老婆！我直接下海…...去捕鱼！](http://www.movie.hkepx.cn/xiju/4278075.htm)
+- [王曼昱反超孙颖莎登顶女单世界第一](http://www.movie.hkepx.cn/movie/5534562.htm)
+- [国乒男单 WTT 澳门赛全军覆没，爆冷原因可能是什么？](http://www.daogukj.com/6871213)
+- [特朗普：可以接受中国车企在美建厂](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
+- [两部门联合通报六起地方政府隐性债务追责问责典型案例，这将如何影响地方政府财政管理？](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
+- [词元出海怎么实现？服贸会上有答案](http://www.movie.hkepx.cn/xiju/4051583.htm)
+- [心动的信号](http://www.daogukj.com/4848168)
+- [Re：从零开始的异世界学园生活·序](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
+- [雷军现身B站总部](http://www.movie.hkepx.cn/movie/2894342.htm)
+- [媒体称 12345 话务员多为外包，是真的吗？会影响政务服务质量与效率吗？如何保障诉求被真正解决？](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
+- [程序员一条代码删掉89TB数据获刑](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
+- [高分AI短片《人生反悔局》：解不开的：“如果当初”](http://www.movie.hkepx.cn/xiju/8848024.htm)
+- [中国有1.26亿只“毛孩子”](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
+- [如何看待张国伟疑似评价刘翔事件，称「国内国外不一样，自己花钱我绝不会练体育，别断了贫穷孩子上升途径」？](http://www.movie.hkepx.cn/xiju/3438884.htm)
+- [苏格兰、威尔士、北爱尔兰](http://www.daogukj.com/ieqapfew/)
+- [知名品牌两款充电宝被紧急召回](http://www.daogukj.com/8044050)
+- [找工作还要交打点费？系诈骗](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
+- [女生坐飞机拍到车钻入海底](http://www.movie.hkepx.cn/xiju/0303756.htm)
+- [十赌九输](http://www.daogukj.com/8598756)
+- [胖东来为什么要设计四年学员制招工新规？于东来「为社会培养人才」来解释不续签，是在美化一种用工策略吗？](http://www.movie.hkepx.cn/movie/4526722.htm)
+- [那些年为了听歌做过的事？你中了几个？也许那首歌才能带我们回到过去。。。](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
+- [野人先生 罗永浩](http://www.daogukj.com/0218050)
+- [举报元青花杯失踪烧烤店主改卖红薯](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
 - [你为什么不喜欢英剧《神探夏洛克》？](http://www.daogukj.com/3371192)
-- [英国 分裂](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
-- [一家三口“同校同院同专业”](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
-- [亚朵店长谐音叫县长助理叫政委](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
-- [如何看待津巴布韦禁止出口钨和锑](http://www.movie.hkepx.cn/movie/1298994.htm)
-- [如何看待于东来发文称胖东来再招员工都是学员性质，合同四年，不续签？意味着什么？](http://www.movie.hkepx.cn/movie/6188638.htm)
-- [“次抛衣”走红](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
-- [在读75万 中国博士真的过剩了吗](http://www.daogukj.com/4541580)
-- [60岁渔民落水失踪11天奇迹回家](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
-- [中国足球小将西班牙捧杯](http://www.daogukj.com/4450013)
+- [中国男篮大胜菲律宾44分 小组出线](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
+- [什么是洲同学？洲同学就是洲同学！](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
+- [华为阔直板销量](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
+- [男子10块钱衣服穿20年却自费30万支教](http://www.movie.hkepx.cn/movie/1298994.htm)
+- [为什么学校总要求低年级的学生包书皮呢？](http://www.movie.hkepx.cn/movie/6188638.htm)
+- [五指山停课停工停业停产停运](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
+- [吃一把拇指西瓜以为香甜爆汁，结果……【主播说三农】](http://www.daogukj.com/4541580)
+- [郭柯宇坦言上再见爱人是因为没有工作](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
+- [卫健委：要引导抵制不正确婚育观](http://www.daogukj.com/4450013)
 
 </details>
 
 ## 原始来源
 
-- [渔民落水11天后事都办了 人回来了](https://www.baidu.com/s?wd=%E6%B8%94%E6%B0%91%E8%90%BD%E6%B0%B411%E5%A4%A9%E5%90%8E%E4%BA%8B%E9%83%BD%E5%8A%9E%E4%BA%86+%E4%BA%BA%E5%9B%9E%E6%9D%A5%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
+- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](https://b23.tv/BV1uKY26hETJ)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 48afe08bd86557c68af0 -->
+<!-- content-fingerprint: 0bc655e2c1851052a32e -->

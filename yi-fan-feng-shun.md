@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 【假装讲电影】笑死！黑帮集体跳槽干物业！结果发现物业更黑啊！！！
+# 国宝级川菜大师拿下百厨总冠军，他的厨艺强在哪？体现了川菜精髓吗？
 
-> 来源：哔哩哔哩热门 · 排名：第 8 位 · 热度：2102511 · 分类：影视杂谈 · 更新：2026-09-14T09:42:53+08:00
+> 来源：知乎热榜 · 排名：第 8 位 · 热度：165 万热度 · 分类：问答 · 更新：2026-09-14T15:11:47+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【假装讲电影】笑死！黑帮集体跳槽干物业！结果发现物业更黑啊！！！”位列第 8 位，公开热度指标为 2102511，榜单分类为“影视杂谈”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“国宝级川菜大师拿下百厨总冠军，他的厨艺强在哪？体现了川菜精髓吗？”位列第 8 位，公开热度指标为 165 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：原片：韩国电视剧《公寓黑风暴》
+来源公开摘要显示：国宝级川菜大师拿下百厨总冠军 从首期失利到最终夺冠，张元富把四川家常的味道端上灶台，用朴素的食材打动了评委。国宝级川菜大师拿下百厨总冠军，实至名归。#食神百厨大战 #百厨大战
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `影视杂谈`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [一家三口“同校同院同专业”](yi-ming-jing-ren.md)
-- [井柏然孙千体面](yi-jian-shuang-diao.md)
-- [哈兰德 恩佐](shou-zhu-dai-tu.md)
-- [王毅与俄罗斯外长、伊朗外长友好交流](wang-mei-zhi-ke.md)
+- [什么是洲同学？洲同学就是洲同学！](yi-ming-jing-ren.md)
+- [知名品牌两款充电宝被紧急召回](yi-jian-shuang-diao.md)
+- [浙大开学典礼一教授因飘逸刘海走红](shou-zhu-dai-tu.md)
+- [人无法写出自己没经历过的事](wang-mei-zhi-ke.md)
 
 ## 站内推荐
 
-- [专家：台湾是晚清全国近代化先进省份](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [还原我吃完菌子做的噩梦](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [十赌九输](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [港股开盘：智谱、MINIMAX-W低开超5%](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [英超官方：哈兰德进球应无效](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [上5休1上5休3上3休7上3休1](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [全球变暖正在让西北变江南，都在往好的方向发展，为什么还有这么多人认为变暖弊大于利？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [《地狱之家》改编自粉丝真实经历](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [野人先生 不要回答不要回答不要回答](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [燃油车为何有点卖不动了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [李梦这段演得真好](http://www.daogukj.com/cohiigft/)
-- [罗永浩吐槽野人先生后特意提示](http://www.daogukj.com/ugakwini/)
-- [我国硬核成果上新了](http://www.movie.hkepx.cn/movie/1439223.htm)
-- [锐评AL战胜BLG获得2026LPL总冠军：经典老味道...](http://www.daogukj.com/7461995)
-- [为什么扎根西北的兰州大学，没有吃到「工科苦行僧」审美的红利？](http://www.daogukj.com/1580127)
-- [套假牌，超速200+，自称德国不限速。难度2星](http://www.movie.hkepx.cn/movie/5771230.htm)
-- [星宇股份被曝产业园接近 90% 的工人都是劳务派遣临时工，真的是这样吗？](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
-- [还原我吃完菌子做的噩梦](http://www.daogukj.com/0519981)
-- [举报元青花杯失踪烧烤店主改卖红薯](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
-- [货车忘拉手刹失控横扫路边众摊位](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
-- [苏格兰、威尔士、北爱尔兰](http://www.movie.hkepx.cn/movie/5740018.htm)
-- [出现这种感觉 说明你AI成瘾了](http://www.movie.hkepx.cn/movie/2758437.htm)
-- [《原神》六周年配音演员祝福-「循音致远的足迹」](http://www.play.hengshemaoyi.cn/kongbu/7663093.htm)
-- [井柏然送孙千的衣服代言人是刘雯](http://www.daogukj.com/npdeovim/)
-- [英国的大麻烦来了](http://www.movie.hkepx.cn/movie/1182190.htm)
-- [英国 分裂](http://www.movie.hkepx.cn/movie/6854973.htm)
-- [如何看待多家券商收紧个人程序化交易接入？是为了应对 AI 量化的冲击吗？](http://www.movie.hkepx.cn/movie/9974523.htm)
-- [市委书记多次称前面的债凭什么我还](http://www.play.hengshemaoyi.cn/kongbu/4772628.htm)
-- [烧烤店被检查15次：系1人投诉116次](http://www.movie.hkepx.cn/movie/7480091.htm)
-- [克拉克赛后更推：世界杯金牌得主](http://www.daogukj.com/ljqtloli/)
-- [日韩股市大跌 SK海力士跌超5%](http://www.movie.hkepx.cn/movie/1513585.htm)
-- [麒麟9050 Pro能效实测！华为Mate XT2性能有多强？](http://www.movie.hkepx.cn/xiju/5718367.htm)
-- [特大暴雨来了：川渝华南将大范围多阴雨，新台风酝酿或中秋前靠近](http://www.movie.hkepx.cn/movie/6576281.htm)
-- [醉驾致夫妻身亡公职人员岗位职责曝光](http://www.play.hengshemaoyi.cn/kongbu/7311837.htm)
-- [《魔兽世界：永恒》11 月 4 日上线，其作为「怀旧服+」会给游戏带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/9290584.htm)
-- [黄灿灿103斤被粉丝说太胖了](http://www.daogukj.com/7865447)
-- [如何看待苏格兰、威尔士和北爱尔兰的领导人将共商民族自决权利？会导致英国分裂解体吗？](http://www.daogukj.com/7312066)
-- [“次抛衣”走红](http://www.play.hengshemaoyi.cn/kongbu/1281085.htm)
-- [哈兰德 恩佐](http://www.play.hengshemaoyi.cn/kongbu/1775013.htm)
-- [中国人能飞](http://www.daogukj.com/0276387)
-- [Re：从零开始的异世界学园生活·序](http://www.movie.hkepx.cn/xiju/9277141.htm)
-- [如何看待极客湾对麒麟9050 Pro进行的能效实测结果？](http://www.movie.hkepx.cn/xiju/9995911.htm)
-- [自驾穿越美国加州，遭遇野生黑熊，住进绿皮书里汽车hotel](http://www.movie.hkepx.cn/xiju/4442165.htm)
-- [吃一把拇指西瓜以为香甜爆汁，结果……【主播说三农】](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
-- [情侣在演唱会求婚遭后排喊坐下](http://www.daogukj.com/sowbdmby/)
-- [彭小苒直播穿的衣服](http://www.daogukj.com/cfqiduxu/)
-- [如何看待津巴布韦禁止出口钨和锑](http://www.movie.hkepx.cn/xiju/4880279.htm)
-- [浙江太乙圣莲拟 30 亿元入主哪吒汽车，将如何影响其未来战略布局？](http://www.play.hengshemaoyi.cn/xiju/4009878.htm)
-- [「吉田凛·雷之律者」实机演示 | 9月11日登场，雳霆裁诏，狂雷涤罪！](http://www.play.hengshemaoyi.cn/kongbu/3318753.htm)
-- [《淘汰回放》](http://www.movie.hkepx.cn/movie/5360276.htm)
-- [警方通报越野车高架上坠落致1死](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
-- [人民日报曝光后 苏州市委表态：严查](http://www.movie.hkepx.cn/movie/8146575.htm)
-- [港股开盘：智谱、MINIMAX-W低开超5%](http://www.movie.hkepx.cn/xiju/8000972.htm)
-- [如何看待于东来发文称胖东来再招员工都是学员性质，合同四年，不续签？意味着什么？](http://www.movie.hkepx.cn/xiju/2505032.htm)
-- [60岁渔民落水失踪11天奇迹回家](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
-- [两大王牌进逼台海 美军为何露出马脚](http://www.daogukj.com/maldgqjz/)
-- [网民造谣商业街发生枪战被拘](http://www.daogukj.com/ulnghjws/)
-- [【1818黄金眼】女会员的健身照 店长发朋友圈引流？](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
-- [一家三口“同校同院同专业”](http://www.movie.hkepx.cn/movie/7753114.htm)
-- [5种不舒服高度警惕脑出血](http://www.play.hengshemaoyi.cn/xiju/2822041.htm)
+- [心动的信号](http://www.daogukj.com/cohiigft/)
+- [手机万元工资三千](http://www.daogukj.com/ugakwini/)
+- [2026年国家网络安全宣传周](http://www.movie.hkepx.cn/movie/1439223.htm)
+- [菏泽古沉船文物遗失成立调查组，初步认定是青花瓷器残片，烧烤店116件投诉来自同一人，哪些问题值得追问？](http://www.daogukj.com/7461995)
+- [国乒男单 WTT 澳门赛全军覆没，爆冷原因可能是什么？](http://www.daogukj.com/1580127)
+- [《你以为的支教只教课时，但实际上...》](http://www.movie.hkepx.cn/movie/5771230.htm)
+- [陈小春唱响《大东北是我的家乡》](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
+- [全球变暖正在让西北变江南，都在往好的方向发展，为什么还有这么多人认为变暖弊大于利？](http://www.daogukj.com/0519981)
+- [老婆让我滚出去睡，但是两个老婆！我直接下海…...去捕鱼！](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
+- [50岁女子坚持锻炼练出6块腹肌](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
+- [王曼昱反超孙颖莎登顶女单世界第一](http://www.movie.hkepx.cn/movie/5740018.htm)
+- [江南布衣一边挨骂一边狂卖60亿](http://www.movie.hkepx.cn/movie/2758437.htm)
+- [《淘汰回放》](http://www.play.hengshemaoyi.cn/kongbu/7663093.htm)
+- [举报元青花杯失踪烧烤店主改卖红薯](http://www.daogukj.com/npdeovim/)
+- [带赛车搭子试驾智界RX，他会下订吗？](http://www.movie.hkepx.cn/movie/1182190.htm)
+- [中国男篮大胜菲律宾44分 小组出线](http://www.movie.hkepx.cn/movie/6854973.htm)
+- [两部门联合通报六起地方政府隐性债务追责问责典型案例，这将如何影响地方政府财政管理？](http://www.movie.hkepx.cn/movie/9974523.htm)
+- [花钱买罪受的Hyrox为何流行](http://www.play.hengshemaoyi.cn/kongbu/4772628.htm)
+- [“涨工资”的三重信号](http://www.movie.hkepx.cn/movie/7480091.htm)
+- [李一桐用8公斤水杯喝水](http://www.daogukj.com/ljqtloli/)
+- [贾跃亭要一口气发布9款机器人](http://www.movie.hkepx.cn/movie/1513585.htm)
+- [【假装讲电影】笑死！黑帮集体跳槽干物业！结果发现物业更黑啊！！！](http://www.movie.hkepx.cn/xiju/5718367.htm)
+- [南太行野线徒步一年半超 10 起事故，一名 200 斤驴友被挤下悬崖，这一事件反映了哪些户外安全问题？](http://www.movie.hkepx.cn/movie/6576281.htm)
+- [程序员一条代码删掉89TB数据获刑](http://www.play.hengshemaoyi.cn/kongbu/7311837.htm)
+- [如何看待张国伟疑似评价刘翔事件，称「国内国外不一样，自己花钱我绝不会练体育，别断了贫穷孩子上升途径」？](http://www.play.hengshemaoyi.cn/xiju/9290584.htm)
+- [李一桐曾半年胖了30斤](http://www.daogukj.com/7865447)
+- [找工作要交打点费？求职诈骗套路揭秘](http://www.daogukj.com/7312066)
+- [五指山停课停工停业停产停运](http://www.play.hengshemaoyi.cn/kongbu/1281085.htm)
+- [浙大开学典礼一教授因飘逸刘海走红](http://www.play.hengshemaoyi.cn/kongbu/1775013.htm)
+- [高分AI短片《人生反悔局》：解不开的：“如果当初”](http://www.daogukj.com/0276387)
+- [“死亡不是终点，遗忘才是。” | 《老秦》原创AI短片【AI全民制作人】](http://www.movie.hkepx.cn/xiju/9277141.htm)
+- [北京一独居者离世，无配偶、子女、兄弟姐妹，叔舅姑姨九人争遗产，法院判房产归国家，如何从法律角度解读？](http://www.movie.hkepx.cn/xiju/9995911.htm)
+- [如何看待苏格兰、威尔士和北爱尔兰的领导人将共商民族自决权利？会导致英国分裂解体吗？](http://www.movie.hkepx.cn/xiju/4442165.htm)
+- [美国有美式中餐，中国有中式西餐吗？](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
+- [特朗普：可以接受中国车企在美建厂](http://www.daogukj.com/sowbdmby/)
+- [妻子投诉医院未经同意抢救老公](http://www.daogukj.com/cfqiduxu/)
+- [男子10块钱衣服穿20年却自费30万支教](http://www.movie.hkepx.cn/xiju/4880279.htm)
+- [扫墓时发现八座祖坟被施工损毁，土地承包方称「事前不知道有坟」，警方认定为纠纷不予立案，家属该如何维权？](http://www.play.hengshemaoyi.cn/xiju/4009878.htm)
+- [媒体称 12345 话务员多为外包，是真的吗？会影响政务服务质量与效率吗？如何保障诉求被真正解决？](http://www.play.hengshemaoyi.cn/kongbu/3318753.htm)
+- [【2026LPL第三赛段】9月13日 BLG vs AL](http://www.movie.hkepx.cn/movie/5360276.htm)
+- [野人先生人均消费26元](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
+- [央视评“HYROX选手赛场失禁”](http://www.movie.hkepx.cn/movie/8146575.htm)
+- [野人先生 不要回答不要回答不要回答](http://www.movie.hkepx.cn/xiju/8000972.htm)
+- [为什么学校总要求低年级的学生包书皮呢？](http://www.movie.hkepx.cn/xiju/2505032.htm)
+- [郭柯宇坦言上再见爱人是因为没有工作](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
+- [英国 分裂](http://www.daogukj.com/maldgqjz/)
+- [找工作还要交打点费？系诈骗](http://www.daogukj.com/ulnghjws/)
+- [那些年为了听歌做过的事？你中了几个？也许那首歌才能带我们回到过去。。。](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
+- [什么是洲同学？洲同学就是洲同学！](http://www.movie.hkepx.cn/movie/7753114.htm)
+- [当你的朋友染了赌，，，](http://www.play.hengshemaoyi.cn/xiju/2822041.htm)
 
 </details>
 
 ## 原始来源
 
-- [【假装讲电影】笑死！黑帮集体跳槽干物业！结果发现物业更黑啊！！！](https://b23.tv/BV1vnYQ6xEMr)
+- [国宝级川菜大师拿下百厨总冠军，他的厨艺强在哪？体现了川菜精髓吗？](https://www.zhihu.com/question/2081046431478165638)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8c44af57b8503470cfc9 -->
+<!-- content-fingerprint: 87caf02fb82fb12fd95d -->
