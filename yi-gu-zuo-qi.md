@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 父亲撞死人儿子顶包 全家串供掩盖
+# 本科生扎堆回炉读技校
 
-> 来源：百度热搜 · 排名：第 7 位 · 热度：7137171 · 更新：2026-09-15T08:59:10+08:00
+> 来源：百度热搜 · 排名：第 7 位 · 热度：7136429 · 更新：2026-09-15T14:03:49+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“父亲撞死人儿子顶包 全家串供掩盖”位列第 7 位，公开热度指标为 7137171。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“本科生扎堆回炉读技校”位列第 7 位，公开热度指标为 7136429。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2020年李某无证驾车撞死人，为骗取百万保险理赔，指使20岁儿子顶罪，父子全家串供掩盖真相。儿子碍于所谓孝道顶替受刑，获缓刑，保险赔付110余万元。五年后，其发小为减刑检举此案。法院撤销原判，李某数罪并罚获刑七年，儿子犯包庇、保险诈骗获缓刑。
+来源公开摘要显示：8‑9月多地开设大学生技师班，大批高校毕业生回炉进修技能。各地通过校企协同办学，学员可考取技师证书，享受相关人才政策。专家建议高校深化产教融合，优化专业设置，提升人才培养与产业岗位的匹配度。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [终于知道为什么有人工作能力这么强](yi-zi-qian-jin.md)
-- [日本首相高市早苗将于17日改组内阁](yi-fan-feng-shun.md)
-- [于东来回应「胖东来新员工实行四年合同制」称未违反劳动法，此举是为培养更多懂健康生活的群体，你怎么看？](yi-ming-jing-ren.md)
-- [锵锵锵](yi-jian-shuang-diao.md)
+- [血观音 翻红](yi-zi-qian-jin.md)
+- [胡塞武装“接管”红海影响有多大](yi-fan-feng-shun.md)
+- [历史教授为什么不愿碰元史？](yi-ming-jing-ren.md)
+- [全网首发！二周年彩蛋解密完成！每个鸟窝都是入口！难度大大降低！这些东西速买！要爆！](yi-jian-shuang-diao.md)
 
 ## 站内推荐
 
-- [演唱会求婚当事人称已报警](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [“喊坐下都算礼貌 要我就喊离婚”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [iPhone终于支持调休闹钟了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [iOS27](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [时代峰峻](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [12306回应男子高铁喝白酒](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [曝姆巴佩与登贝莱彻底决裂](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [月饼200元以上不好卖了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [这个“合订本”让日本人气坏了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [全球疯抢钨 中国手握八成产量](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [Anthropic一研究员辞职示警称AI可能在未来十年内毁灭人类，巨头拿人类生命作赌，如何看待该观点？](http://www.movie.hkepx.cn/xiju/6552474.htm)
-- [锵锵锵](http://www.movie.hkepx.cn/movie/8544791.htm)
-- [四盒没人取的牛奶救人一命](http://www.daogukj.com/3711177)
-- [美股](http://www.play.hengshemaoyi.cn/kongbu/1559298.htm)
-- [刘翔口口声声说的“第三条路”到底是什么？](http://www.daogukj.com/vxwjdfib/)
-- [日本首相高市早苗将于17日改组内阁](http://www.movie.hkepx.cn/movie/6409275.htm)
-- [兰香如故配角营销被吐槽](http://www.play.hengshemaoyi.cn/xiju/2772698.htm)
-- [王毅：希望法方恪守一个中国原则](http://www.daogukj.com/dwkhbexl/)
-- [韩国股市正式开启夜盘，交易延长至晚上 8 点，对散户和量化基金分别有什么影响？](http://www.daogukj.com/7336913)
-- [网友说再高端的场所给服务人员低工资也是低端场所，你怎么看这一说法？](http://www.daogukj.com/7257814)
-- [艾滋病会通过接吻传播吗](http://www.movie.hkepx.cn/xiju/4522982.htm)
-- [Re：从零开始的异世界学园生活·序](http://www.movie.hkepx.cn/movie/5611897.htm)
-- [于东来回应「胖东来新员工实行四年合同制」称未违反劳动法，此举是为培养更多懂健康生活的群体，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/0281070.htm)
-- [最成功的“魔改”，恰恰背叛了原著？160年了，爱丽丝为什么总在被改写？【万字拉片】《爱丽丝梦游仙境》P1](http://www.movie.hkepx.cn/movie/2873114.htm)
-- [你说你要一锅端？](http://www.play.hengshemaoyi.cn/xiju/7985573.htm)
-- [黄斌罗永浩 一物降一物](http://www.daogukj.com/1201346)
-- [有哪些演员错过了某个角色，让你倍感遗憾？](http://www.play.hengshemaoyi.cn/xiju/9868547.htm)
-- [女子轻生怕疼放弃后捅刺老人获刑6年](http://www.play.hengshemaoyi.cn/xiju/4472820.htm)
-- [985本硕毕业后，30岁小伙重读本科，成功入住宿舍，跟大家介绍我的新家](http://www.daogukj.com/6717907)
-- [“喊坐下都算礼貌 要我就喊离婚”](http://www.daogukj.com/smbgijxm/)
-- [曼市德比裁判被停哨](http://www.daogukj.com/ttaxgjnj/)
-- [警察看电视剧里的破案片有什么感受？](http://www.movie.hkepx.cn/movie/2477961.htm)
-- [我国灵活就业人员规模已超过2亿人](http://www.movie.hkepx.cn/movie/7906581.htm)
-- [全球最大每周车展创始人车祸身亡](http://www.play.hengshemaoyi.cn/xiju/2898700.htm)
-- [自称演唱会求婚事件当事人发声](http://www.daogukj.com/8209027)
-- [苹果回应iPhone 18 Pro破发](http://www.play.hengshemaoyi.cn/kongbu/8768079.htm)
-- [知名游戏老板百亿元天价离婚创纪录](http://www.movie.hkepx.cn/movie/0482312.htm)
-- [三地联手闹“脱英” 英首相坐不住了](http://www.play.hengshemaoyi.cn/xiju/9281018.htm)
-- [演唱会求婚 别把没素质当仪式感](http://www.play.hengshemaoyi.cn/xiju/2910980.htm)
-- [亲证](http://www.movie.hkepx.cn/xiju/6292361.htm)
-- [中国人挖运河顺手造万亩良田](http://www.play.hengshemaoyi.cn/xiju/0614862.htm)
-- [HYROX 外国选手比赛中失禁，主办方未叫停比赛、未进行罚时等处罚，对其他选手公平吗？怎样处理更合理？](http://www.daogukj.com/9979795)
-- [兰香如故把男主改成处男](http://www.play.hengshemaoyi.cn/kongbu/1433199.htm)
-- [短剧行业出现大量抄袭， AI 几分钟就能抄出一部剧，月薪几千的原创编剧还有未来吗？](http://www.movie.hkepx.cn/xiju/7129841.htm)
-- [女子散步时被蝙蝠撞到脸，连夜打狂犬病疫苗，医生：直接接触蝙蝠 无论有无伤口，即判定为狂犬病III级暴露，一旦发病死亡率是100%](http://www.play.hengshemaoyi.cn/xiju/9779871.htm)
-- [郑合惠子一出场刘学义都变帅了](http://www.play.hengshemaoyi.cn/kongbu/0816683.htm)
-- [未来五年民生健康重磅规划](http://www.movie.hkepx.cn/movie/2013477.htm)
-- [《你以为的支教只教课时，但实际上...》](http://www.play.hengshemaoyi.cn/xiju/7205858.htm)
-- [王一博 acne](http://www.play.hengshemaoyi.cn/kongbu/7066491.htm)
-- [“南北丰田”有望合并](http://www.movie.hkepx.cn/movie/8012853.htm)
-- [一车人买错票 游客建议车站改名](http://www.daogukj.com/6669739)
-- [猕猴桃是全世界最团结的水果](http://www.play.hengshemaoyi.cn/xiju/7115036.htm)
-- [黑龙江三道鳞在上海身价暴涨一斤88元](http://www.movie.hkepx.cn/xiju/8116216.htm)
-- [我来接受中国朋友们的挑战啦！](http://www.play.hengshemaoyi.cn/xiju/4734993.htm)
-- [电信套餐送手机 网贷](http://www.daogukj.com/lwpbikmi/)
-- [刘学义郑合惠子 cp感玄学](http://www.movie.hkepx.cn/movie/6992838.htm)
-- [猫师傅进城第一天，没钱住店却遇见了一群好人](http://www.movie.hkepx.cn/xiju/0832634.htm)
-- [《地狱之家》改编自粉丝真实经历](http://www.play.hengshemaoyi.cn/kongbu/7290198.htm)
-- [一对情侣在演唱会求婚，后排大喊「坐下」，此前向周围撒喜糖，保安制止，怎样看待此举？你会介意吗？](http://www.daogukj.com/jolmznpt/)
-- [胖东来“不续聘”违法吗？律师解读](http://www.play.hengshemaoyi.cn/xiju/2833298.htm)
+- [刘翔口口声声说的“第三条路”到底是什么？](http://www.movie.hkepx.cn/xiju/6552474.htm)
+- [全网首发！二周年彩蛋解密完成！每个鸟窝都是入口！难度大大降低！这些东西速买！要爆！](http://www.movie.hkepx.cn/movie/8544791.htm)
+- [汐见琴音——S.E.E.S.的活泼少女队长| P5X x P3P联动即将开启](http://www.daogukj.com/3711177)
+- [涉嫌猎杀玳瑁中国籍教练发声](http://www.play.hengshemaoyi.cn/kongbu/1559298.htm)
+- [于东来回应“四年合同制”](http://www.daogukj.com/vxwjdfib/)
+- [胡塞武装“接管”红海影响有多大](http://www.movie.hkepx.cn/movie/6409275.htm)
+- [刘萧旭领衔主演前进前进](http://www.play.hengshemaoyi.cn/xiju/2772698.htm)
+- [马珊珊任沈阳市副市长、代理市长](http://www.daogukj.com/dwkhbexl/)
+- [「员工裸奔拉屎事件」起因是办离职时间没达成一致，为什么会在这一环节有矛盾？一般会走怎样的申诉沟通渠道？](http://www.daogukj.com/7336913)
+- [理想等车企加速「去宁化」，其背后原因是什么？对行业有何影响？](http://www.daogukj.com/7257814)
+- [手机价格够买全屋家电了](http://www.movie.hkepx.cn/xiju/4522982.htm)
+- [亲证](http://www.movie.hkepx.cn/movie/5611897.htm)
+- [历史教授为什么不愿碰元史？](http://www.play.hengshemaoyi.cn/xiju/0281070.htm)
+- [全网首发！感谢大家参与！二周年彩蛋我们解出来啦！大战场篇完事！三角洲真的太阴了！](http://www.movie.hkepx.cn/movie/2873114.htm)
+- [《你以为的支教只教课时，但实际上...》](http://www.play.hengshemaoyi.cn/xiju/7985573.htm)
+- [原来含糖饮料喝一瓶就超标](http://www.daogukj.com/1201346)
+- [男子在公园钓到大鱼火速逃跑](http://www.play.hengshemaoyi.cn/xiju/9868547.htm)
+- [韩路谈华为赛力斯合作模式调整](http://www.play.hengshemaoyi.cn/xiju/4472820.htm)
+- [和五月天阿信见了他](http://www.daogukj.com/6717907)
+- [曝姆巴佩与登贝莱彻底决裂](http://www.daogukj.com/smbgijxm/)
+- [心动9第七期就亲上了](http://www.daogukj.com/ttaxgjnj/)
+- [中国女篮抵达亚运村：住宿一般](http://www.movie.hkepx.cn/movie/2477961.htm)
+- [一线城市房价涨了](http://www.movie.hkepx.cn/movie/7906581.htm)
+- [“四川芬达”恶搞杨坤被判赔31.5万](http://www.play.hengshemaoyi.cn/xiju/2898700.htm)
+- [我国人口总量14.05亿](http://www.daogukj.com/8209027)
+- [男子苦钓三天钓起118斤大青鱼](http://www.play.hengshemaoyi.cn/kongbu/8768079.htm)
+- [自主品牌集体造“9系”，国产旗舰到底在卷什么？【阿Test正经比比】](http://www.movie.hkepx.cn/movie/0482312.htm)
+- [我终于当上真正的村庄村长了！【千年村庄】](http://www.play.hengshemaoyi.cn/xiju/9281018.htm)
+- [塔克拉玛干沙漠发现大型水源](http://www.play.hengshemaoyi.cn/xiju/2910980.htm)
+- [驯化西瓜：一颗苦涩有毒的野瓜，如何成为世界顶流](http://www.movie.hkepx.cn/xiju/6292361.htm)
+- [2026年国家网络安全宣传周](http://www.play.hengshemaoyi.cn/xiju/0614862.htm)
+- [华为与赛力斯确认将智选车合作模式调整为「轻资产」模式，这意味着什么？会带来哪些影响？](http://www.daogukj.com/9979795)
+- [美国首次承认具备太空进攻能力](http://www.play.hengshemaoyi.cn/kongbu/1433199.htm)
+- [多吃植物蛋白有何好处](http://www.movie.hkepx.cn/xiju/7129841.htm)
+- [从经济学意义上来说，到底是“物美价廉”靠谱？还是“一分钱，一分货”靠谱？](http://www.play.hengshemaoyi.cn/xiju/9779871.htm)
+- [微信AI 隐私](http://www.play.hengshemaoyi.cn/kongbu/0816683.htm)
+- [外籍游客爱上中国秋日深度游](http://www.movie.hkepx.cn/movie/2013477.htm)
+- [网友说再高端的场所给服务人员低工资也是低端场所，你怎么看这一说法？](http://www.play.hengshemaoyi.cn/xiju/7205858.htm)
+- [人民日报：“还我季洁”说明了什么](http://www.play.hengshemaoyi.cn/kongbu/7066491.htm)
+- [女婴身亡月子中心产妇全部搬离](http://www.movie.hkepx.cn/movie/8012853.htm)
+- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](http://www.daogukj.com/6669739)
+- [孙颖莎说伤病让自己很焦虑](http://www.play.hengshemaoyi.cn/xiju/7115036.htm)
+- [疑似演唱会求婚当事人称已报警](http://www.movie.hkepx.cn/xiju/8116216.htm)
+- [日本为啥很少有米线之类的米加工品？](http://www.play.hengshemaoyi.cn/xiju/4734993.htm)
+- [独身女子离世 叔姑舅姨9人争遗产](http://www.daogukj.com/lwpbikmi/)
+- [被嫌弃的手臂赘肉是“长寿肉”](http://www.movie.hkepx.cn/movie/6992838.htm)
+- [中国厂商推出改造版 RTX5090 显卡，售价 2.6 万元，你觉得「良心」吗？](http://www.movie.hkepx.cn/xiju/0832634.htm)
+- [网友称空管开始试点劳务派遣模式，是真的吗？会带来哪些潜在风险或影响？](http://www.play.hengshemaoyi.cn/kongbu/7290198.htm)
+- [海南暴雨致一中学门前塌方暂无伤亡](http://www.daogukj.com/jolmznpt/)
+- [研究：得糖尿病的人大多离不开这4点](http://www.play.hengshemaoyi.cn/xiju/2833298.htm)
 
 </details>
 
 ## 原始来源
 
-- [父亲撞死人儿子顶包 全家串供掩盖](https://www.baidu.com/s?wd=%E7%88%B6%E4%BA%B2%E6%92%9E%E6%AD%BB%E4%BA%BA%E5%84%BF%E5%AD%90%E9%A1%B6%E5%8C%85+%E5%85%A8%E5%AE%B6%E4%B8%B2%E4%BE%9B%E6%8E%A9%E7%9B%96&sa=fyb_news&rsv_dl=fyb_news)
+- [本科生扎堆回炉读技校](https://www.baidu.com/s?wd=%E6%9C%AC%E7%A7%91%E7%94%9F%E6%89%8E%E5%A0%86%E5%9B%9E%E7%82%89%E8%AF%BB%E6%8A%80%E6%A0%A1&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 50ac9e878f615808e417 -->
+<!-- content-fingerprint: bba03b67ceaf8e94409c -->
