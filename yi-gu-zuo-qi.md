@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 我不得不把才华埋葬在昨天
+# 中国男篮击败沙特晋级4强
 
-> 来源：百度热搜 · 排名：第 7 位 · 热度：7143455 · 更新：2026-09-16T13:14:49+08:00
+> 来源：百度热搜 · 排名：第 7 位 · 热度：7135420 · 更新：2026-09-16T18:02:45+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“我不得不把才华埋葬在昨天”位列第 7 位，公开热度指标为 7143455。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“中国男篮击败沙特晋级4强”位列第 7 位，公开热度指标为 7135420。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月14日，DeepSeek工程师刘胜与发文《我不得不把才华埋葬在昨天》，感慨AI快速进化将让手写算子逐渐被取代，自己也将从算子设计转向用AI生产算子。9月15日，他补充说明称，文章主要是向过去的手写算子时光告别。
+来源公开摘要显示：北京时间2026年9月16日，2026日本爱知名古屋亚运会男篮四分之一决赛，中国男篮以87比78击败沙特，成功挺进4强。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [退休副省长家丢了243万元茅台名酒](yi-zi-qian-jin.md)
-- [董军出席北京香山论坛开幕式](yi-fan-feng-shun.md)
-- [8岁女孩被男孩推倒、威胁，用手表报警，围观者笑她「浪费警力」，民警否认并调监控检查伤势，如何看待此举？](yi-ming-jing-ren.md)
-- [迎接崭新的融合超级机枪豌豆！【bilibilionly同人扶持计划】](yi-jian-shuang-diao.md)
+- [第一批穿德训鞋的受害者出现了](yi-zi-qian-jin.md)
+- [赵家驹：从外卖小哥到世界冠军](yi-fan-feng-shun.md)
+- [华为、赛力斯合作模式改变后，赛力斯官宣“问界大饭店”回归，推出免费错峰洗车、餐饮等服务，你怎么看？](yi-ming-jing-ren.md)
+- [童年的捕虫网，依然在我们的手里——《伊莫》PC端预下载现已开启！](yi-jian-shuang-diao.md)
 
 ## 站内推荐
 
-- [电动汽车充电不花钱 多地试点](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [昔日“彩电大王”要退市了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [赵露思自导自演新剧《告别信》](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [A股大反攻](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [A股](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [“全网最低价”为什么必须叫停](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [妈妈忘接孩子 男孩淡定躺台阶吃东西](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [早春晴朗2 话痨小姐](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [于东来骑张雪机车园区“遛弯”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [补路后拉绳致人死亡司机被批捕](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [《雍正王朝》中为什么康熙总是不急不慢、智珠在握的感觉，而雍正却动不动就发火大喊大叫？](http://www.movie.hkepx.cn/xiju/6552474.htm)
-- [迎接崭新的融合超级机枪豌豆！【bilibilionly同人扶持计划】](http://www.movie.hkepx.cn/movie/8544791.htm)
-- [重播率百分百](http://www.daogukj.com/3711177)
-- [早春晴朗2原班人马](http://www.play.hengshemaoyi.cn/kongbu/1559298.htm)
-- [文章再现名梗哥哥我顺极了](http://www.daogukj.com/vxwjdfib/)
-- [董军出席北京香山论坛开幕式](http://www.movie.hkepx.cn/movie/6409275.htm)
-- [领衔主演傅诗淇](http://www.play.hengshemaoyi.cn/xiju/2772698.htm)
-- [香港特区首个五年规划正式公布](http://www.daogukj.com/dwkhbexl/)
+- [中国男子涉嫌在印尼渔猎玳瑁并烹饪，离境时被拦接受调查，玳瑁是什么动物？若属实他将承担什么责任？](http://www.movie.hkepx.cn/xiju/6552474.htm)
+- [童年的捕虫网，依然在我们的手里——《伊莫》PC端预下载现已开启！](http://www.movie.hkepx.cn/movie/8544791.htm)
+- [钟薛高复活售价跳水](http://www.daogukj.com/3711177)
+- [知情人称南医大事件部分网传不属实](http://www.play.hengshemaoyi.cn/kongbu/1559298.htm)
+- [【终末地基建活动】一键搞定龙泡泡，摆完挂机集成援助！](http://www.daogukj.com/vxwjdfib/)
+- [赵家驹：从外卖小哥到世界冠军](http://www.movie.hkepx.cn/movie/6409275.htm)
+- [井柏然孙千 二搭](http://www.play.hengshemaoyi.cn/xiju/2772698.htm)
+- [亚运会男篮淘汰赛伊朗队晋级半决赛](http://www.daogukj.com/dwkhbexl/)
 - [如何看待厂二代拍工厂宣传视频被网友评论区追问「职工福利如何」？为啥大家开始反感这类厂二代视频了？](http://www.daogukj.com/7336913)
-- [野人先生创始人曾回应 38 元一个冰淇淋太贵，称自己的品牌把行业价格打下来了，客观来看这个定价合理吗？](http://www.daogukj.com/7257814)
-- [南方医科大学工作人员回应](http://www.movie.hkepx.cn/xiju/4522982.htm)
-- [知名爱豆嫁给励志博主，竟是天龙人的绑架pua？夫妻人设割韭菜，到底能有多赚钱！](http://www.movie.hkepx.cn/movie/5611897.htm)
-- [8岁女孩被男孩推倒、威胁，用手表报警，围观者笑她「浪费警力」，民警否认并调监控检查伤势，如何看待此举？](http://www.play.hengshemaoyi.cn/xiju/0281070.htm)
-- [看完大家的评论，我进化了！(重置版奉上)](http://www.movie.hkepx.cn/movie/2873114.htm)
-- [当你和一百万人一起吃火锅【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/7985573.htm)
-- [世界最艰难越野跑中国选手夺冠](http://www.daogukj.com/1201346)
-- [罗永浩前合伙人黄斌炮轰其「吹牛成性，谎称盈利」，是真的吗？他俩之间有啥恩怨？](http://www.play.hengshemaoyi.cn/xiju/9868547.htm)
-- [国台办：祖国统一大势不可阻挡](http://www.play.hengshemaoyi.cn/xiju/4472820.htm)
-- [《鸣潮》动画短片 | 寻心](http://www.daogukj.com/6717907)
-- [昔日“彩电大王”要退市了](http://www.daogukj.com/smbgijxm/)
-- [恋人](http://www.daogukj.com/ttaxgjnj/)
-- [张雪打车被认出后幽默否认](http://www.movie.hkepx.cn/movie/2477961.htm)
-- [韩国尸皮针价格](http://www.movie.hkepx.cn/movie/7906581.htm)
-- [为工作23年未见父母也算先进事迹吗](http://www.play.hengshemaoyi.cn/xiju/2898700.htm)
-- [警方调查南方医科大学跳楼](http://www.daogukj.com/8209027)
-- [崔天凯：一劳永逸解决台湾问题](http://www.play.hengshemaoyi.cn/kongbu/8768079.htm)
-- [《复联5》剧情全泄露！太真了！谨慎观看！](http://www.movie.hkepx.cn/movie/0482312.htm)
-- [直击中国代表团抵达名古屋](http://www.play.hengshemaoyi.cn/xiju/9281018.htm)
-- [老人接到女儿离世噩耗 导游助其回家](http://www.play.hengshemaoyi.cn/xiju/2910980.htm)
-- [S1赛季「逐风启程」——《伊莫》PC端今日上线](http://www.movie.hkepx.cn/xiju/6292361.htm)
-- [一组数看我国经济澎湃动能](http://www.play.hengshemaoyi.cn/xiju/0614862.htm)
-- [宁德时代上半年营收利润双增股价却大跌，车企「去宁德化」如何影响其未来？](http://www.daogukj.com/9979795)
-- [活着一切才会有希望](http://www.play.hengshemaoyi.cn/kongbu/1433199.htm)
-- [携程上架维珍银河 2027 太空旅行船票，510万元一张，亚轨道太空游能体验什么？值这个价吗？](http://www.movie.hkepx.cn/xiju/7129841.htm)
-- [华为、赛力斯合作模式改变后，赛力斯官宣“问界大饭店”回归，推出免费错峰洗车、餐饮等服务，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/9779871.htm)
-- [优酷首个官宣告别信](http://www.play.hengshemaoyi.cn/kongbu/0816683.htm)
-- [世纪工程4年完工](http://www.movie.hkepx.cn/movie/2013477.htm)
-- [伊朗外长阿拉格齐于 9 月 16 日访华，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/7205858.htm)
-- [曝赛力斯每卖一辆车车价10%归华为](http://www.play.hengshemaoyi.cn/kongbu/7066491.htm)
-- [“订单绕了一圈还是回到中国”](http://www.movie.hkepx.cn/movie/8012853.htm)
-- [“我的人生被那道数学题毁了”](http://www.daogukj.com/6669739)
-- [男子30年前存一万定期忘取](http://www.play.hengshemaoyi.cn/xiju/7115036.htm)
-- [中美签订20年LNG购销大单意味着什么](http://www.movie.hkepx.cn/xiju/8116216.htm)
-- [大禹看了沉默，愚公看了流泪](http://www.play.hengshemaoyi.cn/xiju/4734993.htm)
-- [女子凌晨回家 客厅有戴口罩陌生男子](http://www.daogukj.com/lwpbikmi/)
-- [DeepSeek工程师回应爆火文章](http://www.movie.hkepx.cn/movie/6992838.htm)
-- [是什么让90后的各位感觉自己已经跟不上时代、落伍了的？](http://www.movie.hkepx.cn/xiju/0832634.htm)
-- [新加坡总理已经是全球收入最高的政府首脑，为什么还要给自己涨64%的工资？](http://www.play.hengshemaoyi.cn/kongbu/7290198.htm)
-- [解放军仪仗司礼大队亮相北京香山论坛](http://www.daogukj.com/jolmznpt/)
-- [女儿撮合离异母亲与丧偶公公结婚](http://www.play.hengshemaoyi.cn/xiju/2833298.htm)
+- [南京博物院相关受赠文物一事，南京博物院原院长被判有期徒刑三年，有哪些信息值得关注？](http://www.daogukj.com/7257814)
+- [同门回应坠亡学生与导师批假是否有关](http://www.movie.hkepx.cn/xiju/4522982.htm)
+- [华为高层：14亿人市场足以支撑生存](http://www.movie.hkepx.cn/movie/5611897.htm)
+- [华为、赛力斯合作模式改变后，赛力斯官宣“问界大饭店”回归，推出免费错峰洗车、餐饮等服务，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/0281070.htm)
+- [Find X10 Pro Max上手体验：续航优秀的影像旗舰](http://www.movie.hkepx.cn/movie/2873114.htm)
+- [大禹看了沉默，愚公看了流泪](http://www.play.hengshemaoyi.cn/xiju/7985573.htm)
+- [得来全部费功夫（95）](http://www.daogukj.com/1201346)
+- [大葱，小葱，京葱，香葱，洋葱，红葱头，韭菜，大蒜，它们之间有什么联系？](http://www.play.hengshemaoyi.cn/xiju/9868547.htm)
+- [弟弟离世数周社恐哥哥无法自理死亡](http://www.play.hengshemaoyi.cn/xiju/4472820.htm)
+- [S1赛季「逐风启程」——《伊莫》PC端今日上线](http://www.daogukj.com/6717907)
+- [妈妈忘接孩子 男孩淡定躺台阶吃东西](http://www.daogukj.com/smbgijxm/)
+- [经济学家：美联储本周恐触发股灾](http://www.daogukj.com/ttaxgjnj/)
+- [6000元选豆包手机还是其他](http://www.movie.hkepx.cn/movie/2477961.htm)
+- [一点点 威胁员工](http://www.movie.hkepx.cn/movie/7906581.htm)
+- [硕士考试第一名因专升本被取消资格](http://www.play.hengshemaoyi.cn/xiju/2898700.htm)
+- [南博受赠文物事件处理结果公布](http://www.daogukj.com/8209027)
+- [黑龙江女兵被国家仪仗队选中](http://www.play.hengshemaoyi.cn/kongbu/8768079.htm)
+- [曝许嵩冯禧结婚](http://www.movie.hkepx.cn/movie/0482312.htm)
+- [博主绒耳卷向王鹤棣道歉](http://www.play.hengshemaoyi.cn/xiju/9281018.htm)
+- [啄木鸟维修换1个开关收费2800](http://www.play.hengshemaoyi.cn/xiju/2910980.htm)
+- [《鸣潮》动画短片 | 寻心](http://www.movie.hkepx.cn/xiju/6292361.htm)
+- [公积金扩围撬动万亿消费新活力](http://www.play.hengshemaoyi.cn/xiju/0614862.htm)
+- [为什么QQ邮箱这么好用大家还是觉得它「档次不够高」？](http://www.daogukj.com/9979795)
+- [研究发现每天吃够豆类高血压风险降低](http://www.play.hengshemaoyi.cn/kongbu/1433199.htm)
+- [赵家驹夺得 2026 巨人之旅 TOR330 越野跑冠军，为亚洲首冠并打破赛道纪录，如何评价本次表现？](http://www.movie.hkepx.cn/xiju/7129841.htm)
+- [当你和一百万人一起吃火锅【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/9779871.htm)
+- [“八个鸡蛋”少年开学典礼发言](http://www.play.hengshemaoyi.cn/kongbu/0816683.htm)
+- [平陆运河集齐多个“最硬核”标签](http://www.movie.hkepx.cn/movie/2013477.htm)
+- [我当面问了 Craig：为什么 iPhone 死活不让从右边返回？（散装英语最勇敢的一集）](http://www.play.hengshemaoyi.cn/xiju/7205858.htm)
+- [周柯宇新手司机历险记](http://www.play.hengshemaoyi.cn/kongbu/7066491.htm)
+- [巡视组正在南方医科大学开展工作](http://www.movie.hkepx.cn/movie/8012853.htm)
+- [新加坡总理已经是全球收入最高的政府首脑，为什么还要给自己涨64%的工资？](http://www.daogukj.com/6669739)
+- [韩国美容针 尸皮针](http://www.play.hengshemaoyi.cn/xiju/7115036.htm)
+- [中国男篮力克沙特晋级亚运半决赛](http://www.movie.hkepx.cn/xiju/8116216.htm)
+- [迎接崭新的融合超级机枪豌豆！【bilibilionly同人扶持计划】](http://www.play.hengshemaoyi.cn/xiju/4734993.htm)
+- [曝许嵩冯禧结婚了](http://www.daogukj.com/lwpbikmi/)
+- [栾念官宣](http://www.movie.hkepx.cn/movie/6992838.htm)
+- [胡明轩全场6投2中得到5分](http://www.movie.hkepx.cn/xiju/0832634.htm)
+- [《上吊比赛》](http://www.play.hengshemaoyi.cn/kongbu/7290198.htm)
+- [优酷](http://www.daogukj.com/jolmznpt/)
+- [评论员：科技股爆发反弹释放积极信号](http://www.play.hengshemaoyi.cn/xiju/2833298.htm)
 
 </details>
 
 ## 原始来源
 
-- [我不得不把才华埋葬在昨天](https://www.baidu.com/s?wd=%E6%88%91%E4%B8%8D%E5%BE%97%E4%B8%8D%E6%8A%8A%E6%89%8D%E5%8D%8E%E5%9F%8B%E8%91%AC%E5%9C%A8%E6%98%A8%E5%A4%A9&sa=fyb_news&rsv_dl=fyb_news)
+- [中国男篮击败沙特晋级4强](https://www.baidu.com/s?wd=%E4%B8%AD%E5%9B%BD%E7%94%B7%E7%AF%AE%E5%87%BB%E8%B4%A5%E6%B2%99%E7%89%B9%E6%99%8B%E7%BA%A74%E5%BC%BA&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7ab5c082187dc25f8a3d -->
+<!-- content-fingerprint: 29462c08f36e0ded4943 -->
