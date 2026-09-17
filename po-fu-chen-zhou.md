@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 英国可能解体又不太可能
+# 我只是想煮一个鸡蛋，互联网却想教我做人❤️
 
-> 来源：哔哩哔哩热门 · 排名：第 5 位 · 热度：606440 · 分类：人文历史 · 更新：2026-09-17T17:30:45+08:00
+> 来源：哔哩哔哩热门 · 排名：第 5 位 · 热度：379024 · 分类：短片 · 更新：2026-09-17T22:25:14+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“英国可能解体又不太可能”位列第 5 位，公开热度指标为 606440，榜单分类为“人文历史”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“我只是想煮一个鸡蛋，互联网却想教我做人❤️”位列第 5 位，公开热度指标为 379024，榜单分类为“短片”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：本视频提及事件以及信息来源如下： 《苏格兰和北爱领导人呼吁独立公投》来自：财联社，2026-09-14 19:50发布 《记者观察丨威尔士、苏格兰和北爱尔兰为何意欲“脱英”？》来自：第一财经，2026-09-15 09:09发布 《威尔士、苏格兰和北爱尔兰三地联手寻求“脱英”，特朗普访问爱尔兰，表态支持“北爱脱英”》来自：四川观察，2026-09-16 08:51发布 《威尔士、苏格兰和北爱尔兰三地政党罕见“抱团”，向伦敦发出什么信号？》来自：湖南日报，2026-09-15 11:42发布 《英国威尔士、
+哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `人文历史`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `短片`
 
 ## 相关热点
 
-- [举手式睡姿是身体在求救](bei-shui-yi-zhan.md)
-- [影视飓风 iPhoneDuo](zhi-shang-tan-bing.md)
+- [UFO高速飞过墨西哥城上空](bei-shui-yi-zhan.md)
+- [iOS27电池图标 丑](zhi-shang-tan-bing.md)
 - [中国运动员在日本机场干等6小时](wei-wei-jiu-zhao.md)
-- [百度搜索为什么没落了？](wan-bi-gui-zhao.md)
+- [LPL 2026 赛季资格赛TES 3-1 iG，如何评价这场比赛？](wan-bi-gui-zhao.md)
 
 ## 站内推荐
 
-- [龙蛇有界 | 2026全球冠军赛皮肤终极预告 CG](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [中国女子板球队一场没打被淘汰](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [广西真正靠海了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [微信 三折叠](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [女子体内取出197枚子宫肌瘤](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [阿祖从军记（二）](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [《鸣潮》先约电台EP3.7——心《心月辞》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [琵琶曲 l 成都超人](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [【何同学】很大胆。iPhone 18 Pro首发体验](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [范玮琪方否认曾说“不然就会像大S”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [多地严控手机进校园，一刀切禁止手机，到底是保护孩子，还是隔绝了必要的学习工具？](http://www.daogukj.com/1823488)
-- [胡歌被排到了第八位](http://www.play.hengshemaoyi.cn/xiju/5320894.htm)
-- [琵琶曲 l 成都超人](http://www.movie.hkepx.cn/xiju/9086289.htm)
-- [中方回应特朗普可对买俄石油国加税](http://www.daogukj.com/cskdtjca/)
-- [举手式睡姿是身体在求救](http://www.movie.hkepx.cn/movie/5197885.htm)
-- [问界撤出鸿蒙智行门店](http://www.daogukj.com/9392657)
-- [赛力斯](http://www.movie.hkepx.cn/movie/8565414.htm)
-- [烂烂烂烂烂烂活](http://www.daogukj.com/6051164)
-- [DeepSeek 算子负责人发文《我不得不把才华埋葬在昨天》，是在反击 Anthropic 吗？](http://www.daogukj.com/6679975)
-- [小沈阳力挺妻子沈春阳圆导演梦](http://www.daogukj.com/2695648)
-- [一车人都买错票车站 12306新增提醒](http://www.play.hengshemaoyi.cn/xiju/3099726.htm)
-- [中国女足亚运爆冷平乌兹别克](http://www.movie.hkepx.cn/movie/7889816.htm)
-- [美联储加息25个基点是“收割全球”吗](http://www.play.hengshemaoyi.cn/xiju/3571483.htm)
-- [亚运会中国代表团自带检测设备？不实](http://www.play.hengshemaoyi.cn/kongbu/9465250.htm)
-- [为什么很多小说或电视剧里都是镇北侯，怎么没有镇南侯？](http://www.movie.hkepx.cn/xiju/2970345.htm)
+- [iPhone Duo不支持微信双开？客服回应](http://www.daogukj.com/1823488)
+- [大禹看了沉默，愚公看了流泪](http://www.play.hengshemaoyi.cn/xiju/5320894.htm)
+- [男子被宣告死亡8年后重新出现](http://www.movie.hkepx.cn/xiju/9086289.htm)
+- [王毅：中美双方要筹备好下阶段高层交往](http://www.daogukj.com/cskdtjca/)
+- [UFO高速飞过墨西哥城上空](http://www.movie.hkepx.cn/movie/5197885.htm)
+- [我们来了阵容配置](http://www.daogukj.com/9392657)
+- [TES战胜iG](http://www.movie.hkepx.cn/movie/8565414.htm)
+- [医生教你读懂高血压](http://www.daogukj.com/6051164)
+- [外卖员向餐食吐口水摆拍案细节披露](http://www.daogukj.com/6679975)
+- [这次亚运会，中国男足能拿奖牌吗？](http://www.daogukj.com/2695648)
+- [村委会组织修管道塌方村副主任身亡](http://www.play.hengshemaoyi.cn/xiju/3099726.htm)
+- [SK海力士、美光科技均涨超5%](http://www.movie.hkepx.cn/movie/7889816.htm)
+- [小鹏G9L价格炸裂](http://www.play.hengshemaoyi.cn/xiju/3571483.htm)
+- [陈建州拜托大家3件事](http://www.play.hengshemaoyi.cn/kongbu/9465250.htm)
+- [小孩哥手搓语文书太有才了](http://www.movie.hkepx.cn/xiju/2970345.htm)
 - [亚运女子板球1/4决赛场地积水取消，中国队世界排名低于对手被判负，一场未打结束亚运征程，这规则合理吗？](http://www.daogukj.com/7120405)
-- [梅姨供述1.2万元交易钟彬](http://www.play.hengshemaoyi.cn/xiju/4113560.htm)
-- [百度搜索为什么没落了？](http://www.daogukj.com/jzelussd/)
-- [中国新中式女装在新加坡卖爆了](http://www.daogukj.com/ajlcnxcx/)
-- [霉霉丈夫遭遇庞氏骗局](http://www.daogukj.com/0152970)
-- [广东肇庆街头“战机迫降”？当地回应](http://www.movie.hkepx.cn/movie/9056597.htm)
-- [浙江一猪景房8888元一晚](http://www.play.hengshemaoyi.cn/xiju/9731004.htm)
-- [留学生赞中国能把美以伊代表聚在一起](http://www.movie.hkepx.cn/xiju/1868267.htm)
-- [立志成为恶兽第四集【up动画】【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/1299773.htm)
-- [为什么《泰坦尼克号》里要强行给男二卡尔安排个大萧条期间破产自杀的结局？](http://www.daogukj.com/onyieegy/)
-- [于东来建议给家人花钱不超3成收入](http://www.play.hengshemaoyi.cn/xiju/0532528.htm)
-- [iPhone18 Pro性能分析：五年来最强的芯片升级！](http://www.movie.hkepx.cn/movie/0256063.htm)
-- [美联储加息25点对股市黄金有何影响](http://www.movie.hkepx.cn/movie/9918247.htm)
-- [义乌开始卖飞碟了](http://www.movie.hkepx.cn/movie/8593083.htm)
-- [辽宁省政协原副主席戴玉林被查](http://www.movie.hkepx.cn/movie/0122390.htm)
-- [机顶盒将成为历史](http://www.movie.hkepx.cn/movie/7943713.htm)
-- [【邓肯】“梅姨”案](http://www.play.hengshemaoyi.cn/kongbu/5001053.htm)
-- [女生称同济大学痛经请假需脱裤检查](http://www.daogukj.com/qcrvnclj/)
-- [4 月被击落美军官首次讲述 50 小时惊险获救经历，如何评价美军动员 5000 人参与救援行动？](http://www.daogukj.com/hwjdrvyl/)
-- [月薪1万已超过80%的人](http://www.movie.hkepx.cn/xiju/3504908.htm)
-- [张一鸣身家突破 1050 亿美元首次成亚洲首富，如何评价其商业成就？](http://www.daogukj.com/lfqwqkoe/)
-- [《你爸带你忆苦思甜》](http://www.daogukj.com/6505376)
-- [折叠还是直板？iPhone 18 Pro&Duo深度视频](http://www.daogukj.com/mdqmkfar/)
-- [李小璐 rapper赵涛](http://www.play.hengshemaoyi.cn/kongbu/2415448.htm)
-- [史上最没用比赛](http://www.movie.hkepx.cn/xiju/3998678.htm)
-- [从外卖员到世界冠军 他经历了什么](http://www.movie.hkepx.cn/movie/6743699.htm)
-- [我国绿色贸易进出口规模居全球首位](http://www.daogukj.com/xgmimokd/)
-- [亚运会中国女足爆冷战平乌兹别克斯坦](http://www.play.hengshemaoyi.cn/xiju/7200927.htm)
-- [成龙、洪金宝都仰仗的男人钱嘉乐，为什么就是不火？](http://www.daogukj.com/0557862)
-- [陈建州长期睡眠不足](http://www.play.hengshemaoyi.cn/kongbu/0604765.htm)
-- [天津漫展手机事件](http://www.movie.hkepx.cn/movie/8247300.htm)
-- [2岁女孩洗澡被70度热水淋烫2分钟](http://www.daogukj.com/jcieinjo/)
-- [《原神》沃雅妮莎角色PV——「心之声」](http://www.daogukj.com/1895577)
-- [只需一句话家越07全搞定](http://www.play.hengshemaoyi.cn/kongbu/4995743.htm)
-- [亚运会 离谱](http://www.play.hengshemaoyi.cn/xiju/5777989.htm)
+- [圆梦时刻！当偶像与你同台竞技是种什么样的体验？【贴地飞行-三代】](http://www.play.hengshemaoyi.cn/xiju/4113560.htm)
+- [LPL 2026 赛季资格赛TES 3-1 iG，如何评价这场比赛？](http://www.daogukj.com/jzelussd/)
+- [史上最没用比赛](http://www.daogukj.com/ajlcnxcx/)
+- [王毅同美国国务卿鲁比奥通电话](http://www.daogukj.com/0152970)
+- [《蓝色星原：旅谣》枫糖PV | 【枫糖的一天】](http://www.movie.hkepx.cn/movie/9056597.htm)
+- [全款买房的人越来越多了](http://www.play.hengshemaoyi.cn/xiju/9731004.htm)
+- [HYROX失禁女选手致歉](http://www.movie.hkepx.cn/xiju/1868267.htm)
+- [你最想体验文学史上哪个作家的人生？](http://www.play.hengshemaoyi.cn/xiju/1299773.htm)
+- [机顶盒将成为历史](http://www.daogukj.com/onyieegy/)
+- [杨某媛疑似在西班牙读博](http://www.play.hengshemaoyi.cn/xiju/0532528.htm)
+- [在职场怎么保护好自己不受伤害？](http://www.movie.hkepx.cn/movie/0256063.htm)
+- [白举纲婚礼照片](http://www.movie.hkepx.cn/movie/9918247.htm)
+- [各省的刻板印象这一块](http://www.movie.hkepx.cn/movie/8593083.htm)
+- [猪景房8888元一晚还送一头猪](http://www.movie.hkepx.cn/movie/0122390.htm)
+- [中美外长通电话](http://www.movie.hkepx.cn/movie/7943713.htm)
+- [主持人提问互动游客都回答错误](http://www.play.hengshemaoyi.cn/kongbu/5001053.htm)
+- [拒绝了十五年前拒绝过我的学校](http://www.daogukj.com/qcrvnclj/)
+- [于东来建议给家人花钱不超3成收入](http://www.daogukj.com/hwjdrvyl/)
+- [华谊兄弟终于等来“救兵”](http://www.movie.hkepx.cn/xiju/3504908.htm)
+- [如果存在一个100%深海覆盖的海洋星球，对人类来说会不会非常恐怖？里面会发展出什么生命吗？](http://www.daogukj.com/lfqwqkoe/)
+- [名古屋亚运会邮轮选手村接船仪式上日方演员扮演丰臣秀吉，引发韩国某大学徐姓教授写邮件抗议，对此你怎么看？](http://www.daogukj.com/6505376)
+- [选哪个？iPhone 18 Pro&Duo深度上手](http://www.daogukj.com/mdqmkfar/)
+- [美联储宣布加息 25 个基点，时隔三年再度加息，对全球经济有哪些影响？全球资产价格会有怎样的连锁反应？](http://www.play.hengshemaoyi.cn/kongbu/2415448.htm)
+- [【小满香香公主】最新视频来袭，快来看看吧！](http://www.movie.hkepx.cn/xiju/3998678.htm)
+- [不是不够努力：拆解后发国家工业化的结构性枷锁](http://www.movie.hkepx.cn/movie/6743699.htm)
+- [平陆运河激活西部“新动脉”](http://www.daogukj.com/xgmimokd/)
+- [客服回应iPhone Duo不支持微信双开](http://www.play.hengshemaoyi.cn/xiju/7200927.htm)
+- [亚运会](http://www.daogukj.com/0557862)
+- [网传“外卖员向餐食吐口水”系摆拍](http://www.play.hengshemaoyi.cn/kongbu/0604765.htm)
+- [问一下大家，总层24，只剩18楼和5楼，选哪个比较好？](http://www.movie.hkepx.cn/movie/8247300.htm)
+- [我们努力给孩子最好的环境，孩子就一定会成长得很好吗？](http://www.daogukj.com/jcieinjo/)
+- [友：时长越长观看越少。 我：但这里是B站诶！](http://www.daogukj.com/1895577)
+- [龙蛇有界 | 2026全球冠军赛皮肤终极预告 CG](http://www.play.hengshemaoyi.cn/kongbu/4995743.htm)
+- [中国团队发现5.18亿年前“玉净虫”](http://www.play.hengshemaoyi.cn/xiju/5777989.htm)
 
 </details>
 
 ## 原始来源
 
-- [英国可能解体又不太可能](https://b23.tv/BV1iQeM6uEEH)
+- [我只是想煮一个鸡蛋，互联网却想教我做人❤️](https://b23.tv/BV1vdeJ6KEkR)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 33b4f22eabc2964b5e8f -->
+<!-- content-fingerprint: d564623a1ad5b7643d89 -->
