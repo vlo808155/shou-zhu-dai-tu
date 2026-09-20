@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 老乡鸡董事长嫁女
+# 白鹿偷常华森的狗呵呵掀帘子
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7427981 · 更新：2026-09-20T15:02:01+08:00
+> 来源：微博热搜 · 排名：第 5 位 · 热度：656812 · 分类：剧集 · 更新：2026-09-20T20:17:50+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“老乡鸡董事长嫁女”位列第 4 位，公开热度指标为 7427981。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“白鹿偷常华森的狗呵呵掀帘子”位列第 5 位，公开热度指标为 656812，榜单分类为“剧集”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月17日，老乡鸡创始人束从轩之女、持股15%的执行董事束文大婚。此前，老乡鸡五年间五次冲击IPO均告失败，2022年其估值约181亿元，至2026年机构测算已腰斩至约80亿元。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `剧集`
 
 ## 相关热点
 
-- [60岁产妇生女2年前因失独生下儿子](wang-mei-zhi-ke.md)
-- [莎拉做好接任总统准备？菲总统府回应](wen-ji-qi-wu.md)
-- [如何看待《我的朋友很少》作者平坂读因财富自由宣布退休，不再写轻小说？你对其作品有哪些记忆和评价？](wo-xin-chang-dan.md)
-- [烟盒战队-复抽者！](po-fu-chen-zhou.md)
+- [西贝来到“生死线”边缘了吗](wang-mei-zhi-ke.md)
+- [如何看待潮州一腊味厂使用死因不明的猪肉加工肉脯，经检测猪病毒阳性，警方已立案？会对健康造成什么影响？](wen-ji-qi-wu.md)
+- [坐在购物车里狂奔！懒虫：荣耀购物车](wo-xin-chang-dan.md)
+- [7000亿蒸发背后 城市大洗牌开始](po-fu-chen-zhou.md)
 
 ## 站内推荐
 
-- [中国硬核科技与重大工程捷报频传](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [中国连夺3金](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [曝冯禧西太后婚纱价值5万多](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [阿尔茨海默病患者好像越来越多了，这是真的吗？为什么会这样？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [春风得意到底是什么体验？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [水产捕捞田间秋收齐上线](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [亚运会官网搞错王楚钦比分](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [陌生的女人，竟在我家偷偷住了二十年....](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [开幕式出现歌舞伎 网友直呼渗人](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [郭士强谈不敌伊朗男篮主因](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [中国队夺金速度也太快了](http://www.daogukj.com/srmtipfy/)
-- [陌生的女人，竟在我家偷偷住了二十年....](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
-- [北大复旦校长警告 AI 依赖，对教育意味着什么？该如何应对过度依赖 AI 导致的知识虚假掌握？](http://www.daogukj.com/5764219)
-- [疑似马伊琍恋情](http://www.daogukj.com/5051205)
+- [人民日报评“第一学历歧视”](http://www.daogukj.com/srmtipfy/)
+- [王楚钦王曼昱身陷“死亡半区”](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
+- [彩礼18.8万快成全国统一价了](http://www.daogukj.com/5764219)
+- [《花骨朵》亚细亚旷世奇才/洛天依](http://www.daogukj.com/5051205)
 - [【独家】牧神记 第101集 巫法杀人](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
-- [《花骨朵》亚细亚旷世奇才/洛天依](http://www.movie.hkepx.cn/movie/3745200.htm)
-- [日本人平均身高被中韩超越](http://www.daogukj.com/eptgayul/)
-- [金秀贤复出](http://www.daogukj.com/zzzmzdnw/)
-- [国乒3-0中国澳门迎开门红 王楚钦休战](http://www.daogukj.com/2895651)
-- [印度杀猪盘盯上欧洲，爱沙尼亚被坑7000万？](http://www.daogukj.com/bmrafxkl/)
-- [司机好心补路、拉绳警示，导致路过女子被绳索勒颈身亡，被以过失致人死亡罪逮捕，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/6678209.htm)
-- [湖北省博卧薪尝胆棒棒糖走红](http://www.daogukj.com/2230415)
-- [西贝回应倒闭传闻](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
-- [许冠文：人生短短不快乐很笨](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
-- [《鸣潮》3.7版本前瞻通讯 | 回顾影像](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
-- [童心金牌](http://www.movie.hkepx.cn/xiju/6217864.htm)
-- [郑丽文：100%把握让国民党2028上台](http://www.movie.hkepx.cn/movie/4778790.htm)
-- [《红楼梦》现代短剧版](http://www.movie.hkepx.cn/movie/7470449.htm)
-- [老板患上了AI狂热症，连决策都让AI来做，感觉公司快完蛋了，员工该怎么办？](http://www.movie.hkepx.cn/movie/6111499.htm)
-- [莎拉做好接任总统准备？菲总统府回应](http://www.movie.hkepx.cn/xiju/2348853.htm)
-- [为什么很多过了35岁的女性会突然拼命想要孩子？](http://www.daogukj.com/fygnbifa/)
-- [湾区升明月官宣](http://www.daogukj.com/9070712)
-- [中秋节等于没放假？吵完发现搞错了](http://www.daogukj.com/hoflukum/)
-- [阿尔茨海默病患者好像越来越多了，这是真的吗？为什么会这样？](http://www.daogukj.com/3336484)
-- [有哪些信、达、不雅的翻译？](http://www.movie.hkepx.cn/movie/3675931.htm)
-- [金秀贤 金赛纶](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
-- [春风得意到底是什么体验？](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
-- [我经常在闹钟响前几分钟自己醒来，这是巧合，还是身体真的会“算时间”？](http://www.daogukj.com/xljzrgjc/)
-- [1公斤冻牛肉解冻后仅剩400克](http://www.daogukj.com/sfjdsknb/)
-- [公积金新规正式施行](http://www.movie.hkepx.cn/xiju/0712256.htm)
-- [如何看待水滴筹服务费上涨至 8 %，客服称为给用户提供高质量服务？这种收费与公益筹款性质是否存在冲突？](http://www.daogukj.com/blhofduy/)
-- [超长蛋挞全国爆单 多地一货难求](http://www.daogukj.com/qdmxuvra/)
-- [曝冯禧西太后婚纱价值5万多](http://www.daogukj.com/3062862)
-- [赵家驹否认背包里有裹尸布](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
-- [中国代表团亚运会首金](http://www.daogukj.com/4819328)
-- [“装毒花生电动车被盗”系谣言](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
-- [电影《重生2》定档](http://www.movie.hkepx.cn/xiju/6449274.htm)
-- [香港海关检获约1.25亿港元大麻花](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
-- [中国队夺金速度太快](http://www.movie.hkepx.cn/xiju/8624591.htm)
-- [一家7口人点8道菜只花了60元](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
-- [我觉得牛排不如酱牛肉好吃，是我太粗鄙了吗？](http://www.daogukj.com/2518516)
-- [董建华公祭仪式在港举行](http://www.movie.hkepx.cn/movie/2625646.htm)
-- [如何看待《我的朋友很少》作者平坂读因财富自由宣布退休，不再写轻小说？你对其作品有哪些记忆和评价？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
-- [60岁产妇生下女儿 2年前生下儿子](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
-- [Deepseek用现在的ds harness好还是zcode好？](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
-- [918](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
-- [男子网购短袖发现衣领是双面胶粘的](http://www.movie.hkepx.cn/xiju/9162988.htm)
-- [四川一小学护学岗四人均为高龄老人，最大者 67 岁，教育局已督促整改，暴露了背后哪些问题？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
-- [iG 时隔 7 年再次晋级全球总决赛，你对他们的表现有哪些期待？](http://www.daogukj.com/xfhybzga/)
-- [配音演员赵然去世](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
+- [【传奇耐熬王】荒野独居2026👊全球最高规格荒野比赛🔪世界各地绝活哥前来参赛...兔王鹿王鱼王大战！](http://www.movie.hkepx.cn/movie/3745200.htm)
+- [泰国教练晒亚运午餐仅3块鸡肉](http://www.daogukj.com/eptgayul/)
+- [伊朗消息人士称美方称准备好与伊朗谈判且态度认真，伊朗要求美方重回伊斯兰堡谅解备忘录，这次和谈能落地吗？](http://www.daogukj.com/zzzmzdnw/)
+- [我的大脑变大枣](http://www.daogukj.com/2895651)
+- [华为阔直板手机登顶周销量榜单](http://www.daogukj.com/bmrafxkl/)
+- [我觉得牛排不如酱牛肉好吃，是我太粗鄙了吗？](http://www.movie.hkepx.cn/movie/6678209.htm)
+- [2026湾区升明月](http://www.daogukj.com/2230415)
+- [烟盒战队-复抽者！](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
+- [秦始皇陵水银来源被找到](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
+- [采访了刘慈欣](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
+- [这个广东“最低调”的海边美食之城，究竟能有多会吃？](http://www.movie.hkepx.cn/xiju/6217864.htm)
+- [《潜伏》中，晚秋最后也去了台湾，和余则成假扮夫妻，站长不会怀疑吗？](http://www.movie.hkepx.cn/movie/4778790.htm)
+- [披荆斩棘直播](http://www.movie.hkepx.cn/movie/7470449.htm)
+- [亚运会男篮铜牌赛，中国男篮 70-79 伊朗男篮，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/6111499.htm)
+- [如何看待潮州一腊味厂使用死因不明的猪肉加工肉脯，经检测猪病毒阳性，警方已立案？会对健康造成什么影响？](http://www.movie.hkepx.cn/xiju/2348853.htm)
+- [亚运会乒乓球](http://www.daogukj.com/fygnbifa/)
+- [潘展乐反超夺金](http://www.daogukj.com/9070712)
+- [潘展乐赢了0.04秒](http://www.daogukj.com/hoflukum/)
+- [开幕式出现歌舞伎 网友直呼渗人](http://www.daogukj.com/3336484)
+- [张家齐看妈妈出丑后冷笑](http://www.movie.hkepx.cn/movie/3675931.htm)
+- [当我开始研究“女生男相”，初恋非说我整容了……](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
+- [郭士强谈不敌伊朗男篮主因](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
+- [如何看待《我的朋友很少》作者平坂读因财富自由宣布退休，不再写轻小说？你对其作品有哪些记忆和评价？](http://www.daogukj.com/xljzrgjc/)
+- [李成钢任中国国际贸易谈判代表](http://www.daogukj.com/sfjdsknb/)
+- [湾区升明月](http://www.movie.hkepx.cn/xiju/0712256.htm)
+- [【萌黄一槽】大蛇丸[传说中的三忍]全技能爆料！随“形”应变？！](http://www.daogukj.com/blhofduy/)
+- [正视](http://www.daogukj.com/qdmxuvra/)
+- [陌生的女人，竟在我家偷偷住了二十年....](http://www.daogukj.com/3062862)
+- [女子与男性饮酒后入住宾馆 次日猝死](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
+- [中国队一天11枚金牌](http://www.daogukj.com/4819328)
+- [亚运会团体赛王曼昱 1-3 不敌朱雨玲，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
+- [中式魅魔挑战（你能闯到第几关？）【AI音乐】](http://www.movie.hkepx.cn/xiju/6449274.htm)
+- [S16 全球总决赛 LPL 的四支队伍都能走多远？冠军有希望吗？](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
+- [媒体人：中国男篮帮助伊朗重拾信心](http://www.movie.hkepx.cn/xiju/8624591.htm)
+- [男篮主帅郭士强回应输球](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
+- [女童在动物园禁停地点下车被鹿撞飞](http://www.daogukj.com/2518516)
+- [如何看多家银行上调存款利率](http://www.movie.hkepx.cn/movie/2625646.htm)
+- [坐在购物车里狂奔！懒虫：荣耀购物车](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
+- [名古屋亚运会为啥办得这么抠搜？是真没钱，还是背后有啥心思？](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
+- [女装 一扯就坏](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
+- [已婚女子与男子开房次日全裸身亡](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
+- [你的存款该如何保值](http://www.movie.hkepx.cn/xiju/9162988.htm)
+- [老板患上了AI狂热症，连决策都让AI来做，感觉公司快完蛋了，员工该怎么办？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
+- [长沙电动车时速超25码要被抓不实](http://www.daogukj.com/xfhybzga/)
+- [博主：坑人的维修经济该换种模式了](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
 
 </details>
 
 ## 原始来源
 
-- [老乡鸡董事长嫁女](https://www.baidu.com/s?wd=%E8%80%81%E4%B9%A1%E9%B8%A1%E8%91%A3%E4%BA%8B%E9%95%BF%E5%AB%81%E5%A5%B3&sa=fyb_news&rsv_dl=fyb_news)
+- [白鹿偷常华森的狗呵呵掀帘子](https://s.weibo.com/weibo?q=%E7%99%BD%E9%B9%BF%E5%81%B7%E5%B8%B8%E5%8D%8E%E6%A3%AE%E7%9A%84%E7%8B%97%E5%91%B5%E5%91%B5%E6%8E%80%E5%B8%98%E5%AD%90)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 70217c7fdac2dc41b442 -->
+<!-- content-fingerprint: a646d8e414325c83ada2 -->

@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 一家7口人点8道菜只花了60元
+# 男篮主帅郭士强回应输球
 
-> 来源：百度热搜 · 排名：第 7 位 · 热度：7137523 · 更新：2026-09-20T15:02:01+08:00
+> 来源：百度热搜 · 排名：第 7 位 · 热度：7144007 · 更新：2026-09-20T20:17:50+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“一家7口人点8道菜只花了60元”位列第 7 位，公开热度指标为 7137523。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“男篮主帅郭士强回应输球”位列第 7 位，公开热度指标为 7144007。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月，武汉多所高校迎来开学，食堂因低廉物价出圈。在中南民族大学，一新生一家7口点8道菜仅花60元，红烧武昌鱼等小碗菜每份6元，热干面1.3元一碗。华中农业大学两荤盒饭仅3.5元。
+来源公开摘要显示：2026年爱知·名古屋亚运会男篮铜牌赛赛后，中国男篮70-79负伊朗无缘奖牌。主教练郭士强回应输球原因称，年轻球员大赛承压经验有差距且关键比赛发挥不稳定，同时承认球队体能疲劳。谈及后续第五窗口期，他表示国家队大门向所有人敞开，相信会有一些阵容变化。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [配音演员赵然去世](yi-gu-zuo-qi.md)
-- [新西兰军舰过航台海 解放军跟监警戒](yi-zi-qian-jin.md)
-- [如何看待水滴筹服务费上涨至 8 %，客服称为给用户提供高质量服务？这种收费与公益筹款性质是否存在冲突？](yi-fan-feng-shun.md)
-- [【微电影】星河外卖员：平台战争](yi-ming-jing-ren.md)
+- [博主：坑人的维修经济该换种模式了](yi-gu-zuo-qi.md)
+- [司机好心补路、拉绳警示，导致路过女子被绳索勒颈身亡，被以过失致人死亡罪逮捕，如何从法律角度解读？](yi-zi-qian-jin.md)
+- [【萌黄一槽】大蛇丸[传说中的三忍]全技能爆料！随“形”应变？！](yi-fan-feng-shun.md)
+- [广东：重大突发事件24小时内开发布会](yi-ming-jing-ren.md)
 
 ## 站内推荐
 
-- [【萌黄一槽】大蛇丸[传说中的三忍]全技能爆料！随“形”应变？！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [烟盒战队-复抽者！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [陪看亚运：国足vs伊朗](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [亚运会吉祥物 诡异](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [超长蛋挞全国爆单 多地一货难求](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [【网络热门AI鉴定】把你喜欢的角色做成督学老师？这个督学局有点东西！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [7000亿蒸发背后 城市大洗牌开始](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [国乒女团3-1中国澳门 孙颖莎独得2分](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [疑谷歌 Gemini4Pro 「偷跑」上线，网传碾压 GPT-6Astra，如何评价？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [正视](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [配音演员赵然去世](http://www.play.hengshemaoyi.cn/kongbu/5269516.htm)
-- [【2026LPL第三赛段】9月19日 IG vs JDG](http://www.daogukj.com/pqasrvfj/)
-- [许嵩与冯禧官宣结婚，女方是其多年粉丝且两人相差 14 岁，你如何看待这对「偶像与粉丝」的结合？](http://www.play.hengshemaoyi.cn/kongbu/6953634.htm)
-- [许嵩冯禧回门宴细节](http://www.play.hengshemaoyi.cn/xiju/4182468.htm)
-- [如何看待《我的朋友很少》作者平坂读因财富自由宣布退休，不再写轻小说？你对其作品有哪些记忆和评价？](http://www.daogukj.com/1017431)
-- [今起公积金提取场景6变9](http://www.movie.hkepx.cn/xiju/1919727.htm)
-- [莎拉做好接任总统准备？菲总统府回应](http://www.play.hengshemaoyi.cn/kongbu/2389385.htm)
-- [印度杀猪盘盯上欧洲，爱沙尼亚被坑7000万？](http://www.daogukj.com/eczaycvr/)
-- [小米18Pro星河蓝](http://www.daogukj.com/yesbcxgy/)
-- [45岁配音演员赵然因病离世](http://www.play.hengshemaoyi.cn/kongbu/2268821.htm)
-- [司机好心补路、拉绳警示，导致路过女子被绳索勒颈身亡，被以过失致人死亡罪逮捕，如何从法律角度解读？](http://www.daogukj.com/1514619)
-- [中国队夺金速度太快](http://www.daogukj.com/7229320)
-- [我经常在闹钟响前几分钟自己醒来，这是巧合，还是身体真的会“算时间”？](http://www.daogukj.com/9862646)
-- [我们拍到了大翅鲸！](http://www.play.hengshemaoyi.cn/xiju/2879856.htm)
-- [美国为何要组建“人工智能部队”](http://www.movie.hkepx.cn/xiju/0680178.htm)
-- [为什么很多过了35岁的女性会突然拼命想要孩子？](http://www.play.hengshemaoyi.cn/xiju/0371775.htm)
-- [2026世界市长对话武汉](http://www.play.hengshemaoyi.cn/xiju/1127717.htm)
-- [调休为什么总能吵翻天](http://www.daogukj.com/xtnnkhps/)
+- [博主：坑人的维修经济该换种模式了](http://www.play.hengshemaoyi.cn/kongbu/5269516.htm)
+- [两年挣6.8亿神秘艺人疑为许嵩](http://www.daogukj.com/pqasrvfj/)
+- [许嵩婚纱礼服是借的](http://www.play.hengshemaoyi.cn/kongbu/6953634.htm)
+- [如何评价孙艺珍、池昌旭主演的韩剧《挑情丑闻》？](http://www.play.hengshemaoyi.cn/xiju/4182468.htm)
+- [坐在购物车里狂奔！懒虫：荣耀购物车](http://www.daogukj.com/1017431)
+- [如果你月薪5w，你还会吃20元的快餐吗？](http://www.movie.hkepx.cn/xiju/1919727.htm)
+- [如何看待潮州一腊味厂使用死因不明的猪肉加工肉脯，经检测猪病毒阳性，警方已立案？会对健康造成什么影响？](http://www.play.hengshemaoyi.cn/kongbu/2389385.htm)
+- [华为阔直板手机登顶周销量榜单](http://www.daogukj.com/eczaycvr/)
+- [遇到不懂业务的领导，如何向上管理推动项目？](http://www.daogukj.com/yesbcxgy/)
+- [被逼急的五星级酒店 卖起12元外卖](http://www.play.hengshemaoyi.cn/kongbu/2268821.htm)
+- [我觉得牛排不如酱牛肉好吃，是我太粗鄙了吗？](http://www.daogukj.com/1514619)
+- [媒体人：中国男篮帮助伊朗重拾信心](http://www.daogukj.com/7229320)
+- [如何看待《我的朋友很少》作者平坂读因财富自由宣布退休，不再写轻小说？你对其作品有哪些记忆和评价？](http://www.daogukj.com/9862646)
+- [评分9.3！长大能有多苦涩？重温野比大雄的人生！咋和童年看着不一样？【瓶子君152】](http://www.play.hengshemaoyi.cn/xiju/2879856.htm)
+- [潘展乐男子100米自由泳卫冕夺金](http://www.movie.hkepx.cn/xiju/0680178.htm)
+- [亚运会乒乓球](http://www.play.hengshemaoyi.cn/xiju/0371775.htm)
+- [从数据里读懂中国经济韧性](http://www.play.hengshemaoyi.cn/xiju/1127717.htm)
+- [2026湾区升明月节目单](http://www.daogukj.com/xtnnkhps/)
 - [【独家】牧神记 第101集 巫法杀人](http://www.play.hengshemaoyi.cn/kongbu/7644899.htm)
-- [北大复旦校长警告 AI 依赖，对教育意味着什么？该如何应对过度依赖 AI 导致的知识虚假掌握？](http://www.play.hengshemaoyi.cn/xiju/5097167.htm)
-- [《红楼梦》现代短剧版](http://www.movie.hkepx.cn/xiju/7245859.htm)
-- [中秋节等于没放假？吵完发现搞错了](http://www.movie.hkepx.cn/xiju/0748643.htm)
-- [60岁产妇生女2年前因失独生下儿子](http://www.daogukj.com/7402023)
-- [男子网购短袖发现衣领是双面胶粘的](http://www.play.hengshemaoyi.cn/kongbu/5443100.htm)
-- [赵家驹否认背包里有裹尸布](http://www.daogukj.com/aftpkacm/)
-- [许嵩冯禧伴手礼细节曝光](http://www.movie.hkepx.cn/movie/2312956.htm)
-- [1公斤冻牛肉解冻后仅剩400克](http://www.play.hengshemaoyi.cn/kongbu/4823974.htm)
-- [日本人平均身高被中韩超越](http://www.daogukj.com/zoxyezyv/)
-- [公积金新规正式施行](http://www.daogukj.com/2322655)
-- [金秀贤复出](http://www.movie.hkepx.cn/movie/3668600.htm)
-- [60岁产妇生下女儿 2年前生下儿子](http://www.daogukj.com/6111077)
-- [陪看亚运：国足vs伊朗](http://www.movie.hkepx.cn/xiju/1768070.htm)
-- [曝冯禧西太后婚纱价值5万多](http://www.movie.hkepx.cn/xiju/4446306.htm)
-- [【互联网入门指南】Github入门](http://www.movie.hkepx.cn/movie/3688649.htm)
-- [有哪些信、达、不雅的翻译？](http://www.play.hengshemaoyi.cn/kongbu/4226971.htm)
-- [阿尔茨海默病患者好像越来越多了，这是真的吗？为什么会这样？](http://www.daogukj.com/8802551)
-- [四川一小学护学岗四人均为高龄老人，最大者 67 岁，教育局已督促整改，暴露了背后哪些问题？](http://www.play.hengshemaoyi.cn/xiju/6879576.htm)
-- [五星红旗，闪耀亚运！](http://www.movie.hkepx.cn/movie/3363630.htm)
-- [老板患上了AI狂热症，连决策都让AI来做，感觉公司快完蛋了，员工该怎么办？](http://www.daogukj.com/gflssozy/)
-- [湾区升明月官宣](http://www.daogukj.com/qvclnbfi/)
-- [许冠文：人生短短不快乐很笨](http://www.movie.hkepx.cn/movie/5025610.htm)
-- [亚运会首日中国游泳队冲击7金](http://www.movie.hkepx.cn/movie/4923761.htm)
-- [我拒绝了喜欢的明星加我微信](http://www.play.hengshemaoyi.cn/xiju/3290638.htm)
-- [调休 探亲刚需](http://www.play.hengshemaoyi.cn/kongbu/3540195.htm)
-- [童心金牌](http://www.daogukj.com/heymhest/)
-- [国乒3-0中国澳门迎开门红 王楚钦休战](http://www.daogukj.com/4552622)
-- [11.3万亿吨冰去哪儿了](http://www.play.hengshemaoyi.cn/kongbu/2437413.htm)
-- [年薪2000万总裁爱上二本实习生？大后果比大结果先来！《早春晴朗》吐槽](http://www.daogukj.com/1018065)
-- [烟盒战队-复抽者！](http://www.movie.hkepx.cn/xiju/1684044.htm)
-- [香港海关检获约1.25亿港元大麻花](http://www.movie.hkepx.cn/xiju/3549037.htm)
+- [彩礼18.8万快成全国统一价了](http://www.play.hengshemaoyi.cn/xiju/5097167.htm)
+- [披荆斩棘直播](http://www.movie.hkepx.cn/xiju/7245859.htm)
+- [潘展乐赢了0.04秒](http://www.movie.hkepx.cn/xiju/0748643.htm)
+- [西贝来到“生死线”边缘了吗](http://www.daogukj.com/7402023)
+- [你的存款该如何保值](http://www.play.hengshemaoyi.cn/kongbu/5443100.htm)
+- [女子与男性饮酒后入住宾馆 次日猝死](http://www.daogukj.com/aftpkacm/)
+- [佟丽娅拒绝参与行业奖项评选，不愿承受获奖后非议，如何看待这一选择？作品口碑能否替代奖项认可？](http://www.movie.hkepx.cn/movie/2312956.htm)
+- [李成钢任中国国际贸易谈判代表](http://www.play.hengshemaoyi.cn/kongbu/4823974.htm)
+- [泰国教练晒亚运午餐仅3块鸡肉](http://www.daogukj.com/zoxyezyv/)
+- [湾区升明月](http://www.daogukj.com/2322655)
+- [伊朗消息人士称美方称准备好与伊朗谈判且态度认真，伊朗要求美方重回伊斯兰堡谅解备忘录，这次和谈能落地吗？](http://www.movie.hkepx.cn/movie/3668600.htm)
+- [名古屋亚运会为啥办得这么抠搜？是真没钱，还是背后有啥心思？](http://www.daogukj.com/6111077)
+- [国乒女团3-1中国澳门 孙颖莎独得2分](http://www.movie.hkepx.cn/xiju/1768070.htm)
+- [陌生的女人，竟在我家偷偷住了二十年....](http://www.movie.hkepx.cn/xiju/4446306.htm)
+- [省财政厅公物仓金观音系行贿案赃物](http://www.movie.hkepx.cn/movie/3688649.htm)
+- [张家齐看妈妈出丑后冷笑](http://www.play.hengshemaoyi.cn/kongbu/4226971.htm)
+- [开幕式出现歌舞伎 网友直呼渗人](http://www.daogukj.com/8802551)
+- [老板患上了AI狂热症，连决策都让AI来做，感觉公司快完蛋了，员工该怎么办？](http://www.play.hengshemaoyi.cn/xiju/6879576.htm)
+- [我国硬核科技与重大工程捷报频传](http://www.movie.hkepx.cn/movie/3363630.htm)
+- [亚运会男篮铜牌赛，中国男篮 70-79 伊朗男篮，如何评价本场比赛？](http://www.daogukj.com/gflssozy/)
+- [潘展乐反超夺金](http://www.daogukj.com/qvclnbfi/)
+- [秦始皇陵水银来源被找到](http://www.movie.hkepx.cn/movie/5025610.htm)
+- [汪顺夺男子200米个人混合泳铜牌](http://www.movie.hkepx.cn/movie/4923761.htm)
+- [KPL十周年宣传片：《保持纯粹的热爱》](http://www.play.hengshemaoyi.cn/xiju/3290638.htm)
+- [【苏星河】如今的这些国产系统，是苹果用户不敢想的…](http://www.play.hengshemaoyi.cn/kongbu/3540195.htm)
+- [这个广东“最低调”的海边美食之城，究竟能有多会吃？](http://www.daogukj.com/heymhest/)
+- [我的大脑变大枣](http://www.daogukj.com/4552622)
+- [下周A股行情会迎来突破吗](http://www.play.hengshemaoyi.cn/kongbu/2437413.htm)
+- [周深连续4年登湾区升明月晚会](http://www.daogukj.com/1018065)
+- [7000亿蒸发背后 城市大洗牌开始](http://www.movie.hkepx.cn/xiju/1684044.htm)
+- [S16 全球总决赛 LPL 的四支队伍都能走多远？冠军有希望吗？](http://www.movie.hkepx.cn/xiju/3549037.htm)
 
 </details>
 
 ## 原始来源
 
-- [一家7口人点8道菜只花了60元](https://www.baidu.com/s?wd=%E4%B8%80%E5%AE%B67%E5%8F%A3%E4%BA%BA%E7%82%B98%E9%81%93%E8%8F%9C%E5%8F%AA%E8%8A%B1%E4%BA%8660%E5%85%83&sa=fyb_news&rsv_dl=fyb_news)
+- [男篮主帅郭士强回应输球](https://www.baidu.com/s?wd=%E7%94%B7%E7%AF%AE%E4%B8%BB%E5%B8%85%E9%83%AD%E5%A3%AB%E5%BC%BA%E5%9B%9E%E5%BA%94%E8%BE%93%E7%90%83&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2eade858efed2d3ac5df -->
+<!-- content-fingerprint: 77f58cd1b9ee1d08a7cb -->
