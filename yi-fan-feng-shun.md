@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 男子花84.51万拍下省财政厅公物仓「金观音」，一测几乎全是铜，物品系收缴赃物，问题出在哪？
+# 当那一天真的来临，我们不会孤军奋战 | 元素战争：破晓 【原神HoYoFair x bilibilionly】
 
-> 来源：知乎热榜 · 排名：第 8 位 · 热度：93 万热度 · 分类：问答 · 更新：2026-09-21T09:14:53+08:00
+> 来源：哔哩哔哩热门 · 排名：第 8 位 · 热度：593375 · 分类：手机游戏 · 更新：2026-09-21T14:30:39+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“男子花84.51万拍下省财政厅公物仓「金观音」，一测几乎全是铜，物品系收缴赃物，问题出在哪？”位列第 8 位，公开热度指标为 93 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“当那一天真的来临，我们不会孤军奋战 | 元素战争：破晓 【原神HoYoFair x bilibilionly】”位列第 8 位，公开热度指标为 593375，榜单分类为“手机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2023年5月，珠宝商邱先生通过太原公共资源拍卖中心有限公司（简称太原公拍）竞买了一批罚没物品，其中包括一尊“观音金像”，回家检测后他发现这尊评估价79万余元，他以84.51万元竞得的足金观音像并不含金，其含铜量超79.9%，含锌20.08%，银含量为0.01%。 日前，邱先生告诉澎湃新闻，经过三年维权，他终于追回了竞买“观音金像”的价款。太原中院二审判决书显示，太原市小店区法院一审判决解除原告邱先生与被告即案涉观音像委托拍卖方山西省财政厅预算评审中心之间的买卖合同关系，被告退还邱先生84.51万元并支付相应利息。一审后，山西省财政厅预算评审中心上诉至太
+来源公开摘要显示：深渊全面入侵，纳塔倾全国之力应对这一存亡危机，其余各国亦火速驰援，然而这一切依然不足以扭转局势。古斯托特不择手段地用深渊污染诱发“天钉”陨落，又夺占了“天蛇船”压制干扰地脉，一举击溃了联军的前线防线，从传送门和空投仓中涌出的深渊兵力正全力闪击纳塔首都，企图将反抗的圣火彻底熄灭。如今，荧和她的伙伴们必须在绝境中死守最后一丝希望，打响这场生死存亡的决战——哪怕这意味着必须采取非常手段，甚至寻找意想不到的盟友…… 导演: No_Tables 制作顾问/制片人/合著者: Mk77GMFCS 配音导演: RedV
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `手机游戏`
 
 ## 相关热点
 
-- [炎拳天使目前只卖了一千份，感觉皮特儿他们工作室要无了](yi-ming-jing-ren.md)
-- [张凌赫从哞到夯](yi-jian-shuang-diao.md)
-- [妈妈生五胞胎 养娃7个月爸爸瘦22斤](shou-zhu-dai-tu.md)
-- [卡宴降30万还得61万](wang-mei-zhi-ke.md)
+- [雷军刘强东联手投了刘芹](yi-ming-jing-ren.md)
+- [张家齐经纪人把冰冷的母爱转化成温暖的流量](yi-jian-shuang-diao.md)
+- [谭松韵刘学义说亲密戏最好是不熟拍](shou-zhu-dai-tu.md)
+- [邵永灵：欧洲恐慌掀备战潮](wang-mei-zhi-ke.md)
 
 ## 站内推荐
 
-- [油价节前或大涨](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [专家怒斥「尸皮针」是将救命材料用于医美，真的是这样吗？这算是技术和资源滥用吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [老外的厕所究竟叫不叫“WC”？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [人民币汇率升破 6.7 ，还会继续走强吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [大学考试作弊一次就要失去学位证这个处罚严重吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [如何看待赵探长爆料，称「领导发话，让男篮全体人员写总结，包括教练组、队员、视频分析、医疗、体能」？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [【杀死比赛】真人演唱殿堂级宏大交响重构版《琵琶曲》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [男子造谣宁德时代员工裸奔被拘](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [专家：中东冲突红线被拉高](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [刚离职，又想回去了，怎么办？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [明明睡够8小时 为什么第二天还是累](http://www.daogukj.com/cohiigft/)
-- [韩国人知道怎么说话最扎心](http://www.daogukj.com/ugakwini/)
-- [今起公积金提取场景6变9](http://www.movie.hkepx.cn/movie/1439223.htm)
-- [特斯拉、宝马等车企已弃用，美众议院为何通过法案，强制要求在新车中配备调幅收音机？](http://www.daogukj.com/7461995)
-- [周也哭戏被嘲](http://www.daogukj.com/1580127)
-- [郑丽文：100%把握让国民党2028上台](http://www.movie.hkepx.cn/movie/5771230.htm)
-- [许嵩 冯禧](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
-- [专家怒斥「尸皮针」是将救命材料用于医美，真的是这样吗？这算是技术和资源滥用吗？](http://www.daogukj.com/0519981)
-- [许嵩与冯禧官宣结婚，女方是其多年粉丝且两人相差 14 岁，你如何看待这对「偶像与粉丝」的结合？](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
-- [10岁男孩轻生溺亡 班主任不予批捕](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
-- [“乡土凝存温情，善念永续流年.”【Blue Dragon-Inst】【乡土の小曲】](http://www.movie.hkepx.cn/movie/5740018.htm)
-- [全国都有的补贴 为啥这里没法用](http://www.movie.hkepx.cn/movie/2758437.htm)
-- [社保和工资不一致违法吗](http://www.play.hengshemaoyi.cn/kongbu/7663093.htm)
-- [当那一天真的来临，我们不会孤军奋战 | 元素战争：破晓 【原神HoYoFair x bilibilionly】](http://www.daogukj.com/npdeovim/)
-- [理记点名交个朋友公关负责人吴加录，称他是「西贝遭诬陷」事件黑公关操盘手，理记的指控可信吗？](http://www.movie.hkepx.cn/movie/1182190.htm)
-- [陌生的女人，竟在我家偷偷住了二十年....](http://www.movie.hkepx.cn/movie/6854973.htm)
-- [张凌赫檀健次拥抱](http://www.movie.hkepx.cn/movie/9974523.htm)
-- [日本发现失联“全球鹰”无人机残骸](http://www.play.hengshemaoyi.cn/kongbu/4772628.htm)
-- [范玮琪真唱翻车](http://www.movie.hkepx.cn/movie/7480091.htm)
-- [山寨张雪峰杀入直播带货](http://www.daogukj.com/ljqtloli/)
-- [刚离职，又想回去了，怎么办？](http://www.movie.hkepx.cn/movie/1513585.htm)
-- [欧美同行感慨中国抑制了国际油价飙升](http://www.movie.hkepx.cn/xiju/5718367.htm)
-- [男子造谣宁德时代员工裸奔被行拘](http://www.movie.hkepx.cn/movie/6576281.htm)
-- [把配料表中的白砂糖还给我们](http://www.play.hengshemaoyi.cn/kongbu/7311837.htm)
-- [妈妈送的金项链没挂到张家齐脖子上](http://www.play.hengshemaoyi.cn/xiju/9290584.htm)
-- [第36集|外卖小哥穿越修仙世界，徒手斗恶龙](http://www.daogukj.com/7865447)
-- [农民交公粮 养老金](http://www.daogukj.com/7312066)
-- [闲鱼暗藏涉黄产业链 涉未成年少女](http://www.play.hengshemaoyi.cn/kongbu/1281085.htm)
-- [妈妈生五胞胎 养娃7个月爸爸瘦22斤](http://www.play.hengshemaoyi.cn/kongbu/1775013.htm)
-- [中国篮球队：将总结亚运会暴露的问题](http://www.daogukj.com/0276387)
-- [师徒PK最后一舞，谁输了谁改名！我将拿出我最伟大的作品。](http://www.movie.hkepx.cn/xiju/9277141.htm)
-- [如何评价男子患尘肺举报公司，却因在不具备防护条件下接受存在职业病危害作业被罚5万，卫健局随后撤销处罚？](http://www.movie.hkepx.cn/xiju/9995911.htm)
-- [胡歌模仿刘德华唱《来生缘》](http://www.movie.hkepx.cn/xiju/4442165.htm)
-- [IGN给《漫威金刚狼》打出6分且称20小时即可白金，全价动作单机“流程短”真的是原罪吗？](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
-- [华强找茬 但是全惹不起](http://www.daogukj.com/sowbdmby/)
-- [「白鸽归乡」哥伦比娅花样滑冰短片【HoYoFair x bilibilionly】](http://www.daogukj.com/cfqiduxu/)
-- [王楚钦打第三局发现搞错比分](http://www.movie.hkepx.cn/xiju/4880279.htm)
-- [如何评价河南40岁数学老师自费 300 万拍的电影票房仅有 2.4 万元？普通人能做电影梦吗？](http://www.play.hengshemaoyi.cn/xiju/4009878.htm)
-- [平陆运河通航：重塑新格局](http://www.play.hengshemaoyi.cn/kongbu/3318753.htm)
-- [古力娜扎素色抹胸纱裙造型](http://www.movie.hkepx.cn/movie/5360276.htm)
-- [莫斯科这一幕 震惊全世界](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
-- [是什么让北大复旦校长都如此紧张](http://www.movie.hkepx.cn/movie/8146575.htm)
-- [人民币汇率升破 6.7 ，还会继续走强吗？](http://www.movie.hkepx.cn/xiju/8000972.htm)
-- [人民日报评“第一学历歧视”](http://www.movie.hkepx.cn/xiju/2505032.htm)
-- [疑遭绑架女主播视频中状态涣散](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
-- [亲生父母将非婚生女交给保姆不闻不问](http://www.daogukj.com/maldgqjz/)
-- [小 时 候 害 怕 的 事](http://www.daogukj.com/ulnghjws/)
-- [为什么魔法世界中不能用水之魔法把敌人身体里的水直接抽干？](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
-- [炎拳天使目前只卖了一千份，感觉皮特儿他们工作室要无了](http://www.movie.hkepx.cn/movie/7753114.htm)
-- [正视](http://www.play.hengshemaoyi.cn/xiju/2822041.htm)
+- [人民日报评“第一学历歧视”](http://www.daogukj.com/cohiigft/)
+- [吴艳妮社媒晒图出征亚运会](http://www.daogukj.com/ugakwini/)
+- [未来五年循环经济怎样融入日常](http://www.movie.hkepx.cn/movie/1439223.htm)
+- [“乡土凝存温情，善念永续流年.”【Blue Dragon-Inst】【乡土の小曲】](http://www.daogukj.com/7461995)
+- [正视](http://www.daogukj.com/1580127)
+- [买聚能环致妻儿死亡男子发声](http://www.movie.hkepx.cn/movie/5771230.htm)
+- [如何看待ZCode道歉三天后开源：零git历史，注释写明开源版不享受活动权益？](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
+- [【杀死比赛】真人演唱殿堂级宏大交响重构版《琵琶曲》](http://www.daogukj.com/0519981)
+- [王俊凯庆生给劲仔全员带薪放假](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
+- [我只是个老年人（骗你的）](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
+- [谭松韵不敢离戒碳水的刘学义太近](http://www.movie.hkepx.cn/movie/5740018.htm)
+- [钟南山团队发现肺结节发病新趋势](http://www.movie.hkepx.cn/movie/2758437.htm)
+- [苹果闹钟终于认中国调休了](http://www.play.hengshemaoyi.cn/kongbu/7663093.htm)
+- [郑丽文批民进党政治迫害让全台震惊](http://www.daogukj.com/npdeovim/)
+- [美依礼芽宣布离婚](http://www.movie.hkepx.cn/movie/1182190.htm)
+- [杭州电梯事件王女士再次发声](http://www.movie.hkepx.cn/movie/6854973.htm)
+- [盛李豪微博全是冠军](http://www.movie.hkepx.cn/movie/9974523.htm)
+- [我修改了Minecraft的船：](http://www.play.hengshemaoyi.cn/kongbu/4772628.htm)
+- [工厂“少爷小姐” 正被流量反噬](http://www.movie.hkepx.cn/movie/7480091.htm)
+- [红薯真的会让血脂越来越高吗？误解](http://www.daogukj.com/ljqtloli/)
+- [学者：美军遇到“乌克兰难题”](http://www.movie.hkepx.cn/movie/1513585.htm)
+- [困于生态位的李梦们](http://www.movie.hkepx.cn/xiju/5718367.htm)
+- [中国人的潮流初恋回来了](http://www.movie.hkepx.cn/movie/6576281.htm)
+- [油价节前或大涨](http://www.play.hengshemaoyi.cn/kongbu/7311837.htm)
+- [全国各地正飘起中国红](http://www.play.hengshemaoyi.cn/xiju/9290584.htm)
+- [亚运会男篮金牌赛，韩国男篮67:57战胜日本夺金，李贤重全场27分18篮板，如何评价本场比赛？](http://www.daogukj.com/7865447)
+- [如何看待张家齐妈妈给女儿买金项链却没给她，还委屈说没见她戴过？陈瑶妈妈为啥能一下问出「她知不知道」？](http://www.daogukj.com/7312066)
+- [自己做饭成本其实很高](http://www.play.hengshemaoyi.cn/kongbu/1281085.htm)
+- [谭松韵刘学义说亲密戏最好是不熟拍](http://www.play.hengshemaoyi.cn/kongbu/1775013.htm)
+- [王嘉尔踩到周笔畅裙子忙坏周深了](http://www.daogukj.com/0276387)
+- [麦当劳多门店被举报](http://www.movie.hkepx.cn/xiju/9277141.htm)
+- [男子花84.51万拍下省财政厅公物仓「金观音」，一测几乎全是铜，物品系收缴赃物，问题出在哪？](http://www.movie.hkepx.cn/xiju/9995911.htm)
+- [采访了刘慈欣](http://www.movie.hkepx.cn/xiju/4442165.htm)
+- [评分9.3！长大能有多苦涩？重温野比大雄的人生！咋和童年看着不一样？【瓶子君152】](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
+- [秦始皇陵水银来源被找到](http://www.daogukj.com/sowbdmby/)
+- [如何解读国务院国资委称「中央企业带头及时支付账款」？对此还有哪些细节值得关注？](http://www.daogukj.com/cfqiduxu/)
+- [专家怒斥「尸皮针」是将救命材料用于医美，真的是这样吗？这算是技术和资源滥用吗？](http://www.movie.hkepx.cn/xiju/4880279.htm)
+- [KPL十周年宣传片：《保持纯粹的热爱》](http://www.play.hengshemaoyi.cn/xiju/4009878.htm)
+- [【逐影集趣】DP全关卡攻略 摆完挂机 简单好抄](http://www.play.hengshemaoyi.cn/kongbu/3318753.htm)
+- [盛李豪破亚洲纪录卫冕](http://www.movie.hkepx.cn/movie/5360276.htm)
+- [iPhone19或被跳过](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
+- [吸烟 取消学费减免](http://www.movie.hkepx.cn/movie/8146575.htm)
+- [专家：中东冲突红线被拉高](http://www.movie.hkepx.cn/xiju/8000972.htm)
+- [《异环》黑羽角色PV丨「魔女」的工作](http://www.movie.hkepx.cn/xiju/2505032.htm)
+- [男子花17元网购空礼盒装入散装月饼](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
+- [长沙一公司因每周上班三天半月薪七千遭质疑，公司回应不为博流量，希望员工有时间陪家人，这种模式能推广吗？](http://www.daogukj.com/maldgqjz/)
+- [杭州电梯事件](http://www.daogukj.com/ulnghjws/)
+- [一个模仿王菲 一个王菲遗传](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
+- [雷军刘强东联手投了刘芹](http://www.movie.hkepx.cn/movie/7753114.htm)
+- [盛李豪全满贯](http://www.play.hengshemaoyi.cn/xiju/2822041.htm)
 
 </details>
 
 ## 原始来源
 
-- [男子花84.51万拍下省财政厅公物仓「金观音」，一测几乎全是铜，物品系收缴赃物，问题出在哪？](https://www.zhihu.com/question/2084980399357350382)
+- [当那一天真的来临，我们不会孤军奋战 | 元素战争：破晓 【原神HoYoFair x bilibilionly】](https://b23.tv/BV1woez6TECm)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9eb936a71eacc4449478 -->
+<!-- content-fingerprint: 0e7d4c97c09d6f2fd70d -->
