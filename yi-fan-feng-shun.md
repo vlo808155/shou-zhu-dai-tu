@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 这是啥户型啊？
+# 带着豆包去买瓜
 
-> 来源：哔哩哔哩热门 · 排名：第 8 位 · 热度：1714527 · 分类：家居房产 · 更新：2026-09-23T17:56:18+08:00
+> 来源：哔哩哔哩热门 · 排名：第 8 位 · 热度：971870 · 分类：鬼畜剧场 · 更新：2026-09-23T22:47:50+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“这是啥户型啊？”位列第 8 位，公开热度指标为 1714527，榜单分类为“家居房产”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“带着豆包去买瓜”位列第 8 位，公开热度指标为 971870，榜单分类为“鬼畜剧场”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：-
+来源公开摘要显示：豆包！没有你我怎么活啊！豆包！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `家居房产`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `鬼畜剧场`
 
 ## 相关热点
 
-- [好日子里品丰收](yi-ming-jing-ren.md)
-- [宁德时代市值蒸发7000亿](yi-jian-shuang-diao.md)
-- [杨洋再登综艺常驻](shou-zhu-dai-tu.md)
-- [马斯克：中国2-3年就能补齐算力缺口](wang-mei-zhi-ke.md)
+- [“十五五”时期将推动制定养老服务法](yi-ming-jing-ren.md)
+- [五哈7阵容原班人马](yi-jian-shuang-diao.md)
+- [小米电视](shou-zhu-dai-tu.md)
+- [中国男足小组第一进8强](wang-mei-zhi-ke.md)
 
 ## 站内推荐
 
-- [闲鱼称「涉未成年人淫秽」不实，已就引流行为报案，这算反转了吗？「来自其他平台」的违规截图是谁的责任？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [带着豆包去买瓜](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [9月26日，全新干员研究外观【牧羊人-安魂】登场！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [医生坐诊2——pa大夫，你看我到底能不能红啊！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [韩短道速滑名将金建宇辟谣去世讣告](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [华人藏家花费 2400 万元追回疑似圆明园龙首，此事具有哪些意义？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [中国机床出口都超过德国了，东南亚工厂也在换中国设备，那国产机床到底行不行？有没有过来人说说真实体验？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [「小白」关于小米18 Pro/Pro Max 你想看的都在这！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [安徽发现2.4亿年前“巨鲎”足迹](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [中国体操女团夺金](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [黄大发被判死刑立即执行](http://www.daogukj.com/cohiigft/)
-- [中国男足小组第一进8强](http://www.daogukj.com/ugakwini/)
-- [解锁文旅消费新图景](http://www.movie.hkepx.cn/movie/1439223.htm)
-- [《异环》黑羽角色短片丨救世主的祭宴](http://www.daogukj.com/7461995)
-- [中国体操男团金牌](http://www.daogukj.com/1580127)
-- [西贝员工称因长期被镜头曝光，一线员工承受巨大心理压力甚至离职，持续曝光对普通店员的心理健康影响有多大？](http://www.movie.hkepx.cn/movie/5771230.htm)
-- [刘德华李克勤助阵谭咏麟演唱会](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
-- [带着豆包去买瓜](http://www.daogukj.com/0519981)
-- [再贵的衣服，皱了也白搭！8款实测，告诉你挂烫机到底怎么选？](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
-- [肖战穿了小飞侠印花T恤](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
-- [居民反映看完广告才能进家门](http://www.movie.hkepx.cn/movie/5740018.htm)
-- [网购牛奶倒出来发现是清水](http://www.movie.hkepx.cn/movie/2758437.htm)
-- [打车关门时手指突然飙血 发现4个刀片](http://www.play.hengshemaoyi.cn/kongbu/7663093.htm)
-- [33岁女演员确诊癌症 家人公开求助](http://www.daogukj.com/npdeovim/)
-- [花60W买燃油性能车还有价值吗？奥迪S5 Avant山路测试！](http://www.movie.hkepx.cn/movie/1182190.htm)
-- [“考虑了两天两夜 不能对不起孩子”](http://www.movie.hkepx.cn/movie/6854973.htm)
-- [经济学家鞠建东建议「对外发行10万亿元人民币国债」，以实现「经济结构性」再平衡，对此你怎么看？](http://www.movie.hkepx.cn/movie/9974523.htm)
-- [越南离开中国供应链还能玩得转吗](http://www.play.hengshemaoyi.cn/kongbu/4772628.htm)
-- [亚运会男足小组赛，中国 U23 0-0 战平阿联酋，小组头名晋级 8 强，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/7480091.htm)
-- [宋祖儿不用艺名了](http://www.daogukj.com/ljqtloli/)
-- [和同父异母的妹妹去旅游会发生什么？](http://www.movie.hkepx.cn/movie/1513585.htm)
-- [酒店推出「月租房」抢租客，相较传统租房有何优劣？月租最低1500元起、配备品牌家电等，你会选择入住吗？](http://www.movie.hkepx.cn/xiju/5718367.htm)
-- [如何看待周琦主动表态愿出战亚运会被拒，林葳跟郭士强只集训两次就被彻底放弃等爆料？是真的吗？](http://www.movie.hkepx.cn/movie/6576281.htm)
-- [中美元首半年内实现互访](http://www.play.hengshemaoyi.cn/kongbu/7311837.htm)
-- [健康长寿真正的意义是什么](http://www.play.hengshemaoyi.cn/xiju/9290584.htm)
-- [日本女排颁奖仪式上全员黑脸](http://www.daogukj.com/7865447)
-- [泽连斯基已经不分敌我了吗](http://www.daogukj.com/7312066)
-- [兰香如故](http://www.play.hengshemaoyi.cn/kongbu/1281085.htm)
-- [杨洋再登综艺常驻](http://www.play.hengshemaoyi.cn/kongbu/1775013.htm)
-- [【硬核】俄乌打了四年多，到底谁在买单？](http://www.daogukj.com/0276387)
-- [张博恒跳马申诉成功](http://www.movie.hkepx.cn/xiju/9277141.htm)
-- [《崩坏：星穹铁道》即兴巡演PV——「至此，已成艺术」](http://www.movie.hkepx.cn/xiju/9995911.htm)
-- [iPhone Duo 整机组装良率仅六成多，供应链在等苹果决定是否放宽质量要求，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/4442165.htm)
-- [【剧情】大理石厅谋杀案（2026）01【莱丝利·曼维尔 / 蒂姆·迈克穆兰】](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
-- [小狗争骨头一只生气一只吃](http://www.daogukj.com/sowbdmby/)
-- [闲鱼公布涉黄调查结果](http://www.daogukj.com/cfqiduxu/)
-- [“河南最爱发钱老板”中秋又要发钱了](http://www.movie.hkepx.cn/xiju/4880279.htm)
-- [狗不慎掉入渠沟，路过大哥急中生智，将树枝和扎带组合成工具，成功将其救起。网友：大哥最后拧扎带那几下，太有智慧了！](http://www.play.hengshemaoyi.cn/xiju/4009878.htm)
-- [华人藏家花费 2400 万元追回疑似圆明园龙首，此事具有哪些意义？](http://www.play.hengshemaoyi.cn/kongbu/3318753.htm)
-- [如何评价GPT-6 Sol 和 Luna？](http://www.movie.hkepx.cn/movie/5360276.htm)
-- [中方回应高市呼吁删除敌国条款](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
-- [习近平离京对美国进行国事访问](http://www.movie.hkepx.cn/movie/8146575.htm)
-- [医生坐诊2——pa大夫，你看我到底能不能红啊！](http://www.movie.hkepx.cn/xiju/8000972.htm)
-- [为什么大家通常说的都是小猫统治世界，而不是小狗统治世界呢？](http://www.movie.hkepx.cn/xiju/2505032.htm)
-- [全国中秋假期天气地图](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
-- [王祖贤自曝与齐秦分手后没谈过恋爱](http://www.daogukj.com/maldgqjz/)
+- [WMA微博音乐盛典](http://www.daogukj.com/cohiigft/)
+- [5300多万名老年人享受老年人补贴](http://www.daogukj.com/ugakwini/)
+- [世界技能博览会在上海开幕](http://www.movie.hkepx.cn/movie/1439223.htm)
+- [【泽元电台】加强上路？利好换线？一年一度的世界赛版本又来了！](http://www.daogukj.com/7461995)
+- [每周至少半天校外实践教学将在全国推行，哪些信息值得关注？](http://www.daogukj.com/1580127)
+- [伊方天地，伊场奇遇——《伊莫》今日全平台上线](http://www.movie.hkepx.cn/movie/5771230.htm)
+- [亚运会乒乓球男团半决赛，中国队 3-0 中国台北队，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
+- [中国机床出口都超过德国了，东南亚工厂也在换中国设备，那国产机床到底行不行？有没有过来人说说真实体验？](http://www.daogukj.com/0519981)
+- [李翊君《雨蝶》前奏一响全是回忆](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
+- [多家银行存款利息涨了](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
+- [王楚钦3比2险胜林昀儒](http://www.movie.hkepx.cn/movie/5740018.htm)
+- [都江堰上空现不明飞行物](http://www.movie.hkepx.cn/movie/2758437.htm)
+- [iPhone Duo难产](http://www.play.hengshemaoyi.cn/kongbu/7663093.htm)
+- [全球量产最快充电速度](http://www.daogukj.com/npdeovim/)
+- [林诗栋蒯曼淘汰奥运会亚军](http://www.movie.hkepx.cn/movie/1182190.htm)
+- [丁程鑫发了刘耀文未公开手势舞](http://www.movie.hkepx.cn/movie/6854973.htm)
+- [比电影更夸张？专业保镖到底在做什么？](http://www.movie.hkepx.cn/movie/9974523.htm)
+- [媒体：两大原因致油价持续回落](http://www.play.hengshemaoyi.cn/kongbu/4772628.htm)
+- [凤凰传奇的玲花为什么不参加浪姐？](http://www.movie.hkepx.cn/movie/7480091.htm)
+- [高市早苗联大演讲会场空荡荡](http://www.daogukj.com/ljqtloli/)
+- [广东一酒店温泉池惊现一条蛇](http://www.movie.hkepx.cn/movie/1513585.htm)
+- [复仇者联盟](http://www.movie.hkepx.cn/xiju/5718367.htm)
+- [医生坐诊2——pa大夫，你看我到底能不能红啊！](http://www.movie.hkepx.cn/movie/6576281.htm)
+- [实拍王楚钦3比2林昀儒后庆祝](http://www.play.hengshemaoyi.cn/kongbu/7311837.htm)
+- [西贝员工称因长期被镜头曝光，一线员工承受巨大心理压力甚至离职，持续曝光对普通店员的心理健康影响有多大？](http://www.play.hengshemaoyi.cn/xiju/9290584.htm)
+- [亚运会冠军发了朱志鑫娃娃](http://www.daogukj.com/7865447)
+- [经济学家鞠建东建议「对外发行10万亿元人民币国债」，以实现「经济结构性」再平衡，对此你怎么看？](http://www.daogukj.com/7312066)
+- [教育部：绩效分配向一线教师倾斜](http://www.play.hengshemaoyi.cn/kongbu/1281085.htm)
+- [小米电视](http://www.play.hengshemaoyi.cn/kongbu/1775013.htm)
+- [琵琶曲‖ 决战重制版【re0】](http://www.daogukj.com/0276387)
+- [燃气聚能环别再用了](http://www.movie.hkepx.cn/xiju/9277141.htm)
+- [沃尔玛中国、山姆中国首席采购官双双换人，美国山姆高管空降执掌山姆采购，这次人事调整释放了哪些战略信号？](http://www.movie.hkepx.cn/xiju/9995911.htm)
+- [Uzi选宠记：初见小狗毛，细看毛小狗](http://www.movie.hkepx.cn/xiju/4442165.htm)
+- [高市早苗在联合国大会呼吁删除「敌国条款」，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
+- [山姆咖啡牛奶线下扎堆抢线上缺货](http://www.daogukj.com/sowbdmby/)
+- [小米18ProMax透明版上手](http://www.daogukj.com/cfqiduxu/)
+- [徐嘉余中国亚运历史金牌王](http://www.movie.hkepx.cn/xiju/4880279.htm)
+- [小米18 Pro系列上手体验：骁龙8E6有惊喜？！](http://www.play.hengshemaoyi.cn/xiju/4009878.htm)
+- [当美院人玩涂鸦躲猫猫真人版](http://www.play.hengshemaoyi.cn/kongbu/3318753.htm)
+- [音乐是大家的音乐~](http://www.movie.hkepx.cn/movie/5360276.htm)
+- [月饼市场遇冷山姆却卖爆了](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
+- [打一针管数月的降压疫苗要来了](http://www.movie.hkepx.cn/movie/8146575.htm)
+- [安徽发现2.4亿年前“巨鲎”足迹](http://www.movie.hkepx.cn/xiju/8000972.htm)
+- [一个细胞最后能长成完整的人，它怎么知道哪里该是眼睛、哪里该是心脏？](http://www.movie.hkepx.cn/xiju/2505032.htm)
+- [国乒将与日本争冠](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
+- [国乒男团晋级决赛将战日本队](http://www.daogukj.com/maldgqjz/)
 - [“民惠通APP可发高龄补贴”不实](http://www.daogukj.com/ulnghjws/)
-- [当美院人玩涂鸦躲猫猫真人版](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
-- [好日子里品丰收](http://www.movie.hkepx.cn/movie/7753114.htm)
-- [秋分开始要尽量少大声说话](http://www.play.hengshemaoyi.cn/xiju/2822041.htm)
+- [迈克尔·许家印《朋友的酒DJ》史上经典演唱会开场！人生必看的现场](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
+- [“十五五”时期将推动制定养老服务法](http://www.movie.hkepx.cn/movie/7753114.htm)
+- [借给路人手机被塞1条中华1盒月饼](http://www.play.hengshemaoyi.cn/xiju/2822041.htm)
 
 </details>
 
 ## 原始来源
 
-- [这是啥户型啊？](https://b23.tv/BV1rKhq6QEU6)
+- [带着豆包去买瓜](https://b23.tv/BV1w7hn63EBs)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 15264fd4d76a140e4dd8 -->
+<!-- content-fingerprint: 5390882ffbf8cf9b6fa3 -->

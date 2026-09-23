@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 欧盟要求中国「自愿限制」汽车出口，会如何影响中欧贸易关系？
+# 教育部点赞13岁于子迪亚运夺2金
 
-> 来源：知乎热榜 · 排名：第 6 位 · 热度：146 万热度 · 分类：问答 · 更新：2026-09-23T17:56:18+08:00
+> 来源：今日头条热榜 · 排名：第 6 位 · 热度：11163429 · 更新：2026-09-23T22:47:50+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“欧盟要求中国「自愿限制」汽车出口，会如何影响中欧贸易关系？”位列第 6 位，公开热度指标为 146 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“教育部点赞13岁于子迪亚运夺2金”位列第 6 位，公开热度指标为 11163429。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：【环球时报报道 记者 尹野平 王策】欧盟近期考虑采取一系列针对中国的贸易限制措施，范围从纯电动汽车扩大至混合动力汽车、钢铁及其下游产品，引发外界对中欧经贸关系及供应链合作的担忧。 据路透社报道，欧盟18日表示，将对电工钢及其下游产品实施进口配额和最低价格措施，以保护欧盟免受主要来自亚洲的低价进口产品冲击。英国《金融时报》17日报道称，欧盟还要求中国“自愿限制”混合动力汽车出口，寻求中方承诺将中国制造的混动汽车在欧盟市场的销售份额限制在约15%，而目前这一比例已超过1/3。 针对欧盟有关举措，中国商务部新闻发言人18日表示，所谓自愿出口限制严重违反世贸组织
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [带着豆包去买瓜](wei-wei-jiu-zhao.md)
-- [国乒女团晋级亚运会决赛](wan-bi-gui-zhao.md)
-- [中方回应高市呼吁删除敌国条款](fu-jing-qing-zui.md)
-- [全国中秋假期天气地图](mao-sui-zi-jian.md)
+- [中国机床出口都超过德国了，东南亚工厂也在换中国设备，那国产机床到底行不行？有没有过来人说说真实体验？](wei-wei-jiu-zhao.md)
+- [暗区突围X少女前线2：追放 联动访谈实录](wan-bi-gui-zhao.md)
+- [月饼市场遇冷山姆却卖爆了](fu-jing-qing-zui.md)
+- [国乒将与日本争冠](mao-sui-zi-jian.md)
 
 ## 站内推荐
 
-- [中国男足小组第一进8强](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [老人突发心梗，5次拨打120未能接通后死亡，院方称通信光缆故障，各方应承担怎样的责任？暴露了哪些问题？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [华人藏家花费 2400 万元追回疑似圆明园龙首，此事具有哪些意义？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [蛋白质摄入不足会有哪些信号？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [打车关门时手指突然飙血 发现4个刀片](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [5300多万名老年人享受老年人补贴](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [闲鱼称「涉未成年人淫秽」不实，已就引流行为报案，这算反转了吗？「来自其他平台」的违规截图是谁的责任？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [当美院人玩涂鸦躲猫猫真人版](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [好久不见啊，佐助](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [iPhone Duo难产](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [经济学家鞠建东建议「对外发行10万亿元人民币国债」，以实现「经济结构性」再平衡，对此你怎么看？](http://www.movie.hkepx.cn/movie/2601282.htm)
-- [闲鱼称「涉未成年人淫秽」不实，已就引流行为报案，这算反转了吗？「来自其他平台」的违规截图是谁的责任？](http://www.movie.hkepx.cn/xiju/4388580.htm)
-- [iPhone Duo 整机组装良率仅六成多，供应链在等苹果决定是否放宽质量要求，哪些信息值得关注？](http://www.daogukj.com/6043229)
+- [比电影更夸张？专业保镖到底在做什么？](http://www.movie.hkepx.cn/movie/2601282.htm)
+- [华人藏家花费 2400 万元追回疑似圆明园龙首，此事具有哪些意义？](http://www.movie.hkepx.cn/xiju/4388580.htm)
+- [Uzi选宠记：初见小狗毛，细看毛小狗](http://www.daogukj.com/6043229)
 - [【独家】镇魂街第五季 王国纷争篇定档12月11日！](http://www.daogukj.com/tuknaqqk/)
-- [泽连斯基已经不分敌我了吗](http://www.play.hengshemaoyi.cn/xiju/0208499.htm)
-- [智耕沃野慧启未来](http://www.movie.hkepx.cn/xiju/5042058.htm)
-- [如何评价腾讯新游《粒粒的小人国》二测表现？](http://www.play.hengshemaoyi.cn/xiju/9907218.htm)
-- [健康长寿真正的意义是什么](http://www.daogukj.com/fbzmeevv/)
-- [兰香如故](http://www.daogukj.com/6822799)
-- [酒店推出「月租房」抢租客，相较传统租房有何优劣？月租最低1500元起、配备品牌家电等，你会选择入住吗？](http://www.movie.hkepx.cn/movie/6007586.htm)
-- [华人藏家花费 2400 万元追回疑似圆明园龙首，此事具有哪些意义？](http://www.movie.hkepx.cn/movie/2039310.htm)
-- [张博恒跳马申诉成功](http://www.movie.hkepx.cn/movie/6824213.htm)
-- [习近平离京对美国进行国事访问](http://www.play.hengshemaoyi.cn/kongbu/5393635.htm)
-- [医生坐诊2——pa大夫，你看我到底能不能红啊！](http://www.movie.hkepx.cn/xiju/9308316.htm)
-- [中国体操男团金牌](http://www.play.hengshemaoyi.cn/xiju/4116156.htm)
-- [为什么大家通常说的都是小猫统治世界，而不是小狗统治世界呢？](http://www.daogukj.com/mgiescai/)
-- [好久不见啊，佐助](http://www.play.hengshemaoyi.cn/kongbu/6390636.htm)
-- [张展硕亚运男子200自夺冠](http://www.play.hengshemaoyi.cn/kongbu/0190224.htm)
-- [“河南最爱发钱老板”中秋又要发钱了](http://www.daogukj.com/zzmpmugc/)
-- [花60W买燃油性能车还有价值吗？奥迪S5 Avant山路测试！](http://www.play.hengshemaoyi.cn/xiju/0896339.htm)
-- [肖战穿了小飞侠印花T恤](http://www.play.hengshemaoyi.cn/xiju/5928051.htm)
-- [2天内6省份省委书记调整](http://www.daogukj.com/mytklttd/)
-- [中美元首半年内实现互访](http://www.daogukj.com/2710404)
-- [如何评价GPT-6 Sol 和 Luna？](http://www.play.hengshemaoyi.cn/kongbu/9250075.htm)
+- [经济学家鞠建东建议「对外发行10万亿元人民币国债」，以实现「经济结构性」再平衡，对此你怎么看？](http://www.play.hengshemaoyi.cn/xiju/0208499.htm)
+- [丰收开新局 实干促振兴](http://www.movie.hkepx.cn/xiju/5042058.htm)
+- [油价将大幅调整，全国95号汽油或全面迈入9元时代逼近年内最高价，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/9907218.htm)
+- [西贝员工称因长期被镜头曝光，一线员工承受巨大心理压力甚至离职，持续曝光对普通店员的心理健康影响有多大？](http://www.daogukj.com/fbzmeevv/)
+- [教育部：绩效分配向一线教师倾斜](http://www.daogukj.com/6822799)
+- [复仇者联盟](http://www.movie.hkepx.cn/movie/6007586.htm)
+- [当美院人玩涂鸦躲猫猫真人版](http://www.movie.hkepx.cn/movie/2039310.htm)
+- [燃气聚能环别再用了](http://www.movie.hkepx.cn/movie/6824213.htm)
+- [打一针管数月的降压疫苗要来了](http://www.play.hengshemaoyi.cn/kongbu/5393635.htm)
+- [安徽发现2.4亿年前“巨鲎”足迹](http://www.movie.hkepx.cn/xiju/9308316.htm)
+- [每周至少半天校外实践教学将在全国推行，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/4116156.htm)
+- [一个细胞最后能长成完整的人，它怎么知道哪里该是眼睛、哪里该是心脏？](http://www.daogukj.com/mgiescai/)
+- [小米18Pro 5999起](http://www.play.hengshemaoyi.cn/kongbu/6390636.htm)
+- [《崩坏：星穹铁道》即兴巡演PV——「至此，已成艺术」](http://www.play.hengshemaoyi.cn/kongbu/0190224.htm)
+- [徐嘉余中国亚运历史金牌王](http://www.daogukj.com/zzmpmugc/)
+- [林诗栋蒯曼淘汰奥运会亚军](http://www.play.hengshemaoyi.cn/xiju/0896339.htm)
+- [多家银行存款利息涨了](http://www.play.hengshemaoyi.cn/xiju/5928051.htm)
+- [亚运会男足小组赛，中国 U23 0-0 战平阿联酋，小组头名晋级 8 强，如何评价本场比赛？](http://www.daogukj.com/mytklttd/)
+- [实拍王楚钦3比2林昀儒后庆祝](http://www.daogukj.com/2710404)
+- [音乐是大家的音乐~](http://www.play.hengshemaoyi.cn/kongbu/9250075.htm)
 - [“民惠通APP可发高龄补贴”不实](http://www.daogukj.com/nicuyzrv/)
-- [国乒女团晋级亚运会决赛](http://www.movie.hkepx.cn/xiju/4031070.htm)
-- [任正非会谈东风冯长军](http://www.movie.hkepx.cn/movie/5688904.htm)
-- [宋祖儿不用艺名了](http://www.play.hengshemaoyi.cn/xiju/3278531.htm)
-- [解锁文旅消费新图景](http://www.play.hengshemaoyi.cn/xiju/4379435.htm)
-- [闲鱼公布涉黄调查结果](http://www.play.hengshemaoyi.cn/xiju/1426673.htm)
-- [国乒女团3-0朝鲜进决赛](http://www.play.hengshemaoyi.cn/kongbu/7958910.htm)
-- [“考虑了两天两夜 不能对不起孩子”](http://www.play.hengshemaoyi.cn/xiju/4271068.htm)
-- [狗不慎掉入渠沟，路过大哥急中生智，将树枝和扎带组合成工具，成功将其救起。网友：大哥最后拧扎带那几下，太有智慧了！](http://www.play.hengshemaoyi.cn/kongbu/6292535.htm)
-- [韩短道速滑名将金建宇辟谣去世讣告](http://www.play.hengshemaoyi.cn/xiju/8816405.htm)
-- [老人早餐吃不完退鸡蛋被拒后用蛋砸人](http://www.daogukj.com/8870060)
-- [网购牛奶倒出来发现是清水](http://www.daogukj.com/ullacrud/)
-- [居民反映看完广告才能进家门](http://www.movie.hkepx.cn/xiju/5257979.htm)
-- [沃尔玛中国、山姆中国首席采购官双双换人，美国山姆高管空降执掌山姆采购，这次人事调整释放了哪些战略信号？](http://www.movie.hkepx.cn/movie/7584597.htm)
-- [杨洋再登综艺常驻](http://www.play.hengshemaoyi.cn/kongbu/4186435.htm)
-- [刘德华李克勤助阵谭咏麟演唱会](http://www.daogukj.com/niqxgwwt/)
+- [暗区突围X少女前线2：追放 联动访谈实录](http://www.movie.hkepx.cn/xiju/4031070.htm)
+- [月饼不“装”了](http://www.movie.hkepx.cn/movie/5688904.htm)
+- [高市早苗联大演讲会场空荡荡](http://www.play.hengshemaoyi.cn/xiju/3278531.htm)
+- [世界技能博览会在上海开幕](http://www.play.hengshemaoyi.cn/xiju/4379435.htm)
+- [小米18ProMax透明版上手](http://www.play.hengshemaoyi.cn/xiju/1426673.htm)
+- [小米手环11](http://www.play.hengshemaoyi.cn/kongbu/7958910.htm)
+- [丁程鑫发了刘耀文未公开手势舞](http://www.play.hengshemaoyi.cn/xiju/4271068.htm)
+- [小米18 Pro系列上手体验：骁龙8E6有惊喜？！](http://www.play.hengshemaoyi.cn/kongbu/6292535.htm)
+- [中国体操女团夺金](http://www.play.hengshemaoyi.cn/xiju/8816405.htm)
+- [程潇闫桉双人舞好辣](http://www.daogukj.com/8870060)
+- [都江堰上空现不明飞行物](http://www.daogukj.com/ullacrud/)
+- [王楚钦3比2险胜林昀儒](http://www.movie.hkepx.cn/xiju/5257979.htm)
+- [中美元首半年内实现互访](http://www.movie.hkepx.cn/movie/7584597.htm)
+- [小米电视](http://www.play.hengshemaoyi.cn/kongbu/4186435.htm)
+- [亚运会乒乓球男团半决赛，中国队 3-0 中国台北队，如何评价本场比赛？](http://www.daogukj.com/niqxgwwt/)
 - [陈翔 毛晓彤](http://www.movie.hkepx.cn/movie/5962352.htm)
-- [好日子里品丰收](http://www.movie.hkepx.cn/xiju/9888008.htm)
-- [王祖贤自曝与齐秦分手后没谈过恋爱](http://www.play.hengshemaoyi.cn/kongbu/6481359.htm)
-- [U23国足与阿联酋爆发冲突](http://www.play.hengshemaoyi.cn/kongbu/8096623.htm)
-- [孙颖莎vs边松景](http://www.play.hengshemaoyi.cn/kongbu/3203910.htm)
-- [全国中秋假期天气地图](http://www.play.hengshemaoyi.cn/kongbu/0688447.htm)
-- [这是啥户型啊？](http://www.movie.hkepx.cn/xiju/9131499.htm)
-- [蛋白质摄入不足会有哪些信号？](http://www.daogukj.com/7162593)
-- [亚运会男足小组赛，中国 U23 0-0 战平阿联酋，小组头名晋级 8 强，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/3395220.htm)
-- [怎么看待《金融时报》报道俄罗斯已经摧毁了乌克兰全国超过一半，即210万平方米的仓储设施？](http://www.daogukj.com/5265166)
+- [“十五五”时期将推动制定养老服务法](http://www.movie.hkepx.cn/xiju/9888008.htm)
+- [国乒男团晋级决赛将战日本队](http://www.play.hengshemaoyi.cn/kongbu/6481359.htm)
+- [教育部回应“13岁于子迪亚运夺2金”](http://www.play.hengshemaoyi.cn/kongbu/8096623.htm)
+- [2天内6省份省委书记调整](http://www.play.hengshemaoyi.cn/kongbu/3203910.htm)
+- [国乒将与日本争冠](http://www.play.hengshemaoyi.cn/kongbu/0688447.htm)
+- [带着豆包去买瓜](http://www.movie.hkepx.cn/xiju/9131499.htm)
+- [好久不见啊，佐助](http://www.daogukj.com/7162593)
+- [凤凰传奇的玲花为什么不参加浪姐？](http://www.movie.hkepx.cn/xiju/3395220.htm)
+- [天天熬夜到凌晨两三点，身体会怎么样？](http://www.daogukj.com/5265166)
 
 </details>
 
 ## 原始来源
 
-- [欧盟要求中国「自愿限制」汽车出口，会如何影响中欧贸易关系？](https://www.zhihu.com/question/2084950958245667791)
+- [教育部点赞13岁于子迪亚运夺2金](https://www.toutiao.com/trending/7688582303215648818/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227688582303215648818%22%2C%22hot_board_impr_id%22%3A%2220260923224749EA671981C931DCC0FE02%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9ad83ebfec431fd035d7 -->
+<!-- content-fingerprint: 86e1423250411e02a762 -->
