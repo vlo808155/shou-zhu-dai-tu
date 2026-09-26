@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 马斯克感叹中国壮丽
+# 张本智和 3-0 王楚钦，赛后称等这枚金牌等了十年，现在张本智和的水平在哪个层次？对国乒威胁有多大？
 
-> 来源：今日头条热榜 · 排名：第 7 位 · 热度：39450494 · 分类：新事件上榜 · 更新：2026-09-26T13:57:52+08:00
+> 来源：知乎热榜 · 排名：第 7 位 · 热度：317 万热度 · 分类：问答 · 更新：2026-09-26T19:14:23+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“马斯克感叹中国壮丽”位列第 7 位，公开热度指标为 39450494，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“张本智和 3-0 王楚钦，赛后称等这枚金牌等了十年，现在张本智和的水平在哪个层次？对国乒威胁有多大？”位列第 7 位，公开热度指标为 317 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：亚运会乒乓球男团决赛，中国队2-3不敌日本队无缘金牌，赛后独得两分的张本智和接受了采访。 张本智和表示：“当然赢了很高兴，但说到底，最让我激动的是日本真的超越了中国拿到了这枚金牌。这一刻我等了10年、甚至10年以上，终于到来，真的开心到不行。 “我就觉得只要交给松岛，就能赢。我心里把它当成‘我和王楚钦的单打决赛’，之后还有松岛辉空对温瑞博的决赛。我们就是按‘两场单打’去打的，我也跟他说‘你上就行’，结果真成了。” 松岛辉空则表示：“第一场我2比0领先后有点松懈，那种感觉很懊恼。最后总算赢下来，太好了。张本哥跟我说‘我赢，你等着就行’，我就只做好了赢的准备
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [张本智和 3-0 王楚钦，赛后称等这枚金牌等了十年，现在张本智和的水平在哪个层次？对国乒威胁有多大？](feng-sheng-he-li.md)
-- [斑铜](ru-huo-ru-tu.md)
-- [这次中美元首会晤 外媒直呼不一般](yi-gu-zuo-qi.md)
-- [盖茨称人工智能或致十亿人死亡](yi-zi-qian-jin.md)
+- [网络热传生物鉴定 第64期](feng-sheng-he-li.md)
+- [外交部就人工智能问题答记者问](ru-huo-ru-tu.md)
+- [乒乓球混双决赛](yi-gu-zuo-qi.md)
+- [中美元首白宫互动的五个细节](yi-zi-qian-jin.md)
 
 ## 站内推荐
 
-- [中美元首白宫互动的五个细节](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [多位文艺界人士曾提及刘欢的酒量](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [尊重公平对等 对中美关系发展具引领性](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [特朗普：这次访问富有成效](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [普京：特别军事行动目标将全部实现](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [中美同意共同构建基于尊重、公平、对等的建设性战略稳定关系，这一新定位有哪些深意和影响？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [亚运会乒乓球男单 1/4 决赛，林诗栋 4-2 松岛辉空晋级男单四强，如何评价本场比赛？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [为什么鸡转头是「一下一下」「瞬移」，而不是像人一样有肉眼可见的转头过程？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [王楚钦之后谁还能扛起国乒大旗？为什么感觉新人都差了那么一点？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [浙江男子出生28天就被送养到山东，58年后寻亲成功，比哥哥高一头，山东人每天吃什么？为啥会高出这么多？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [这次中美元首会晤 外媒直呼不一般](http://www.play.hengshemaoyi.cn/kongbu/8543260.htm)
-- [《微微一笑很倾城》女主换脸后重上流媒体，你观感如何？类似原因下架的作品都能这样「复活」吗？](http://www.movie.hkepx.cn/movie/4724518.htm)
-- [大陆学生赴台交流被女间谍主动接近](http://www.play.hengshemaoyi.cn/kongbu/0028042.htm)
-- [四川38岁男子赴泰失联79天获救，称自己「超龄不好卖」被当赠品卖给园区，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/3193472.htm)
-- [比尔盖茨发出严厉警告](http://www.movie.hkepx.cn/xiju/5695874.htm)
-- [特朗普：这次访问富有成效](http://www.play.hengshemaoyi.cn/kongbu/9716007.htm)
-- [别等渴了再喝水](http://www.play.hengshemaoyi.cn/kongbu/6976710.htm)
-- [被雪莉资助的孩子不知她已离世](http://www.daogukj.com/6389351)
-- [2026 热 梗 年 度 总 结 ！！！【上】](http://www.movie.hkepx.cn/xiju/4891708.htm)
-- [为什么你去旅游很无聊](http://www.movie.hkepx.cn/xiju/9183020.htm)
-- [《哦，香雪》中的香雪用40个鸡蛋换自动铅笔盒到底值不值得？](http://www.daogukj.com/mgeudand/)
-- [王楚钦不该承受恶劣舆论环境](http://www.daogukj.com/thgbmsar/)
-- [白宫欢迎国宴上喝的酒不简单](http://www.movie.hkepx.cn/movie/7141685.htm)
-- [男子全款买房未入住 6年后一看懵了](http://www.movie.hkepx.cn/movie/8285250.htm)
-- [胡塞武装称一天对沙特发动两轮袭击](http://www.play.hengshemaoyi.cn/kongbu/8845063.htm)
-- [刘欢在家人陪伴下病逝](http://www.play.hengshemaoyi.cn/xiju/1186264.htm)
-- [中美两国元首夫妇参观美国国家档案馆](http://www.movie.hkepx.cn/xiju/0249486.htm)
-- [中美元首白宫互动的五个细节](http://www.daogukj.com/7987932)
-- [张家齐祝贺陈芋汐卢为夺金](http://www.play.hengshemaoyi.cn/xiju/9727864.htm)
-- [樊振东回归能解决目前国乒的问题吗？他回归的可能性有多大？](http://www.daogukj.com/1491749)
-- [歌手刘欢病逝：以影视金曲封神、用歌声记录时代的殿堂级音乐人](http://www.play.hengshemaoyi.cn/xiju/5312952.htm)
-- [【独家】《凡人修仙传之慕兰之战》第17集【总第193集】](http://www.movie.hkepx.cn/movie/1704748.htm)
-- [中美元首夫妇参观美国国家档案馆](http://www.movie.hkepx.cn/movie/6434749.htm)
-- [赛考斯：特别激动 几乎不敢相信](http://www.movie.hkepx.cn/xiju/3903629.htm)
-- [中美元首夫妇茶叙高清大图](http://www.play.hengshemaoyi.cn/kongbu/1169569.htm)
-- [张本智和 3-0 王楚钦，赛后称等这枚金牌等了十年，现在张本智和的水平在哪个层次？对国乒威胁有多大？](http://www.movie.hkepx.cn/movie/4527568.htm)
-- [刘欢今年1月最后一次公开演出](http://www.play.hengshemaoyi.cn/xiju/6189163.htm)
-- [中美开启新一轮大熊猫保护国际合作](http://www.daogukj.com/0521779)
-- [刘欢 63 岁去世，生前长期受股骨头缺血性坏死困扰，该病被称为「不死的癌症」，它会如何逐步拖垮身体？](http://www.daogukj.com/5716979)
-- [《以片换物- -洗剪吹》 再不疯狂就老了 借一场大笑，释放藏起来的自己。](http://www.movie.hkepx.cn/movie/6813612.htm)
-- [比尔·盖茨警告AI或致十亿人死亡](http://www.play.hengshemaoyi.cn/kongbu/0013525.htm)
-- [最能吃的皮肤转场——大虫子](http://www.daogukj.com/sijbwiiz/)
-- [中美关系的前途是光明的](http://www.movie.hkepx.cn/xiju/5793926.htm)
-- [为什么月饼卖不动了，大家都不喜欢吃了吗？](http://www.movie.hkepx.cn/movie/5566595.htm)
-- [你们说我像谁我就模仿谁！这一期下料有点猛啊哈哈哈哈](http://www.movie.hkepx.cn/movie/7078471.htm)
-- [刘欢7年前曾做支架手术](http://www.play.hengshemaoyi.cn/kongbu/3140322.htm)
-- [罗素：为了阻止末日，可以先点燃一场战争吗？](http://www.play.hengshemaoyi.cn/kongbu/9870126.htm)
-- [普京：俄方乐见中美元首会晤](http://www.movie.hkepx.cn/movie/3347353.htm)
-- [收手机这一块](http://www.play.hengshemaoyi.cn/xiju/4013867.htm)
-- [股骨头坏死是什么](http://www.daogukj.com/neoiosto/)
-- [中美站在新的历史起点](http://www.daogukj.com/2254144)
-- [刘欢和他的时代之歌](http://www.play.hengshemaoyi.cn/xiju/2382409.htm)
-- [网红狗头萝莉自曝负债 650 万成老赖，主播为何频频陷入天价违约金困境？](http://www.daogukj.com/9886230)
-- [斑铜](http://www.play.hengshemaoyi.cn/kongbu/5207966.htm)
-- [为什么工作看第一学历不是最高学历？有人说上海一本去河南大概率专科，河南一本去上海能上985，是这样吗？](http://www.movie.hkepx.cn/movie/7743518.htm)
-- [日本选手被张展硕7枚金牌惊出表情包](http://www.daogukj.com/dzqtqzgj/)
-- [陈芋汐卢为10米台夺金](http://www.play.hengshemaoyi.cn/kongbu/2288019.htm)
-- [为了吸引玩家，现在的游戏厂商究竟有多拼？](http://www.play.hengshemaoyi.cn/xiju/9678725.htm)
-- [那英发博悼念刘欢](http://www.play.hengshemaoyi.cn/kongbu/9902985.htm)
-- [【新宿决战】阿伟VS杰哥](http://www.play.hengshemaoyi.cn/kongbu/8033858.htm)
+- [乒乓球混双决赛](http://www.play.hengshemaoyi.cn/kongbu/8543260.htm)
+- [血月升空！丧尸与寄生虫合围缆车！我们能否守住高空避难所！「缆车惊变100天 #4」](http://www.movie.hkepx.cn/movie/4724518.htm)
+- [中美元首会晤引发热烈国际反响](http://www.play.hengshemaoyi.cn/kongbu/0028042.htm)
+- [后 期 无 敌](http://www.play.hengshemaoyi.cn/xiju/3193472.htm)
+- [《新闻联播》正在直播](http://www.movie.hkepx.cn/xiju/5695874.htm)
+- [王楚钦之后谁还能扛起国乒大旗？为什么感觉新人都差了那么一点？](http://www.play.hengshemaoyi.cn/kongbu/9716007.htm)
+- [现在的消费需求越来越清晰了](http://www.play.hengshemaoyi.cn/kongbu/6976710.htm)
+- [人民日报用歌词送别刘欢](http://www.daogukj.com/6389351)
+- [习近平结束访美 特朗普第一时间发文](http://www.movie.hkepx.cn/xiju/4891708.htm)
+- [张本智和爆冷出局](http://www.movie.hkepx.cn/xiju/9183020.htm)
+- [《歌手》已痛失两位歌王](http://www.daogukj.com/mgeudand/)
+- [刘欢常跟人喝酒聊天到天亮](http://www.daogukj.com/thgbmsar/)
+- [四川38岁男子赴泰失联79天获救，称自己「超龄不好卖」被当赠品卖给园区，有哪些信息值得关注？](http://www.movie.hkepx.cn/movie/7141685.htm)
+- [月饼回收价800元一吨](http://www.movie.hkepx.cn/movie/8285250.htm)
+- [刘欢 63 岁去世，生前长期受股骨头缺血性坏死困扰，该病被称为「不死的癌症」，它会如何逐步拖垮身体？](http://www.play.hengshemaoyi.cn/kongbu/8845063.htm)
+- [孙颖莎获胜后仰天长叹](http://www.play.hengshemaoyi.cn/xiju/1186264.htm)
+- [中美达成300亿美元对等降税安排](http://www.movie.hkepx.cn/xiju/0249486.htm)
+- [中美同意共同构建基于尊重、公平、对等的建设性战略稳定关系，这一新定位有哪些深意和影响？](http://www.daogukj.com/7987932)
+- [比尔·盖茨警告AI或致十亿人死亡](http://www.play.hengshemaoyi.cn/xiju/9727864.htm)
+- [《以片换物- -洗剪吹》 再不疯狂就老了 借一场大笑，释放藏起来的自己。](http://www.daogukj.com/1491749)
+- [陪看：“莎头”vs“动漫”](http://www.play.hengshemaoyi.cn/xiju/5312952.htm)
+- [王毅谈习近平主席对美国国事访问](http://www.movie.hkepx.cn/movie/1704748.htm)
+- [依旧双子星来个小哲摇](http://www.movie.hkepx.cn/movie/6434749.htm)
+- [张本智和淘汰](http://www.movie.hkepx.cn/xiju/3903629.htm)
+- [中美达成八点成果共识](http://www.play.hengshemaoyi.cn/kongbu/1169569.htm)
+- [网络热传生物鉴定 第64期](http://www.movie.hkepx.cn/movie/4527568.htm)
+- [护士突发脑出血倒在工作岗位，人社局称抢救十天不予认定工伤，为何倒在工位上仍无法认定工伤？](http://www.play.hengshemaoyi.cn/xiju/6189163.htm)
+- [女单半决赛对阵出炉](http://www.daogukj.com/0521779)
+- [配音大赛！！一开口直接全场爆笑！！！](http://www.daogukj.com/5716979)
+- [落实中美关系新定位](http://www.movie.hkepx.cn/movie/6813612.htm)
+- [王楚钦孙颖莎vs林诗栋蒯曼](http://www.play.hengshemaoyi.cn/kongbu/0013525.htm)
+- [水均益一开始不相信刘欢去世](http://www.daogukj.com/sijbwiiz/)
+- [把中美建设性战略稳定关系从愿景转化为行动](http://www.movie.hkepx.cn/xiju/5793926.htm)
+- [《鸣潮》共鸣者战斗演示 | 心](http://www.movie.hkepx.cn/movie/5566595.htm)
+- [韩红生日当天得知刘欢去世](http://www.movie.hkepx.cn/movie/7078471.htm)
+- [如何看中国队拿下本届亚运会百金](http://www.play.hengshemaoyi.cn/kongbu/3140322.htm)
+- [张本智和无缘男单四强](http://www.play.hengshemaoyi.cn/kongbu/9870126.htm)
+- [中美同意建立人工智能对话](http://www.movie.hkepx.cn/movie/3347353.htm)
+- [刘欢上个月在国外还被偶遇了](http://www.play.hengshemaoyi.cn/xiju/4013867.htm)
+- [刘欢离世前太太曾联系甄嬛传编曲](http://www.daogukj.com/neoiosto/)
+- [中美共同构建建设性战略稳定关系](http://www.daogukj.com/2254144)
+- [亚运男足 1/4 决赛，中国男足 3-0 泰国男足，时隔 28 年重回亚运会四强，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/2382409.htm)
+- [《三角洲行动》群星计划—代号：深蓝](http://www.daogukj.com/9886230)
+- [外交部就人工智能问题答记者问](http://www.play.hengshemaoyi.cn/kongbu/5207966.htm)
+- [《月饼守恒定律》](http://www.movie.hkepx.cn/movie/7743518.htm)
+- [比尔盖茨发出严厉警告](http://www.daogukj.com/dzqtqzgj/)
+- [中美关系下一程：竞争中寻找稳定](http://www.play.hengshemaoyi.cn/kongbu/2288019.htm)
+- [白宫里的三张照片见证中美关系](http://www.play.hengshemaoyi.cn/xiju/9678725.htm)
+- [中国男足时隔28年再进亚运四强](http://www.play.hengshemaoyi.cn/kongbu/9902985.htm)
+- [中美相互支持对方办好APEC和G20](http://www.play.hengshemaoyi.cn/kongbu/8033858.htm)
 
 </details>
 
 ## 原始来源
 
-- [马斯克感叹中国壮丽](https://www.toutiao.com/trending/7688995453985636394/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%228%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227688995453985636394%22%2C%22hot_board_impr_id%22%3A%2220260926135748FB0D6A1D03FAF95F8907%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [张本智和 3-0 王楚钦，赛后称等这枚金牌等了十年，现在张本智和的水平在哪个层次？对国乒威胁有多大？](https://www.zhihu.com/question/2086566324948264822)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: cf603cae89e73f2deee2 -->
+<!-- content-fingerprint: 22781e2ab8298ea3bc03 -->
