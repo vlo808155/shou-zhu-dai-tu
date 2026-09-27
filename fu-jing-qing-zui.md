@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 研究生导师把丑话说在前面
+# 陈圆将110米栏金牌
 
-> 来源：微博热搜 · 排名：第 8 位 · 热度：433389 · 分类：幽默 · 更新：2026-09-27T15:49:37+08:00
+> 来源：百度热搜 · 排名：第 6 位 · 热度：7232787 · 更新：2026-09-27T21:20:31+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“研究生导师把丑话说在前面”位列第 8 位，公开热度指标为 433389，榜单分类为“幽默”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“陈圆将110米栏金牌”位列第 6 位，公开热度指标为 7232787。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：9月27日，名古屋亚运会田径男子110米栏决赛，中国选手陈圆将夺得金牌！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `幽默`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [美军铺红毯让日本网民破防](mao-sui-zi-jian.md)
-- [甜瓜琵琶曲#高质量手搓 🤓](san-gu-mao-lu.md)
-- [伊朗选手冲日本教练面前庆祝是错位](cao-mu-jie-bing.md)
-- [王曼昱亚运双杀张本美和](feng-sheng-he-li.md)
+- [金鹰奖](mao-sui-zi-jian.md)
+- [中美见面同期美企在华开启量产](san-gu-mao-lu.md)
+- [亚运会乒乓球男双半决赛，温瑞博/向鹏 3-4 张本智和/篠塚大登，无缘决赛，如何评价本场比赛？](cao-mu-jie-bing.md)
+- [《三角洲行动》群星计划—代号：威龙](feng-sheng-he-li.md)
 
 ## 站内推荐
 
-- [美食街，我在森林很想你【AI全民制作人】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [【剧情】长生契（2026）07【方逸伦 / 谢可寅】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [中国古代陵墓物理防盗的巅峰之作](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [时间不多喽](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [特朗普两度提及“中国皇后号”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [黄友政林诗栋4比2战胜日本夺金](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [樊振东vs格拉尔多](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [陈妤颉说200米摘银是教训](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [张家齐妈妈聊天记录](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [兰香如故 二爷](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [【说唱】不是，酒保怎么比我先醉啊…](http://www.daogukj.com/eqgqhkqf/)
-- [中美八项成果为何未提台湾问题](http://www.play.hengshemaoyi.cn/xiju/5995614.htm)
-- [豆包回答70岁前去世占比](http://www.play.hengshemaoyi.cn/kongbu/6334914.htm)
-- [当你遇到两年前的自己.......](http://www.daogukj.com/3536313)
-- [高中时同学经常乱吃药](http://www.movie.hkepx.cn/xiju/7959476.htm)
-- [交强险经营亏损两百多亿](http://www.movie.hkepx.cn/xiju/4071499.htm)
-- [九天揽月、向海筑能！多项工程获突破](http://www.movie.hkepx.cn/movie/8882644.htm)
-- [乒乓球](http://www.daogukj.com/fdgghkjr/)
-- [Ai短片｜《标签》｜如果标签上的字都变成现实？](http://www.movie.hkepx.cn/xiju/3439203.htm)
-- [“后来我们恶语相向，却忘了我们曾经是最相爱的人”](http://www.play.hengshemaoyi.cn/xiju/4410256.htm)
-- [中国正在挖一座“不枯竭的矿”](http://www.daogukj.com/zplxdklb/)
-- [邓亚萍谈日本男单全军覆没：兴奋过头](http://www.movie.hkepx.cn/movie/6001850.htm)
-- [《崩坏：星穹铁道》真珠角色PV——「如何描绘一种希望」](http://www.play.hengshemaoyi.cn/kongbu/1262531.htm)
-- [刘欢捐2000万的公益金管理方发声](http://www.movie.hkepx.cn/movie/8339563.htm)
-- [吴艳妮比赛开始前在检录处补妆](http://www.movie.hkepx.cn/xiju/2263179.htm)
-- [【独家】牧神记 第102集 大尊](http://www.play.hengshemaoyi.cn/xiju/0991511.htm)
-- [美食街，我在森林很想你【AI全民制作人】](http://www.daogukj.com/3405709)
-- [OpenAI再暂停最先进模型训练](http://www.play.hengshemaoyi.cn/xiju/7801003.htm)
-- [王一博采访道歉](http://www.daogukj.com/1405714)
-- [孙颖莎4比1赢了早田希娜](http://www.movie.hkepx.cn/xiju/5293066.htm)
-- [北京释放7亿只小蜂治毛毛虫](http://www.daogukj.com/oabpcutg/)
-- [王曼昱孙颖莎会师女单决赛](http://www.play.hengshemaoyi.cn/kongbu/1350574.htm)
-- [胡歌3岁女儿近照](http://www.play.hengshemaoyi.cn/kongbu/5103106.htm)
-- [温瑞博向鹏无缘男双决赛](http://www.movie.hkepx.cn/xiju/9733554.htm)
-- [中埃混血在河南农村办满月酒是什么体验](http://www.daogukj.com/9709824)
-- [13天内敬一丹游本昌刘欢相继离世](http://www.daogukj.com/1737486)
-- [世界技能大赛的动人瞬间](http://www.daogukj.com/jdlipgmx/)
-- [将大局逆转吧！](http://www.play.hengshemaoyi.cn/kongbu/6065966.htm)
-- [袁娅维把微博发到了萨顶顶超话](http://www.play.hengshemaoyi.cn/kongbu/7701032.htm)
-- [广州岭南印象园一女演员从高处坠落](http://www.movie.hkepx.cn/xiju/7676153.htm)
-- [【立志成为恶兽】05 我有一个拯救村庄的计划【UP动画】【HiShorts! × updream AI短片大赛-剧情单元】](http://www.play.hengshemaoyi.cn/kongbu/2964451.htm)
-- [甜瓜琵琶曲#高质量手搓 🤓](http://www.daogukj.com/1537700)
-- [时间不多喽](http://www.daogukj.com/rsfbmsap/)
-- [李亚鹏现身意大利为张雪机车加油](http://www.movie.hkepx.cn/movie/7580112.htm)
-- [井柏然 恨我的继续爱我的别停](http://www.daogukj.com/0114710)
-- [《三角洲行动》群星计划—代号：深蓝](http://www.play.hengshemaoyi.cn/kongbu/9230233.htm)
-- [溶酶体：细胞里为什么藏着一颗自毁炸弹？](http://www.play.hengshemaoyi.cn/kongbu/7120843.htm)
-- [胡歌黄曦宁在一起已经六年了](http://www.play.hengshemaoyi.cn/xiju/9989486.htm)
-- [南方大范围闷热将持续至月底](http://www.play.hengshemaoyi.cn/xiju/6200267.htm)
-- [河南一技校101名毕业生入职北大](http://www.daogukj.com/7981248)
-- [邱毅：“解放军驻台”能震慑分裂势力](http://www.play.hengshemaoyi.cn/kongbu/9855490.htm)
-- [小孙武汉女仆店探店，全程嘴角上扬](http://www.play.hengshemaoyi.cn/kongbu/7710563.htm)
-- [罗永浩称俞敏洪卖劣质溜溜凳](http://www.daogukj.com/wiaxnumm/)
-- [【剧情】长生契（2026）07【方逸伦 / 谢可寅】](http://www.play.hengshemaoyi.cn/xiju/6775596.htm)
-- [谁更会拍冰岛？](http://www.play.hengshemaoyi.cn/kongbu/1979081.htm)
-- [OpenAI暂停其最强模型训练](http://www.play.hengshemaoyi.cn/kongbu/9092912.htm)
-- [8旬老人卖房邻居多次劝退看房者](http://www.daogukj.com/tyfmekow/)
-- [黄渤谈为什么青岛演员多](http://www.movie.hkepx.cn/xiju/3281791.htm)
-- [无糖月饼可敞开吃？小心误区](http://www.daogukj.com/2886935)
-- [蔡磊确诊渐冻症后夫妻俩的第七个中秋](http://www.movie.hkepx.cn/xiju/7902460.htm)
+- [动态视频｜按出1秒获得1万元？](http://www.daogukj.com/eqgqhkqf/)
+- [孙颖莎银牌](http://www.play.hengshemaoyi.cn/xiju/5995614.htm)
+- [吴艳妮100米栏铜牌](http://www.play.hengshemaoyi.cn/kongbu/6334914.htm)
+- [OpenAI再暂停最先进模型训练](http://www.daogukj.com/3536313)
+- [「每卖一辆问界，华为分走13.6万」的传闻是真的吗？华为赛力斯合作模式调整后，能降价反馈给消费者吗？](http://www.movie.hkepx.cn/xiju/7959476.htm)
+- [男子为泄愤拧松他人轿车轮胎螺母获刑三年，从法律角度该如何解读？](http://www.movie.hkepx.cn/xiju/4071499.htm)
+- [中美达成八点成果共识，达成「300亿美元」对等降税安排，哪些信息值得重点关注？](http://www.movie.hkepx.cn/movie/8882644.htm)
+- [王曼昱冠军](http://www.daogukj.com/fdgghkjr/)
+- [【剧情】长生契（2026）07【方逸伦 / 谢可寅】](http://www.movie.hkepx.cn/xiju/3439203.htm)
+- [71岁男子拾荒21年领到42万养老金](http://www.play.hengshemaoyi.cn/xiju/4410256.htm)
+- [《纯粹の体育精神》](http://www.daogukj.com/zplxdklb/)
+- [吴艳妮铜牌](http://www.movie.hkepx.cn/movie/6001850.htm)
+- [亚运会乒乓球男双决赛，林诗栋/黄友政 4-2 张本智和/篠塚大登，获男双金牌，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/1262531.htm)
+- [我们尝试用AI造了一个时空](http://www.movie.hkepx.cn/movie/8339563.htm)
+- [【STN快报第8.5季22】史上最刀发布会，玩家看完纷纷感叹太刀了](http://www.movie.hkepx.cn/xiju/2263179.htm)
+- [孙颖莎vs王曼昱](http://www.play.hengshemaoyi.cn/xiju/0991511.htm)
+- [黄友政林诗栋4比2战胜日本夺金](http://www.daogukj.com/3405709)
+- [专家：菲企图蚕食中方主权是痴心妄想](http://www.play.hengshemaoyi.cn/xiju/7801003.htm)
+- [黄友政林诗栋金牌](http://www.daogukj.com/1405714)
+- [钓鱼被鱼揍了](http://www.movie.hkepx.cn/xiju/5293066.htm)
+- [亚运会乒乓球女单决赛，王曼昱 4-2 战胜孙颖莎夺冠， 国乒包揽女单金银牌，如何评价本场比赛？](http://www.daogukj.com/oabpcutg/)
+- [【独家】牧神记 第102集 大尊](http://www.play.hengshemaoyi.cn/kongbu/1350574.htm)
+- [没有海却出海鲜 中国人怎么做到的](http://www.play.hengshemaoyi.cn/kongbu/5103106.htm)
+- [无糖月饼可敞开吃？小心误区](http://www.movie.hkepx.cn/xiju/9733554.htm)
+- [《崩坏：星穹铁道》真珠角色PV——「如何描绘一种希望」](http://www.daogukj.com/9709824)
+- [延续外观，影像升级？vivo X500 Pro Max 上手](http://www.daogukj.com/1737486)
+- [第五人格亚运版本项目助威曲《追光逐梦》MV现已上线！](http://www.daogukj.com/jdlipgmx/)
+- [交个朋友为「售卖的网红溜溜凳被曝用发霉木板、废旧海绵」道歉，称启动退赔，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/6065966.htm)
+- [《三角洲行动》群星计划—代号：蝶](http://www.play.hengshemaoyi.cn/kongbu/7701032.htm)
+- [快问快答：历史性时间窗口！中国在华盛顿主动出牌](http://www.movie.hkepx.cn/xiju/7676153.htm)
+- [豆包手机助手致歉](http://www.play.hengshemaoyi.cn/kongbu/2964451.htm)
+- [中美见面同期美企在华开启量产](http://www.daogukj.com/1537700)
+- [张家齐妈妈聊天记录](http://www.daogukj.com/rsfbmsap/)
+- [亚运会女子 100 米栏决赛，福部真子夺冠，吴艳妮铜牌，如何评价她们的表现和本场比赛？](http://www.movie.hkepx.cn/movie/7580112.htm)
+- [17岁陈妤颉田径200米摘银](http://www.daogukj.com/0114710)
+- [中国队昂扬向上的精神太动人](http://www.play.hengshemaoyi.cn/kongbu/9230233.htm)
+- [全新玩法【黑潮爆破】正式上线！](http://www.play.hengshemaoyi.cn/kongbu/7120843.htm)
+- [陈妤颉200米银牌](http://www.play.hengshemaoyi.cn/xiju/9989486.htm)
+- [亚运会女子 200 米决赛，陈妤颉摘得银牌，如何评价本场比赛和她的表现？](http://www.play.hengshemaoyi.cn/xiju/6200267.htm)
+- [王曼昱亚运女单冠军](http://www.daogukj.com/7981248)
+- [没人会记得神作之下的第二名，除非那一年都是逆天神梗！](http://www.play.hengshemaoyi.cn/kongbu/9855490.htm)
+- [严子怡太强了](http://www.play.hengshemaoyi.cn/kongbu/7710563.htm)
+- [交个朋友直播间被曝卖病死鱼，罗永浩连发 16 条内容辟谣，具体是怎么回事？](http://www.daogukj.com/wiaxnumm/)
+- [樊振东vs格拉尔多](http://www.play.hengshemaoyi.cn/xiju/6775596.htm)
+- [大熊猫「平平」「福双」已抵达美国，将落户美国亚特兰大动物园，对中美两国有哪些意义？](http://www.play.hengshemaoyi.cn/kongbu/1979081.htm)
+- [2026 热 梗 年 度 总 结 ！！！【上】](http://www.play.hengshemaoyi.cn/kongbu/9092912.htm)
+- [下半年来最强冷空气](http://www.daogukj.com/tyfmekow/)
+- [既然国人嫌弃月饼高油高糖，为啥不把月饼出口到喜爱糖油混合物的美国呢？](http://www.movie.hkepx.cn/xiju/3281791.htm)
+- [刘欢唱红的歌值多少钱](http://www.daogukj.com/2886935)
+- [英语书中“抱吉他女孩”爆火](http://www.movie.hkepx.cn/xiju/7902460.htm)
 
 </details>
 
 ## 原始来源
 
-- [研究生导师把丑话说在前面](https://s.weibo.com/weibo?q=%E7%A0%94%E7%A9%B6%E7%94%9F%E5%AF%BC%E5%B8%88%E6%8A%8A%E4%B8%91%E8%AF%9D%E8%AF%B4%E5%9C%A8%E5%89%8D%E9%9D%A2)
+- [陈圆将110米栏金牌](https://www.baidu.com/s?wd=%E9%99%88%E5%9C%86%E5%B0%86110%E7%B1%B3%E6%A0%8F%E9%87%91%E7%89%8C&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c59194cd95bd9c3da803 -->
+<!-- content-fingerprint: a6dafbb1dac02a43965c -->
