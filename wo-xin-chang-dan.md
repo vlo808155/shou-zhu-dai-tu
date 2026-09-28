@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 贷款中介这几天集体删除朋友圈
+# 塞尔维亚总统武契奇宣布辞职，他此前表示将以普通公民身份参加竞选，还有哪些信息值得关注？
 
-> 来源：百度热搜 · 排名：第 5 位 · 热度：7332823 · 更新：2026-09-28T09:55:03+08:00
+> 来源：知乎热榜 · 排名：第 5 位 · 热度：337 万热度 · 分类：问答 · 更新：2026-09-28T16:26:31+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“贷款中介这几天集体删除朋友圈”位列第 5 位，公开热度指标为 7332823。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“塞尔维亚总统武契奇宣布辞职，他此前表示将以普通公民身份参加竞选，还有哪些信息值得关注？”位列第 5 位，公开热度指标为 337 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月30日起《金融产品网络营销管理办法》实施，明确禁止非持牌个人开展网络营销。受此监管组合拳影响，贷款中介集体解散客户群、删除朋友圈以降低存在感，助贷行业野蛮生长阶段终结。7家上市助贷公司2026年二季度业绩全面下滑，合规能力将成入场门槛。
+来源公开摘要显示：当地时间9月27日晚，塞尔维亚总统武契奇向民众发表讲话，宣布辞职。武契奇在讲话中感谢塞尔维亚民众两次在总统选举中给予他的信任。 随后，武契奇签署辞呈，正式辞去塞尔维亚总统职务，提前结束其第二个总统任期。根据此前宣布，他将竞选下届政府总理。武契奇表示，将于28日上午向国民议会议长布尔纳比奇移交总统职责，后者将代理总统职务。 本月5日，塞尔维亚前进党总委员会决定，推举武契奇为该党议会选举名单领衔人和总理候选人，武契奇随后接受推举。9日，武契奇签署总统令解散议会，并宣布于10月25日提前举行议会选举。 武契奇2017年4月当选总统，2022年5月连任。根据塞尔
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [张家齐妈妈走700米打车觉得狼狈](po-fu-chen-zhou.md)
-- [亚运会羽毛球比赛0时8分开打引争议](bei-shui-yi-zhan.md)
-- [塞尔维亚总统武契奇宣布辞职，他此前表示将以普通公民身份参加竞选，还有哪些信息值得关注？](zhi-shang-tan-bing.md)
-- [我给机器人接入10万个技能，它直接膨胀了？！](wei-wei-jiu-zhao.md)
+- [当道士下山上大学](po-fu-chen-zhou.md)
+- [花一万二买房 年轻人去大兴安岭隐居](bei-shui-yi-zhan.md)
+- [日媒惊呼中国队出了怪物级天才](zhi-shang-tan-bing.md)
+- [若AI泡沫破裂谁死得比较难看](wei-wei-jiu-zhao.md)
 
 ## 站内推荐
 
-- [多方回应五常大米造假乱象](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [武契奇宣布辞职](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [吴艳妮决赛起跑倒数第一](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [肖战第1次上热搜涨粉130万](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [郑刚 锤子科技](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [如果全球都降到零下50-100度，在提前一个月知道的情况下需要准备什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [中美「300亿对300亿」对等降税框架公布，超90%产品将享受最惠国关税待遇，将带来哪些利好？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [我国南疆塔克拉玛干沙漠发现两处大型地下水水源，这意味着什么？将对当地生态和经济带来哪些影响？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [为什么厂家不把预制菜直接卖给c端用户？省得我叫外卖了?](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [3秒一个水晶，廉颇超快的推塔速度](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [12306辟谣给公众号发信息能抢到票](http://www.daogukj.com/epcjcrex/)
-- [媒体评刘欢去世：大爱已播撒世间](http://www.movie.hkepx.cn/xiju/7554306.htm)
-- [中秋节过完了月饼却没吃完，你会咋办？有啥月饼消耗大法吗？](http://www.daogukj.com/7098171)
-- [《纯粹の体育精神》](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
-- [王曼昱总共就参加过两次亚运会](http://www.daogukj.com/5595330)
-- [王楚钦 男单](http://www.movie.hkepx.cn/xiju/4881611.htm)
-- [刺激！用胶带捆绑女友全身…让她眼睁睁看我通宵打游戏！](http://www.daogukj.com/2794428)
-- [张家齐女王发言](http://www.movie.hkepx.cn/movie/0220033.htm)
-- [佘诗曼食物中毒 体重新低不足90斤](http://www.daogukj.com/3787812)
-- [男子8万救命钱被盗刷并称银行 1 条提醒短信都没发，银行称责任划分需司法机构裁决，银行到底该不该担责？](http://www.movie.hkepx.cn/movie/2410306.htm)
-- [李克勤迟到草根歌手侯浪救场火了](http://www.movie.hkepx.cn/movie/4961738.htm)
-- [既然国人嫌弃月饼高油高糖，为啥不把月饼出口到喜爱糖油混合物的美国呢？](http://www.movie.hkepx.cn/xiju/4077836.htm)
-- [如何评价以SCP基金会为世界观背景，Remedy工作室的新游戏作品《控制：共振》？](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
-- [郑刚 锤子科技](http://www.daogukj.com/rrqdxtcv/)
-- [泽连斯基联合国直播给李在明送上究极大麻烦](http://www.daogukj.com/5407672)
-- [李克勤迟到 草根歌手救场连唱20首](http://www.daogukj.com/9043091)
-- [美民众热烈期盼大熊猫重返亚特兰大](http://www.daogukj.com/9116005)
-- [刘欢去世前曾被偶遇 网友晒现场视频](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
-- [交个朋友为「售卖的网红溜溜凳被曝用发霉木板、废旧海绵」道歉，称启动退赔，如何看待此事？](http://www.daogukj.com/eqgomafp/)
-- [葡萄牙主帅回应未让C罗登场](http://www.daogukj.com/7605991)
-- [商务部解读第八轮中美经贸磋商成果](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
-- [中国连续5届世赛金牌第一](http://www.movie.hkepx.cn/movie/4360714.htm)
-- [国足0-3不敌新西兰](http://www.daogukj.com/4727961)
-- [孙千工作室 烦心事够多了](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
-- [国乒的团结永远让人感动](http://www.movie.hkepx.cn/xiju/3457747.htm)
-- [我们尝试用AI造了一个时空](http://www.movie.hkepx.cn/movie/9116389.htm)
-- [中美达成八点成果共识，达成「300亿美元」对等降税安排，哪些信息值得重点关注？](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
-- [没人会记得神作之下的第二名，除非那一年都是逆天神梗！](http://www.movie.hkepx.cn/movie/6275425.htm)
-- [我的新能源男友](http://www.daogukj.com/6962158)
-- [明月高悬独不照我和明月高悬不独照我哪个更让你心痛？为什么？](http://www.movie.hkepx.cn/movie/3536173.htm)
-- [罗永浩遭实名举报偷税漏税](http://www.daogukj.com/5602314)
-- [当双方互相以为对方是同行3](http://www.daogukj.com/rhzksqyv/)
-- [交个朋友直播间被曝卖病死鱼，罗永浩连发 16 条内容辟谣，具体是怎么回事？](http://www.daogukj.com/ciddvmwp/)
-- [比赛0时8分开打 日本观众都走了](http://www.movie.hkepx.cn/xiju/5158718.htm)
-- [大明湖畔千人大合唱《从头再来》](http://www.movie.hkepx.cn/xiju/4192777.htm)
-- [佘诗曼食物中毒 体重不足90斤](http://www.movie.hkepx.cn/xiju/6976677.htm)
-- [台湾社会要读懂中美元首会晤意义](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
-- [小米18系列硬件防窥屏线下实测被指可视角度差、侧看偏色，这是翻车了吗？是硬件方案固有缺陷还是调校问题？](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
-- [无糖月饼可敞开吃？小心误区](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
-- [交强险2025年经营亏损230亿元，3.86亿辆机动车参保，赔付支出2524亿元，哪些信息值得关注？](http://www.daogukj.com/3262256)
-- [王楚钦男单比赛时间](http://www.daogukj.com/2924239)
-- [A股](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
-- [亚运会羽毛球比赛0时8分开打引争议](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
-- [多方回应五常大米造假乱象](http://www.daogukj.com/cszxbbqq/)
-- [C罗赛后直接回更衣室未参与全队庆祝](http://www.movie.hkepx.cn/movie/9183199.htm)
-- [背屏能替代手机App吗？100张背屏应用卡实测排位赛](http://www.daogukj.com/zmttmgkb/)
-- [日本选手现役亚洲第一 但我是冠军](http://www.movie.hkepx.cn/xiju/7610500.htm)
-- [《潜伏》中吕宗方是怎么发现潜伏在延安的“佛龛”就是李涯？](http://www.movie.hkepx.cn/xiju/6364739.htm)
-- [电车 买得起修不起](http://www.daogukj.com/5178801)
-- [白岩松评幼师举报幼儿园后厨](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
+- [如果选择一处古迹或古遗址，来回答我们为什么要访古，你会选择哪一个？为什么？](http://www.daogukj.com/epcjcrex/)
+- [钓鱼被鱼揍了](http://www.movie.hkepx.cn/xiju/7554306.htm)
+- [一诺双金牌](http://www.daogukj.com/7098171)
+- [张雪机车团队多人在意大利被盗，所乘大巴车遭盗匪光顾，为啥意大利的小偷这么猖獗？没有能惩治他们的办法吗？](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
+- [【剧情】终极恶女（2014）01【那维勋 / 蔡函岑】](http://www.daogukj.com/5595330)
+- [中国队亚运王者夺金](http://www.movie.hkepx.cn/xiju/4881611.htm)
+- [中国队卫冕王者荣耀亚运冠军](http://www.daogukj.com/2794428)
+- [【新宿决战】DeepSeek娘VS豆包](http://www.movie.hkepx.cn/movie/0220033.htm)
+- [博士就业，感觉二本待遇不差还轻松，为什么去985/211呢？](http://www.daogukj.com/3787812)
+- [王灿被骗灌肠](http://www.movie.hkepx.cn/movie/2410306.htm)
+- [郑钦文中网首轮对阵资格赛球员](http://www.movie.hkepx.cn/movie/4961738.htm)
+- [游本昌离世前家人未强行喂食送医](http://www.movie.hkepx.cn/xiju/4077836.htm)
+- [黄金](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
+- [3秒一个水晶，廉颇超快的推塔速度](http://www.daogukj.com/rrqdxtcv/)
+- [媒体：刘欢去世中文歌坛真神落幕](http://www.daogukj.com/5407672)
+- [如何评价吴艳妮夺铜后发言「起跑慢因三年前的阴影，我没有被挫折和网暴打败」？](http://www.daogukj.com/9043091)
+- [《鸣潮》共鸣者「心」PV | 梦阑珊](http://www.daogukj.com/9116005)
+- [广州地铁有“砍人”事件系谣言](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
+- [阿根廷街头著名景点是中国工商银行](http://www.daogukj.com/eqgomafp/)
+- [“仅退款”的风吹到内娱](http://www.daogukj.com/7605991)
+- [国乒提前锁定男单冠亚军](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
+- [有哪些「小时候不以为意，长大后细思恐极」的影视情节？](http://www.movie.hkepx.cn/movie/4360714.htm)
+- [游本昌去世前两三天选择不吃不喝](http://www.daogukj.com/4727961)
+- [戒赌吧覆灭！1400万赌徒抱团救赎，吧主将他们卖给赌场！【神奇组织17】](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
+- [【特效向】蔡徐坤vs全明星 第二季](http://www.movie.hkepx.cn/xiju/3457747.htm)
+- [段永平买入3万股贵州茅台](http://www.movie.hkepx.cn/movie/9116389.htm)
+- [四线新高铁同日开通](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
+- [捷达M6正式开启预售](http://www.movie.hkepx.cn/movie/6275425.htm)
+- [把中美民间友好的桥梁筑得更宽、更牢](http://www.daogukj.com/6962158)
+- [李蠕蠕收入比娱乐圈很多人高](http://www.movie.hkepx.cn/movie/3536173.htm)
+- [如何评价2026年9月米哈游《崩坏星穹铁道》4.6版本剧情任务【月升之前，与兽共舞】？](http://www.daogukj.com/5602314)
+- [无糖月饼可敞开吃？小心误区](http://www.daogukj.com/rhzksqyv/)
+- [华为mate90](http://www.daogukj.com/ciddvmwp/)
+- [亚运会乒乓球男单半决赛，王楚钦4-1伊朗选手阿拉米扬，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/5158718.htm)
+- [孙颖莎直言可能等不到下届亚运会了，并表示决赛时后半程能力有点跟不上，你怎么看？客观来看她现在状态如何？](http://www.movie.hkepx.cn/xiju/4192777.htm)
+- [抄袭者如何把原创者熬成山寨？奥利奥：这事儿我熟](http://www.movie.hkepx.cn/xiju/6976677.htm)
+- [张本智和：日本男乒发挥八九成实力](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
+- [印度选手：感觉根本没在参加亚运会](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
+- [谁来管管现在的小说](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
+- [荣耀发布会](http://www.daogukj.com/3262256)
+- [《纵横修仙界》全平台预约开启，爽修道祖谢君豪邀你爽修飞升！](http://www.daogukj.com/2924239)
+- [如何看待蔚来、吉利控股达成充换电战略合作，互相入股能源业务？此次联手，将对新能源行业带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
+- [花一万二买房 年轻人去大兴安岭隐居](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
+- [如果全球都降到零下50-100度，在提前一个月知道的情况下需要准备什么？](http://www.daogukj.com/cszxbbqq/)
+- [《坦克模拟器-增强版》](http://www.movie.hkepx.cn/movie/9183199.htm)
+- [如何看待常德一老人因误解养老金政策拾荒 21 年，最终领到 42 万养老金？暴露了背后哪些问题？](http://www.daogukj.com/zmttmgkb/)
+- [《原神》六周年主题曲《风的来信》](http://www.movie.hkepx.cn/xiju/7610500.htm)
+- [樊振东打球又把自己打立正了](http://www.movie.hkepx.cn/xiju/6364739.htm)
+- [对手穿错鞋子 中国队递补获得金银牌](http://www.daogukj.com/5178801)
+- [莎拉·布莱曼发文悼念刘欢](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
 
 </details>
 
 ## 原始来源
 
-- [贷款中介这几天集体删除朋友圈](https://www.baidu.com/s?wd=%E8%B4%B7%E6%AC%BE%E4%B8%AD%E4%BB%8B%E8%BF%99%E5%87%A0%E5%A4%A9%E9%9B%86%E4%BD%93%E5%88%A0%E9%99%A4%E6%9C%8B%E5%8F%8B%E5%9C%88&sa=fyb_news&rsv_dl=fyb_news)
+- [塞尔维亚总统武契奇宣布辞职，他此前表示将以普通公民身份参加竞选，还有哪些信息值得关注？](https://www.zhihu.com/question/2083115842678665845)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f3cddeb47074adbd01c0 -->
+<!-- content-fingerprint: b0219ee09d7387dea683 -->
