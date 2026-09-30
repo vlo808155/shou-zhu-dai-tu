@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 马斯克称人人都会有全民高收入
+# 华为 赛力斯
 
-> 来源：微博热搜 · 排名：第 5 位 · 热度：62847 · 分类：互联网 · 更新：2026-10-01T04:20:06+08:00
+> 来源：微博热搜 · 排名：第 5 位 · 热度：598940 · 分类：财经 · 更新：2026-10-01T07:59:40+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“马斯克称人人都会有全民高收入”位列第 5 位，公开热度指标为 62847，榜单分类为“互联网”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“华为 赛力斯”位列第 5 位，公开热度指标为 598940，榜单分类为“财经”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `互联网`
+`微博热搜` `实时热搜` `热点资讯` `财经`
 
 ## 相关热点
 
-- [美军灰溜溜走了 伊拉克全国放假4天](wen-ji-qi-wu.md)
-- [如何评价 OpenAI 发布的 GPT-6.1 sol？](wo-xin-chang-dan.md)
-- [《艾希》十周年续作《艾希：续》众筹开启](po-fu-chen-zhou.md)
-- [老兵在天安门不肯坐轮椅起身敬礼](bei-shui-yi-zhan.md)
+- [直击各地国庆升旗仪式](wen-ji-qi-wu.md)
+- [现在大家都把国庆当纯放假玩，有没有什么「老派」过节体验？](wo-xin-chang-dan.md)
+- [内蒙古野生卤虫，真红啊！](po-fu-chen-zhou.md)
+- [迪拜航空客机内发生了什么](bei-shui-yi-zhan.md)
 
 ## 站内推荐
 
 - [少年儿童高唱我们是共产主义接班人](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [陈浩民妻子拿雅典娜事件教育孩子](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [华为 赛力斯](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [为什么进化中，没有将妊娠和哺乳工作分配给两性，而都由雌性进行？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [泰国洪灾](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [国庆节](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [体制内的饭局基本消失了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [副机长刺伤机长迪拜航空客机失控俯冲](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [女子父亲突然离世邻居1分钟赶到帮忙](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [赛力斯华为合作模式变动](http://www.play.hengshemaoyi.cn/kongbu/8974730.htm)
-- [警号021544重启](http://www.play.hengshemaoyi.cn/kongbu/4377320.htm)
-- [以总理称赴以航班飞行员“蓄意坠机”](http://www.daogukj.com/mhxkhqlr/)
-- [穆欣月成首位亚运电竞女子冠军](http://www.daogukj.com/vttuxixa/)
-- [如何辨认身边的有大智慧的人？](http://www.daogukj.com/cqpthmbw/)
-- [《艾希》十周年续作《艾希：续》众筹开启](http://www.movie.hkepx.cn/xiju/9477503.htm)
-- [陈浩民妻子拿雅典娜事件教育孩子](http://www.daogukj.com/7088546)
-- [网媒“爆炸头”邓浩荣落网](http://www.play.hengshemaoyi.cn/kongbu/2897383.htm)
-- [如何看待Manus重回中国市场并发布Manus 2.0和个人智能助理Cue？](http://www.daogukj.com/lcwjhtor/)
-- [能把一个刺头从个人贡献者培养成为团队管理者吗？?](http://www.play.hengshemaoyi.cn/xiju/4203206.htm)
-- [老兵在天安门不肯坐轮椅起身敬礼](http://www.movie.hkepx.cn/xiju/2909346.htm)
-- [昆明铁路区间行车秩序逐步恢复](http://www.daogukj.com/7785768)
-- [中国首位金牌电竞女选手桃晚安](http://www.daogukj.com/1079050)
-- [假如🤔...全世界发量下降一万倍，而俺不变！](http://www.daogukj.com/cfcdbnes/)
-- [奚梦瑶给女儿买了可爱版菜篮子](http://www.movie.hkepx.cn/xiju/5548290.htm)
-- [我家那闺女 剪辑](http://www.movie.hkepx.cn/movie/6459598.htm)
-- [解放军22架艘次军机舰船位台岛周边活动](http://www.movie.hkepx.cn/movie/8145475.htm)
-- [踹翻孕妇电动车当事司机发声](http://www.movie.hkepx.cn/movie/6792790.htm)
-- [日媒：张本智和常私信搭讪女性](http://www.movie.hkepx.cn/xiju/5785622.htm)
-- [《善》善良是什么](http://www.play.hengshemaoyi.cn/xiju/0943328.htm)
-- [昆明4.3级地震有房屋破损](http://www.daogukj.com/6160997)
-- [泰国洪灾](http://www.play.hengshemaoyi.cn/kongbu/9533347.htm)
-- [90后，00的童年的含金量还在一步步提升](http://www.daogukj.com/6158458)
+- [国庆全国多地绝美日出](http://www.play.hengshemaoyi.cn/kongbu/8974730.htm)
+- [全国各地换上“中国红”皮肤](http://www.play.hengshemaoyi.cn/kongbu/4377320.htm)
+- [我爱你中国！庆祝新中国成立77周年](http://www.daogukj.com/mhxkhqlr/)
+- [C罗离开葡萄牙集训营：会适时公布真相](http://www.daogukj.com/vttuxixa/)
+- [妈妈拿巨型碗劝2米01儿子好好吃饭](http://www.daogukj.com/cqpthmbw/)
+- [内蒙古野生卤虫，真红啊！](http://www.movie.hkepx.cn/xiju/9477503.htm)
+- [国庆节](http://www.daogukj.com/7088546)
+- [纯技术讨论，马龙的正手、张继科的反手、王皓的直板横打，哪个单项技术对乒坛影响最大？](http://www.play.hengshemaoyi.cn/kongbu/2897383.htm)
+- [国旗护卫队歌声自带混响效果](http://www.daogukj.com/lcwjhtor/)
+- [高速零时免费有车主省下560多元](http://www.play.hengshemaoyi.cn/xiju/4203206.htm)
+- [迪拜航空客机内发生了什么](http://www.movie.hkepx.cn/xiju/2909346.htm)
+- [昆明4.3级地震有房屋破损](http://www.daogukj.com/7785768)
+- [如何看待《红楼梦》里贾迎春这个角色？](http://www.daogukj.com/1079050)
+- [祝福祖国！天安门广场举行国庆升旗仪式](http://www.daogukj.com/cfcdbnes/)
+- [胖东来员工明年3月起每周双休](http://www.movie.hkepx.cn/xiju/5548290.htm)
+- [韦小宝为什么能忽悠住《鹿鼎记》里的各色人等？](http://www.movie.hkepx.cn/movie/6459598.htm)
+- [农民交公粮能否视同缴社保](http://www.movie.hkepx.cn/movie/8145475.htm)
+- [男子用土豆当主食半年瘦25斤](http://www.movie.hkepx.cn/movie/6792790.htm)
+- [从哀牢山事故到甘肃越野赛事故，失温是如何让人彻底失能并走向死亡的？](http://www.movie.hkepx.cn/xiju/5785622.htm)
+- [这种大大方方真的招人喜欢](http://www.play.hengshemaoyi.cn/xiju/0943328.htm)
+- [“摸金”攻占中小学校园](http://www.daogukj.com/6160997)
+- [女子父亲突然离世邻居1分钟赶到帮忙](http://www.play.hengshemaoyi.cn/kongbu/9533347.htm)
+- [媒体人曝前 NBA 全明星丹吉洛-拉塞尔加盟 CBA 上海男篮，对此你怎么看？](http://www.daogukj.com/6158458)
 - [小龙虾的谣言别再信了](http://www.daogukj.com/vgxpewvp/)
-- [跟我一起在农场度过一天](http://www.play.hengshemaoyi.cn/xiju/6603798.htm)
-- [赌王之女何超琼称遭骚扰恐吓](http://www.daogukj.com/3242581)
-- [鸿蒙装机量突破 9000 万台，预计年底破亿，对移动操作系统格局有何影响？](http://www.play.hengshemaoyi.cn/xiju/5213102.htm)
-- [兄弟如手足](http://www.play.hengshemaoyi.cn/xiju/3584736.htm)
-- [单人手搓F站！第一天就把自己干崩溃了...](http://www.daogukj.com/sqzoiroq/)
-- [学 以 乱 用](http://www.daogukj.com/9537822)
-- [为什么仅凭这一个镜头，就让绝命毒师夯爆了](http://www.movie.hkepx.cn/xiju/6723827.htm)
-- [孙中山在全世界华人中的地位，凭什么那么高？【历史调研室107】](http://www.daogukj.com/3855937)
-- [买房还是租房先算清这笔账](http://www.play.hengshemaoyi.cn/kongbu/9163230.htm)
-- [《火影忍者》中的我爱罗出场强得不行，后期为什么感觉变弱了？](http://www.movie.hkepx.cn/xiju/5655654.htm)
-- [张本智和被文春爆出私下频繁搭讪女性，酒后会爆粗，是真的吗？具体是咋回事？](http://www.movie.hkepx.cn/movie/8750130.htm)
-- [“摸金”攻占中小学校园](http://www.movie.hkepx.cn/xiju/2707701.htm)
-- [国庆节](http://www.movie.hkepx.cn/movie/1592539.htm)
-- [“柳条人年年立起，没人记得这火燃了几世”](http://www.movie.hkepx.cn/movie/4182339.htm)
-- [为啥到底谁是中上985，谁是中下985，吵得不可开交，但几乎没人吵谁是中上211，谁是中下211？](http://www.movie.hkepx.cn/movie/9304746.htm)
+- [如何评价博主星无创作的情景喜剧《是，魏王》？](http://www.play.hengshemaoyi.cn/xiju/6603798.htm)
+- [孙中山在全世界华人中的地位，凭什么那么高？【历史调研室107】](http://www.daogukj.com/3242581)
+- [为什么GPT-6 Astra玩《我的世界》被炸毁进度后连续数小时种植土豆？这种异常行为怎么产生的？](http://www.play.hengshemaoyi.cn/xiju/5213102.htm)
+- [飞天奖提名名单](http://www.play.hengshemaoyi.cn/xiju/3584736.htm)
+- [《大回忆时代》](http://www.daogukj.com/sqzoiroq/)
+- [鳄鱼 我的世界](http://www.daogukj.com/9537822)
+- [【起名TV】给我孩子起叫“爆笑小朋友”是几个意思？？？](http://www.movie.hkepx.cn/xiju/6723827.htm)
+- [这是国庆的北京](http://www.daogukj.com/3855937)
+- [将最强战绩铭刻于今夜！！160究忍具全毕业达成！拉满五星A忍篮球佐助实战测评！](http://www.play.hengshemaoyi.cn/kongbu/9163230.htm)
+- [饮用无醇啤酒不会构成酒驾？假的](http://www.movie.hkepx.cn/xiju/5655654.htm)
+- [国庆文案](http://www.movie.hkepx.cn/movie/8750130.htm)
+- [伊朗女歌手演出不戴头巾遭判笞刑74鞭](http://www.movie.hkepx.cn/xiju/2707701.htm)
+- [天安门广场国庆升旗仪式完整版](http://www.movie.hkepx.cn/movie/1592539.htm)
+- [学 以 乱 用](http://www.movie.hkepx.cn/movie/4182339.htm)
+- [为什么酒精灯里酒精不用100%浓度而是用95%浓度？](http://www.movie.hkepx.cn/movie/9304746.htm)
 - [国庆畅游千里江山领略家国之美](http://www.movie.hkepx.cn/xiju/4345913.htm)
-- [女子进矿山工作六年被亲戚羡慕](http://www.daogukj.com/4645764)
+- [第五人格中国队摘金](http://www.daogukj.com/4645764)
 - [少年儿童高唱我们是共产主义接班人](http://www.play.hengshemaoyi.cn/kongbu/0822089.htm)
-- [中国体育代表团151金67银59铜](http://www.movie.hkepx.cn/movie/5783118.htm)
-- [解放军为何再次亮剑黄岩岛](http://www.daogukj.com/lwnrprkt/)
-- [飞天奖提名名单](http://www.play.hengshemaoyi.cn/kongbu/5185531.htm)
-- [曾风靡全国的五笔为什么逐渐被拼音输入法取代了？](http://www.movie.hkepx.cn/movie/2979840.htm)
-- [华为 赛力斯](http://www.play.hengshemaoyi.cn/xiju/1695379.htm)
-- [英国首相：希望有生之年重入欧盟](http://www.movie.hkepx.cn/movie/2967061.htm)
-- [内蒙古野生卤虫，真红啊！](http://www.daogukj.com/bhbjtzul/)
-- [成都大学一学院党委书记被免职](http://www.movie.hkepx.cn/xiju/2010354.htm)
+- [如何看待南开大学两位教授胡金牛、陈璟因「实诚」简介再次走红？](http://www.movie.hkepx.cn/movie/5783118.htm)
+- [90后，00的童年的含金量还在一步步提升](http://www.daogukj.com/lwnrprkt/)
+- [天安门放飞10000多只和平鸽](http://www.play.hengshemaoyi.cn/kongbu/5185531.htm)
+- [解放军22架艘次军机舰船位台岛周边活动](http://www.movie.hkepx.cn/movie/2979840.htm)
+- [体制内的饭局基本消失了](http://www.play.hengshemaoyi.cn/xiju/1695379.htm)
+- [扎哈罗娃用中文祝中国人民国庆快乐](http://www.movie.hkepx.cn/movie/2967061.htm)
+- [什么叫勇者跟被救的公主二阶段打起来了？](http://www.daogukj.com/bhbjtzul/)
+- [唐湘龙：两岸统一已在有序进行中](http://www.movie.hkepx.cn/xiju/2010354.htm)
 
 </details>
 
 ## 原始来源
 
-- [马斯克称人人都会有全民高收入](https://s.weibo.com/weibo?q=%E9%A9%AC%E6%96%AF%E5%85%8B%E7%A7%B0%E4%BA%BA%E4%BA%BA%E9%83%BD%E4%BC%9A%E6%9C%89%E5%85%A8%E6%B0%91%E9%AB%98%E6%94%B6%E5%85%A5)
+- [华为 赛力斯](https://s.weibo.com/weibo?q=%E5%8D%8E%E4%B8%BA%20%E8%B5%9B%E5%8A%9B%E6%96%AF)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 59b9e88c861ef7c3473d -->
+<!-- content-fingerprint: 9fe89a2c418454454cca -->
