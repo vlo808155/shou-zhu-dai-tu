@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 风声1
+# 手绘465张！One Last Kiss【EVA30周年回忆重逢计划】
 
-> 来源：哔哩哔哩热门 · 排名：第 5 位 · 热度：537922 · 分类：小剧场 · 更新：2026-09-30T07:37:40+08:00
+> 来源：哔哩哔哩热门 · 排名：第 5 位 · 热度：1225902 · 分类：绘画 · 更新：2026-09-30T10:23:00+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“风声1”位列第 5 位，公开热度指标为 537922，榜单分类为“小剧场”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“手绘465张！One Last Kiss【EVA30周年回忆重逢计划】”位列第 5 位，公开热度指标为 1225902，榜单分类为“绘画”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：-
+来源公开摘要显示：感谢观看(๑°3°๑) 耗时23天 手绘465张 Bgm One Last Kiss (动画电影《新世纪福音战士新剧场版：终》主题曲)宇多田ヒカル
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `小剧场`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `绘画`
 
 ## 相关热点
 
-- [中国海警同日公布两段重要画面](bei-shui-yi-zhan.md)
-- [小巷人家 陪跑](zhi-shang-tan-bing.md)
-- [谁能享受房贷贴息](wei-wei-jiu-zhao.md)
-- [如何评价OpenAI发布的GPT-6.1 Sol？](wan-bi-gui-zhao.md)
+- [小孩姐陈妤颉赛后凡尔赛：我真牛啊](bei-shui-yi-zhan.md)
+- [博主嘻嘻徐宝胃癌去世年仅26岁](zhi-shang-tan-bing.md)
+- [老板心疼加班员工要为其出8.8万彩礼](wei-wei-jiu-zhao.md)
+- [醉酒男子打车多次要求中途下车后溺亡，家属向司机平台索赔30万被驳回，如何解读这一判决？](wan-bi-gui-zhao.md)
 
 ## 站内推荐
 
-- [手机的研究](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [《善》善良是什么](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [老人报警丢4万民警找出23万](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [新华社评国乒亚运憾失一金](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [星舰溅落时发生剧烈爆炸](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [【无聊的开箱】能装进口袋的性能怪兽！iQOO Pad Ultra上手开箱！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [你管这叫只会一点点？？？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [“柳条人年年立起，没人记得这火燃了几世”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [究竟是四神树还是四废树？一期视频带你全面了解暮色四圣树的全部知识](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [为什么进化中，没有将妊娠和哺乳工作分配给两性，而都由雌性进行？](http://www.daogukj.com/1823488)
-- [交警称没牵绳的狗一律按野狗处理](http://www.play.hengshemaoyi.cn/xiju/5320894.htm)
-- [曾风靡全国的五笔为什么逐渐被拼音输入法取代了？](http://www.movie.hkepx.cn/xiju/9086289.htm)
-- [陈妤颉：我真牛啊 下个目标高考加油](http://www.daogukj.com/cskdtjca/)
-- [中国海警同日公布两段重要画面](http://www.movie.hkepx.cn/movie/5197885.htm)
-- [芒果的策划又封神了](http://www.daogukj.com/9392657)
-- [陈梦福原爱时隔13年再度交手](http://www.movie.hkepx.cn/movie/8565414.htm)
-- [东京奥运前夕，张家齐母亲写了一封满是训诫内容的家书，但教练没有把家书给张家齐，怎样看待教练的做法？](http://www.daogukj.com/6051164)
-- [怎么看 OpenAI 正式官宣 200 美元订阅用量减半？](http://www.daogukj.com/6679975)
-- [《坦克模拟器-增强版》](http://www.daogukj.com/2695648)
-- [中国人一放假全世界都知道](http://www.play.hengshemaoyi.cn/xiju/3099726.htm)
-- [赵丽颖身体到底怎么了](http://www.movie.hkepx.cn/movie/7889816.htm)
-- [陈妤颉最后一棒上演惊天逆转](http://www.play.hengshemaoyi.cn/xiju/3571483.htm)
-- [电竞将退出亚运会？不实](http://www.play.hengshemaoyi.cn/kongbu/9465250.htm)
-- [朱亚文获金鹰最佳男配宋佳哭了](http://www.movie.hkepx.cn/xiju/2970345.htm)
-- [如何看待张继科评男单最强三人「横板是樊振东、马龙和我，直板也是我们三个 」？你心目中男单前三选手有谁？](http://www.daogukj.com/7120405)
-- [充电器忘拔烧毁整个家](http://www.play.hengshemaoyi.cn/xiju/4113560.htm)
-- [如何评价OpenAI发布的GPT-6.1 Sol？](http://www.daogukj.com/jzelussd/)
-- [怀疑豹子穿旱冰鞋都没怀疑是行李箱](http://www.daogukj.com/ajlcnxcx/)
+- [闫妮又在金鹰奖微醺上了](http://www.daogukj.com/1823488)
+- [国庆住酒店，你有哪些屡试不爽的省钱经验？](http://www.play.hengshemaoyi.cn/xiju/5320894.htm)
+- [金价半小时下跌50元顾客急坏了](http://www.movie.hkepx.cn/xiju/9086289.htm)
+- [陈妤颉：3金1银我真牛啊](http://www.daogukj.com/cskdtjca/)
+- [小孩姐陈妤颉赛后凡尔赛：我真牛啊](http://www.movie.hkepx.cn/movie/5197885.htm)
+- [董子健看孙怡获奖的眼神](http://www.daogukj.com/9392657)
+- [此刻是他们不曾到达的天明](http://www.movie.hkepx.cn/movie/8565414.htm)
+- [Faker亚运会首秀](http://www.daogukj.com/6051164)
+- [安徽马鞍山和县发生地震？假的](http://www.daogukj.com/6679975)
+- [中国男足亚运队冲击决赛](http://www.daogukj.com/2695648)
+- [问我有没有对女人动过心？](http://www.play.hengshemaoyi.cn/xiju/3099726.htm)
+- [江西师范迎新晚会女老师酷似刘亦菲](http://www.movie.hkepx.cn/movie/7889816.htm)
+- [金鹰奖最佳男女配角双双爆冷](http://www.play.hengshemaoyi.cn/xiju/3571483.htm)
+- [妙瓦底电诈园区公开招募成员](http://www.play.hengshemaoyi.cn/kongbu/9465250.htm)
+- [水谷隼：中国男乒实力整体下滑](http://www.movie.hkepx.cn/xiju/2970345.htm)
+- [如何评价DeepSeek Harness桌面版正式发布？](http://www.daogukj.com/7120405)
+- [8.59 元香菜遭「仅退款」，商家驱车千里跨省讨回，如何评价？电商商家维权成本这么高，症结在哪？](http://www.play.hengshemaoyi.cn/xiju/4113560.htm)
+- [醉酒男子打车多次要求中途下车后溺亡，家属向司机平台索赔30万被驳回，如何解读这一判决？](http://www.daogukj.com/jzelussd/)
+- [风声1](http://www.daogukj.com/ajlcnxcx/)
 - [山河永念 我们从未忘记](http://www.daogukj.com/0152970)
-- [60厘米超长蛋挞被集中吐槽](http://www.movie.hkepx.cn/movie/9056597.htm)
-- [于和伟2026已经拿了三个最佳男主了](http://www.play.hengshemaoyi.cn/xiju/9731004.htm)
-- [买新房贷款超一百万可获一万补贴](http://www.movie.hkepx.cn/xiju/1868267.htm)
-- [“柳条人年年立起，没人记得这火燃了几世”](http://www.play.hengshemaoyi.cn/xiju/1299773.htm)
-- [深蓝董事长称车载冰箱使用率 5%，娱乐屏全年使用不足10次，这些配置真的鸡肋吗？那为啥行业在狂卷配置？](http://www.daogukj.com/onyieegy/)
-- [特朗普评中美会晤：满分10分我打12分](http://www.play.hengshemaoyi.cn/xiju/0532528.htm)
-- [你管这叫只会一点点？？？](http://www.movie.hkepx.cn/movie/0256063.htm)
-- [乡村豪宅越来越多说明什么](http://www.movie.hkepx.cn/movie/9918247.htm)
-- [李想回应“去XX化”争议](http://www.movie.hkepx.cn/movie/8593083.htm)
-- [水谷隼：中国男乒实力整体下滑](http://www.movie.hkepx.cn/movie/0122390.htm)
-- [房贷贴息](http://www.movie.hkepx.cn/movie/7943713.htm)
-- [国庆住酒店，你有哪些屡试不爽的省钱经验？](http://www.play.hengshemaoyi.cn/kongbu/5001053.htm)
-- [最强厄尔尼诺将影响我国秋冬](http://www.daogukj.com/qcrvnclj/)
-- [乾隆的诗哪里不好？文笔还都不错的呀，并且他这种高产性作诗还体现出了他作为一名帝王的自律，哪里不好啊？](http://www.daogukj.com/hwjdrvyl/)
-- [瑞幸2个月内两次联名惹争议](http://www.movie.hkepx.cn/xiju/3504908.htm)
-- [那英演唱会加唱《弯弯的月亮》致敬刘欢，有媒体质疑报批未过，官方称不属于变更节目，这一标准是怎么划定的？](http://www.daogukj.com/lfqwqkoe/)
-- [如何看待江苏高考接近满分记叙文《衬衫的价格为 9 镑 15 便士》火了，为啥会引发大家的共鸣？](http://www.daogukj.com/6505376)
-- [小米澎程N90：这种车我真的开够了！！](http://www.daogukj.com/mdqmkfar/)
-- [第一视角带你沉浸式体验修家电师傅的一天](http://www.play.hengshemaoyi.cn/kongbu/2415448.htm)
-- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](http://www.movie.hkepx.cn/xiju/3998678.htm)
-- [泰国洪灾大量蛇和鳄鱼出现在街道](http://www.movie.hkepx.cn/movie/6743699.htm)
+- [《善》善良是什么](http://www.movie.hkepx.cn/movie/9056597.htm)
+- [泰国洪灾大量蛇和鳄鱼出现在街道](http://www.play.hengshemaoyi.cn/xiju/9731004.htm)
+- [康奈尔大学禁止遭轮奸女生离校治疗](http://www.movie.hkepx.cn/xiju/1868267.htm)
+- [于和伟、宋佳分封视帝、视后，如何评价第 33 届中国电视金鹰奖获奖名单？](http://www.play.hengshemaoyi.cn/xiju/1299773.htm)
+- [博主：张雪干出了机车界的胖东来](http://www.daogukj.com/onyieegy/)
+- [北京办抓“毛毛虫”大赛 2天抓7万条](http://www.play.hengshemaoyi.cn/xiju/0532528.htm)
+- [伊朗队主教练问王楚钦怎么看伊朗队](http://www.movie.hkepx.cn/movie/0256063.htm)
+- [女生遭轮奸美国名校拒公布嫌犯身份](http://www.movie.hkepx.cn/movie/9918247.htm)
+- [【矢量突破#3】拟生态全关卡 摆完挂机 简单好抄 核心突破/特别战线](http://www.movie.hkepx.cn/movie/8593083.htm)
+- [特朗普评中美会晤：满分10分我打12分](http://www.movie.hkepx.cn/movie/0122390.htm)
+- [烈士纪念日向人民英雄敬献花篮](http://www.movie.hkepx.cn/movie/7943713.htm)
+- [游本昌孙女现身追悼会现场](http://www.play.hengshemaoyi.cn/kongbu/5001053.htm)
+- [东航回应网传空姐跪地道歉](http://www.daogukj.com/qcrvnclj/)
+- [金鹰奖获奖名单](http://www.daogukj.com/hwjdrvyl/)
+- [25岁抗癌博主去世 常熬夜12点到2点](http://www.movie.hkepx.cn/xiju/3504908.htm)
+- [怎么看小米大模型负责人罗福莉晋升至 22 级？](http://www.daogukj.com/lfqwqkoe/)
+- [居民房贷贴息政策10月1日起实施，年化贴息1%、最长补贴5年，限定房价150万以内，哪些信息值得关注？](http://www.daogukj.com/6505376)
+- [参数天花乱坠，实测原形毕露！12款热门空气炸锅，谁是不虚标实力派？](http://www.daogukj.com/mdqmkfar/)
+- [王毅：日本若不汲取历史教训难有未来](http://www.play.hengshemaoyi.cn/kongbu/2415448.htm)
+- [这个量筒里到底有几毫升水？别笑，你也答不上来！](http://www.movie.hkepx.cn/xiju/3998678.htm)
+- [专是专本是本，而我专升本](http://www.movie.hkepx.cn/movie/6743699.htm)
 - [人民英雄 永垂不朽](http://www.daogukj.com/xgmimokd/)
-- [刘学义不认识杨迪何炅](http://www.play.hengshemaoyi.cn/xiju/7200927.htm)
-- [为什么越来越多人不愿交物业费了](http://www.daogukj.com/0557862)
-- [张家齐妈妈说不能和男孩子开玩笑](http://www.play.hengshemaoyi.cn/kongbu/0604765.htm)
-- [溶洞里动植物鲜活的秘密，藏着好空气的标准](http://www.movie.hkepx.cn/movie/8247300.htm)
-- [子怡一枪打破亚洲记录亚运会标枪夺冠！](http://www.daogukj.com/jcieinjo/)
+- [《坦克模拟器-增强版》](http://www.play.hengshemaoyi.cn/xiju/7200927.htm)
+- [张国荣遗作《爱情小孩》将亮相](http://www.daogukj.com/0557862)
+- [弹力袜是静脉曲张治疗神器？系夸大](http://www.play.hengshemaoyi.cn/kongbu/0604765.htm)
+- [英超确认曼城9个赛季间违反财务规则指控全部成立，累计虚报收入超9亿英镑，曼城可能会面临怎样的处罚？](http://www.movie.hkepx.cn/movie/8247300.htm)
+- [杨紫金鹰奖被cue清唱《好运来》](http://www.daogukj.com/jcieinjo/)
 - [艺术斗法](http://www.daogukj.com/1895577)
-- [李现单膝跪地给李一桐拍照](http://www.play.hengshemaoyi.cn/kongbu/4995743.htm)
-- [10月起 这些新规将影响你我生活](http://www.play.hengshemaoyi.cn/xiju/5777989.htm)
+- [奥地利军力一直挺拉胯，凭什么一直是欧洲大国，列强之一？](http://www.play.hengshemaoyi.cn/kongbu/4995743.htm)
+- [这股冷空气到底有多猛](http://www.play.hengshemaoyi.cn/xiju/5777989.htm)
 
 </details>
 
 ## 原始来源
 
-- [风声1](https://b23.tv/BV1iJap66E7D)
+- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](https://b23.tv/BV1i4aL6QEYX)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 261254179f8faa815621 -->
+<!-- content-fingerprint: 7dea4378c8d98f49f912 -->
