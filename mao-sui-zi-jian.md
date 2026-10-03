@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 朝鲜：永远关闭南部边境避免接触韩国
+# 一家三口吃清洗过的鸡蛋后集体中毒
 
-> 来源：百度热搜 · 排名：第 6 位 · 热度：7235068 · 更新：2026-10-03T09:54:52+08:00
+> 来源：百度热搜 · 排名：第 6 位 · 热度：7234916 · 更新：2026-10-03T15:47:47+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“朝鲜：永远关闭南部边境避免接触韩国”位列第 6 位，公开热度指标为 7235068。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“一家三口吃清洗过的鸡蛋后集体中毒”位列第 6 位，公开热度指标为 7234916。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：当地时间10月2日，金与正表示，地雷爆炸事件是韩方“自编自演的新闹剧”，朝鲜正在进行的南部边境要塞化工程，其目的在于“永远关闭边境来避免同韩国的任何接触”。此前，韩国军方在韩朝军事分界线附近执行任务过程中，发生疑似地雷爆炸事故，韩国总统李在明要求军方迅速查明真相。
+来源公开摘要显示：9月7日，湖北省农科院专家回应“沈阳一家三口吃水洗鸡蛋中毒”事件。此前，沈阳一家三口食用炒鸡蛋后集体中毒，诱因系鸡蛋保存前被水洗。专家解释，水洗会破坏蛋壳胶状保护膜，致微生物趁虚而入加速变质。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [许兰香早就看懂了大太太暗示](san-gu-mao-lu.md)
-- [邵佳一：从未经历如此苦涩的失利](cao-mu-jie-bing.md)
-- [你们在山东碰到「鱼头酒」的问题了吗？](feng-sheng-he-li.md)
-- [【短的发布会】史诗级外挂？！华为Mate90系列携手睿影Z10打造华为大炮](ru-huo-ru-tu.md)
+- [香港名媛碎尸案蔡天凤手机仍未找到](san-gu-mao-lu.md)
+- [董路：国足踢日本可能要输0比15](cao-mu-jie-bing.md)
+- [2026 年国庆档总票房破 4 亿，陈思诚《神探之痕迹》领跑，你更看好哪部电影？](feng-sheng-he-li.md)
+- [【水手】|“低山臭水遇知音 末法时代双子星”|【双子星の小曲】](ru-huo-ru-tu.md)
 
 ## 站内推荐
 
-- [中国男足争亚运铜牌](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [韩国“梦之队”完败给中国队](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [布云朝克特回应主场似客场](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [15万人广场上她把孩子交给女警](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [黄河“鸳鸯锅”出圈](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [自驾回家车主：回程或要弃车打飞的](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [王钰栋一条龙世界波](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [现在的酒店为什么都不查房了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [这些信号是肺部发出的预警](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [孙千衬衫开口Luke2.0](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [C罗疑点赞两国家队传奇待遇差距](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
-- [田馥甄现在讲话要非常小心](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
-- [邵佳一 生涯最大失利](http://www.daogukj.com/hiiwohqb/)
-- [博主：俄乌冲突再升级](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
-- [电视剧 婚恋观](http://www.daogukj.com/2806482)
-- [“这是国际社会前所未闻的恶性事件”](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
-- [巴勒斯坦主帅来自加沙地带](http://www.daogukj.com/9832220)
-- [静态体验方程豹钛9](http://www.movie.hkepx.cn/xiju/4624070.htm)
-- [如何用5分钟让听日语歌的和唱中文歌的都沉默☝️](http://www.movie.hkepx.cn/movie/0841033.htm)
-- [陈楚生陈昊宇 认识了大概有36个小时](http://www.movie.hkepx.cn/movie/4609262.htm)
-- [2.4米防拆丝带能救女装吗](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
-- [国庆买金变了](http://www.daogukj.com/1127111)
-- [获3金1银陈妤颉说回去要补高中课程](http://www.daogukj.com/pldvwggd/)
-- [多部门多措并举保障国庆公路出行](http://www.movie.hkepx.cn/xiju/1287269.htm)
-- [邵佳一：从未经历如此苦涩的失利](http://www.daogukj.com/unklghpc/)
-- [王楚钦说要重新考虑接下来的路](http://www.daogukj.com/4404570)
-- [黄河“鸳鸯锅”出圈](http://www.daogukj.com/wfqplasc/)
-- [芙芙来啦~(｡♥‿♥｡)！](http://www.daogukj.com/grgritvr/)
-- [真正A8是净资产超千万](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
-- [【水手】|“低山臭水遇知音 末法时代双子星”|【双子星の小曲】](http://www.movie.hkepx.cn/movie/3539496.htm)
-- [你敢信？我在太平洋赶海竟然发现上百斤重的巨型砗磲！这么大的家伙，吃起来什么味道？](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
-- [男童父亲已与老板商量雨棚赔偿事宜](http://www.movie.hkepx.cn/xiju/3922759.htm)
-- [【亿万级特效！】猫核老鼠：量子网球对决！（全程高能！）](http://www.daogukj.com/ynpujsgi/)
-- [为什么王祖贤、吴彦祖、陈冠希这些淡出演艺圈的明星，最近又活跃起来了？是北美华人圈出了什么事吗？](http://www.movie.hkepx.cn/movie/2603972.htm)
-- [C罗官宣离队后葡萄牙队掉粉超百万](http://www.daogukj.com/9238608)
-- [美国9月非农就业人数增加2.9万人，大幅低于预期，对美联储决策和全球市场有何影响？](http://www.daogukj.com/xdtzeasn/)
-- [万里边关 同升五星红旗](http://www.daogukj.com/2229169)
-- [汉大帮高育良的外甥女陆亦可为什么被大家厌恶？她和侯亮平是一类人吗？](http://www.daogukj.com/pnnlzznp/)
-- [莫氏鸡煲总店员工从180人减至30多人，国庆假期上座率仅六成，为啥网红餐厅总难逃流量暴跌的命运？](http://www.movie.hkepx.cn/movie/1141317.htm)
-- [CFA 友谊赛，中国男足 0-5 巴勒斯坦，如何评价本场比赛？](http://www.daogukj.com/3669738)
-- [一抹中国红 见证跨越时代的奔赴](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
+- [苹果回应iPhone18ProMax故障](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
+- [EDG zmjjkk](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
+- [飞十几个小时落地听到的都是中国话](http://www.daogukj.com/hiiwohqb/)
+- [国足开球踢给巴勒斯坦 解说懵圈](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
+- [国足连自我尊重都不愿意很可怕](http://www.daogukj.com/2806482)
+- [港股两天体验别人十年大起大落](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
+- [国足0比5输巴勒斯坦是能力问题吗](http://www.daogukj.com/9832220)
+- [敦煌鸣沙山游客坐满整座山](http://www.movie.hkepx.cn/xiju/4624070.htm)
+- [4名枪匪闯入豪宅，中国男子4秒13枪疯狂反击！](http://www.movie.hkepx.cn/movie/0841033.htm)
+- [小沈阳夫妇逆袭成国庆档票房黑马](http://www.movie.hkepx.cn/movie/4609262.htm)
+- [新华社：留给中国女足的时间不多了](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
+- [新华社评国足0比5输巴勒斯坦](http://www.daogukj.com/1127111)
+- [普京称西方直接卷入对俄战争](http://www.daogukj.com/pldvwggd/)
+- [国庆商圈大屏礼赞时代脊梁](http://www.movie.hkepx.cn/xiju/1287269.htm)
+- [董路：国足踢日本可能要输0比15](http://www.daogukj.com/unklghpc/)
+- [排队买60厘米长的蛋挞买的到底是什么](http://www.daogukj.com/4404570)
+- [孙千衬衫开口Luke2.0](http://www.daogukj.com/wfqplasc/)
+- [如何用5分钟让听日语歌的和唱中文歌的都沉默☝️](http://www.daogukj.com/grgritvr/)
+- [田馥甄曾因立场争议作品下架](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
+- [《明日方舟》SideStory「昨日海」活动宣传PV](http://www.movie.hkepx.cn/movie/3539496.htm)
+- [小沈阳夫妇 国庆档黑马](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
+- [兰香如故南客求娶小莲](http://www.movie.hkepx.cn/xiju/3922759.htm)
+- [谢谢你成为我的太阳……](http://www.daogukj.com/ynpujsgi/)
+- [逻辑折叠深度解析！华为Mate 90系列韬定律芯片有多强？](http://www.movie.hkepx.cn/movie/2603972.htm)
+- [网友质疑国足0比5惨败却让17岁小将赵松源接受采访，如何看待这种安排？是有意为之吗？](http://www.daogukj.com/9238608)
+- [如何评价极客湾最新视频《逻辑折叠深度解析！华为Mate 90系列韬定律芯片有多强？》？](http://www.daogukj.com/xdtzeasn/)
+- [游客眼里的中国范儿](http://www.daogukj.com/2229169)
+- [77年前的今天 新中国成立了](http://www.daogukj.com/pnnlzznp/)
+- [你是否曾因为一个很小、很具体的念头，专程去过一个地方？](http://www.movie.hkepx.cn/movie/1141317.htm)
+- [新能源车事故维修平均费用达燃油车 1.7 倍，电车「修不起」的根本原因是什么？车主的用车成本该怎么算？](http://www.daogukj.com/3669738)
+- [万亿级车轮经济跑出新动能](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
 - [四川一公司国庆节不放假？不实](http://www.movie.hkepx.cn/xiju/8333303.htm)
-- [【短的发布会】史诗级外挂？！华为Mate90系列携手睿影Z10打造华为大炮](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
-- [王一博陈都灵大秀同框](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
-- [蔡天凤失踪前曾致电多人](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
-- [韩国“梦之队”完败给中国队](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
-- [韩媒：中国男足这样还能进世界杯吗](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
-- [这些涉及假期的网传信息都是假的](http://www.movie.hkepx.cn/movie/7218961.htm)
+- [【水手】|“低山臭水遇知音 末法时代双子星”|【双子星の小曲】](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
+- [陈思诚回应陈飞宇拼爹台词](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
+- [原来出餐快也不一定就是预制菜](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
+- [王钰栋一条龙世界波](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
+- [徐明浩 范丞丞](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
+- [四川一公司国庆节不放假被举报不实](http://www.movie.hkepx.cn/movie/7218961.htm)
 - [【纪录片】威尔史密斯的极地纵横 01 南极探险](http://www.movie.hkepx.cn/xiju/0034458.htm)
-- [江秋莲官司八年变公诉案件](http://www.movie.hkepx.cn/movie/1373526.htm)
-- [沈腾李小冉也没戏拍了吗](http://www.movie.hkepx.cn/movie/8174344.htm)
-- [俄军失守乌东重镇红利曼](http://www.movie.hkepx.cn/xiju/7049500.htm)
-- [国足踢完5场热身赛已少4.37积分](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
-- [女子查出癌症花光积蓄旅游肿瘤变小](http://www.daogukj.com/1670030)
-- [中国的AI短剧发展得如火如荼，而国外AI短剧却没怎么发展起来，是什么原因？](http://www.daogukj.com/4917906)
-- [我的东京留学生活不可能那么二次元！【AI全民制作人】](http://www.daogukj.com/jjbeajdp/)
-- [王一博连官方直播都无法近身](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
-- [刺伤迪拜航空机长的副驾驶身份披露](http://www.daogukj.com/2644309)
-- [马斯克与高管女友分手 两人育有4孩](http://www.daogukj.com/2520362)
-- [C罗风波中谁责任最大](http://www.daogukj.com/4354347)
+- [国足想通过比赛找信心没想反崩了盘](http://www.movie.hkepx.cn/movie/1373526.htm)
+- [中国U23国足vs乌兹别克斯坦U23](http://www.movie.hkepx.cn/movie/8174344.htm)
+- [台媒：“台独”是统一最大障碍](http://www.movie.hkepx.cn/xiju/7049500.htm)
+- [新华社：0:5给中国足球的又一记警钟](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
+- [陪看：中国男足争亚运铜牌](http://www.daogukj.com/1670030)
+- [《给阿嬷的情书》院线下映，累计票房20.05亿，观影人次5881.9万，如何评价这一成绩？](http://www.daogukj.com/4917906)
+- [男子砍毛竹被刺一下 确诊“七日疯”](http://www.daogukj.com/jjbeajdp/)
+- [《重生2》会是国庆档最大黑马吗](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
+- [一座商场挤停了一个地铁站](http://www.daogukj.com/2644309)
+- [你们在山东碰到「鱼头酒」的问题了吗？](http://www.daogukj.com/2520362)
+- [朝鲜：永远关闭南部边境避免接触韩国](http://www.daogukj.com/4354347)
 
 </details>
 
 ## 原始来源
 
-- [朝鲜：永远关闭南部边境避免接触韩国](https://www.baidu.com/s?wd=%E6%9C%9D%E9%B2%9C%EF%BC%9A%E6%B0%B8%E8%BF%9C%E5%85%B3%E9%97%AD%E5%8D%97%E9%83%A8%E8%BE%B9%E5%A2%83%E9%81%BF%E5%85%8D%E6%8E%A5%E8%A7%A6%E9%9F%A9%E5%9B%BD&sa=fyb_news&rsv_dl=fyb_news)
+- [一家三口吃清洗过的鸡蛋后集体中毒](https://www.baidu.com/s?wd=%E4%B8%80%E5%AE%B6%E4%B8%89%E5%8F%A3%E5%90%83%E6%B8%85%E6%B4%97%E8%BF%87%E7%9A%84%E9%B8%A1%E8%9B%8B%E5%90%8E%E9%9B%86%E4%BD%93%E4%B8%AD%E6%AF%92&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: aac949c8df6bf63beedc -->
+<!-- content-fingerprint: 96b7bb0df885afb702aa -->
