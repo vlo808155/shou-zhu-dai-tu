@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 葡萄牙官方晒B费谈C罗视频
+# 徐良演唱会救活了即将倒闭的面包厂
 
-> 来源：微博热搜 · 排名：第 6 位 · 热度：280806 · 分类：体育 · 更新：2026-10-04T09:55:04+08:00
+> 来源：百度热搜 · 排名：第 5 位 · 热度：7330845 · 更新：2026-10-04T15:56:40+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“葡萄牙官方晒B费谈C罗视频”位列第 6 位，公开热度指标为 280806，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“徐良演唱会救活了即将倒闭的面包厂”位列第 5 位，公开热度指标为 7330845。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：目前，徐良巡回演唱会正火热开演，团队大批量采购毛毛虫面包与泡泡机作伴手礼，意外盘活两家濒临倒闭的工厂。此前，上述面包厂与泡泡机工厂均经营困顿，面临关门。靠着演唱会巨额订单，两家工厂顺利渡过难关。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `体育`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [巴勒斯坦球员向国足致歉](zhi-shang-tan-bing.md)
-- [如何看待巴勒斯坦球员因一个拇指向下的争议手势向国足道歉，澄清并无不敬之意？](wei-wei-jiu-zhao.md)
-- [我的世界 但你能「吞噬数字」？？！](wan-bi-gui-zhao.md)
-- [闭幕式中国旗手 毕焜](fu-jing-qing-zui.md)
+- [如何看王楚钦3银成绩登海报引热议](zhi-shang-tan-bing.md)
+- [巴勒斯坦球员向国足致歉](wei-wei-jiu-zhao.md)
+- [如何看待巴勒斯坦球员因一个拇指向下的争议手势向国足道歉，澄清并无不敬之意？](wan-bi-gui-zhao.md)
+- [善良的爷爷与画钱的小孩](fu-jing-qing-zui.md)
 
 ## 站内推荐
 
-- [小沈阳夫妇电影为何能实现票房逆袭](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [莫德里奇称首次感到羞愧](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [内耗小姐和万能先生](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [丰田8月全球销量为何下降](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [有没有人一生坚持只做一份工作不跳槽的？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [这趟绿皮车1年亏400多万元为何还开](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [韩国网友不满亚运夺金免兵役](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [王祖贤大粉脱粉](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [金冬天 田柾国](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [台湾“九合一”选举投票日临近](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何评价亚运会中国代表团169金89银83铜收官，创境外参加亚运会最佳战绩？有哪些项目发挥关键作用？](http://www.play.hengshemaoyi.cn/kongbu/0102137.htm)
-- [今天带小沈阳自律！](http://www.movie.hkepx.cn/xiju/5709027.htm)
+- [男足亚运摘铜登上《新闻联播》](http://www.play.hengshemaoyi.cn/kongbu/0102137.htm)
+- [如何评价上海一音乐教师赴泰后失联多日，手机 IP 曾显示在缅甸？目前情况如何？](http://www.movie.hkepx.cn/xiju/5709027.htm)
 - [有用版新植物：空调寒冰](http://www.daogukj.com/ptmfwdkn/)
-- [国庆“杭州落地签”火了](http://www.movie.hkepx.cn/xiju/7509997.htm)
-- [亚运会夺奖牌回家也躲不过掰苞米](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
-- [亚运会海报 王楚钦](http://www.movie.hkepx.cn/xiju/7276031.htm)
-- [如果我们发不了CNS这种正刊，我们普通的科研人做的所谓科研是什么？](http://www.daogukj.com/qxoqgypn/)
-- [纯电车主称增程车应让出充电桩](http://www.daogukj.com/2637140)
-- [Angelababy十年前的迪奥秀场](http://www.daogukj.com/lcagyyzr/)
-- [有没有人一生坚持只做一份工作不跳槽的？](http://www.daogukj.com/nckagbek/)
-- [为什么部分人喝牛奶会腹泻，乳糖不耐受的本质是什么，为什么不同地区人群乳糖耐受能力差异巨大？](http://www.movie.hkepx.cn/movie/0871738.htm)
-- [披荆斩棘五公队长](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
-- [4名枪匪闯入豪宅，中国男子4秒13枪疯狂反击！](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
-- [小沈阳夫妇电影为何能实现票房逆袭](http://www.daogukj.com/kwifztpg/)
-- [周扬青自嘲脸「馒化」了，什么是「馒化脸」？医美技术发展能避免这种情况吗？](http://www.movie.hkepx.cn/movie/5703439.htm)
-- [网友称纹身是免疫细胞一辈子的战斗，这是真的吗？对健康会有哪些影响？](http://www.daogukj.com/ifbvcvnj/)
-- [沈腾国庆陪儿子玩大摆锤和过山车](http://www.daogukj.com/6568203)
-- [马斯克与高管女友分手 两人育有4孩](http://www.daogukj.com/0211136)
-- [【短的发布会】iQOO 电竞宇宙来了，电竞高玩卷到没朋友](http://www.movie.hkepx.cn/xiju/0370085.htm)
-- [迪丽热巴穿明艳红裙漫步巴黎](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
-- [你刷到的短视频有多少是演的](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
+- [这才是真正的音乐啊😇](http://www.movie.hkepx.cn/xiju/7509997.htm)
+- [3天抓12万条 毛毛虫为啥这么多](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
+- [日本人参观南京大屠杀遇难同胞纪念馆](http://www.movie.hkepx.cn/xiju/7276031.htm)
+- [李健演唱《情怨》怀念刘欢](http://www.daogukj.com/qxoqgypn/)
+- [为什么有那么多的人喜欢参观古迹？](http://www.daogukj.com/2637140)
+- [百慕大飞波士顿失联飞机残骸找到](http://www.daogukj.com/lcagyyzr/)
+- [台湾“九合一”选举投票日临近](http://www.daogukj.com/nckagbek/)
+- [亚运三大球中国1金2铜收官](http://www.movie.hkepx.cn/movie/0871738.htm)
+- [为何要花超700亿元修条运河](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
+- [如何看待深圳一车主连续两次占用应急车道，被按深圳特区法规罚 6000 元？你支持全国推广吗？](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
+- [这趟绿皮车1年亏400多万元为何还开](http://www.daogukj.com/kwifztpg/)
+- [女儿穿上警服重启牺牲父亲警号](http://www.movie.hkepx.cn/movie/5703439.htm)
+- [《大明王朝1566》里「改稻为桑」这么一个虚构出来的议题，本来解决起来很简单，怎么就搞得这么复杂？](http://www.daogukj.com/ifbvcvnj/)
+- [现在再看，这些话全都是作者对妹妹的思念](http://www.daogukj.com/6568203)
+- [Re:佩恩从零开始的异世界生活！！！【水门篇 下 】](http://www.daogukj.com/0211136)
+- [景区文创陷入「冤种三件套」，从护手霜到冰箱贴，为啥文创越来越同质化？怎样的景区文创才能让你愿意买单？](http://www.movie.hkepx.cn/xiju/0370085.htm)
+- [蔡天凤案烹煮遗体疑为掩盖恶臭](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
+- [自学动画 爆肝俩月 自创一集《海绵宝宝》【手搓动画大赛】](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
 - [药品开封后没过期就能接着吃？误区](http://www.movie.hkepx.cn/xiju/4676858.htm)
-- [中国队169金89银83铜收官](http://www.movie.hkepx.cn/movie/9996697.htm)
-- [亚运男足颁奖只有日本队笑不出来](http://www.movie.hkepx.cn/xiju/2854874.htm)
-- [闭幕式中国旗手 毕焜](http://www.daogukj.com/crhtjcoa/)
-- [省下面的市有正式的简称吗？每个都有吗？](http://www.movie.hkepx.cn/xiju/5398219.htm)
-- [国庆黄金周释放文旅消费活力](http://www.movie.hkepx.cn/xiju/9887508.htm)
+- [意大利姑娘来中国学拳嫁给拳师](http://www.movie.hkepx.cn/movie/9996697.htm)
+- [李玉刚街头唱《万疆》开口瞬间破防](http://www.movie.hkepx.cn/xiju/2854874.htm)
+- [善良的爷爷与画钱的小孩](http://www.daogukj.com/crhtjcoa/)
+- [全世界都在找中国游客拍照](http://www.movie.hkepx.cn/xiju/5398219.htm)
+- [中国健儿追梦之路永不停歇](http://www.movie.hkepx.cn/xiju/9887508.htm)
 - [德国教材「很多中国人没有汽车，出行靠自行车或步行」等内容引争议，这真是现行教材吗？为何会出现这种错误？](http://www.play.hengshemaoyi.cn/xiju/6315447.htm)
-- [【剧情】终极一班4（2016）01【曾沛慈 / 罗宏正】](http://www.movie.hkepx.cn/movie/8094400.htm)
-- [男足亚运摘铜登上《新闻联播》](http://www.movie.hkepx.cn/movie/8053500.htm)
-- [网友吐槽美团、高德、大众点评可随意造假评论，自家店铺还没开门就遭差评，该机制合理吗？该怎样应对和改进？](http://www.movie.hkepx.cn/xiju/8733503.htm)
-- [法国传出更多破坏视频](http://www.play.hengshemaoyi.cn/kongbu/6039715.htm)
-- [“聚是一栋楼 散是满地球”](http://www.daogukj.com/9356439)
-- [【独家】《凡人修仙传之慕兰之战》第18集【总第194集】](http://www.daogukj.com/ianqofdj/)
-- [学校水质调查](http://www.daogukj.com/sizrvcao/)
-- [香港的山海地形如何塑造了城市人的性格？](http://www.play.hengshemaoyi.cn/xiju/7255725.htm)
-- [知否 剧情设定](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
-- [【功夫女足】至尊无敌杯开赛！](http://www.daogukj.com/rwxeygms/)
-- [如何看待深圳一车主连续两次占用应急车道，被按深圳特区法规罚 6000 元？你支持全国推广吗？](http://www.play.hengshemaoyi.cn/kongbu/9837059.htm)
-- [【warma/怒九】我们俩第一次出国！](http://www.daogukj.com/2160602)
-- [中央气象台发布大风蓝色预警](http://www.play.hengshemaoyi.cn/kongbu/7208069.htm)
-- [当你穿进老钱班36](http://www.movie.hkepx.cn/movie/2235201.htm)
-- [为什么现在的酒店不再收押金查房了](http://www.play.hengshemaoyi.cn/kongbu/1046080.htm)
-- [5年跌超80% 耐克彻底坠下神坛](http://www.movie.hkepx.cn/xiju/2538742.htm)
-- [我的世界 但你能「吞噬数字」？？！](http://www.daogukj.com/9489918)
-- [中俄白等八国超4.7万人集结大练兵](http://www.movie.hkepx.cn/xiju/2931592.htm)
-- [财政部称将推进消费税征收后移并下划地方，将对地方财力和商品价格产生哪些影响？](http://www.daogukj.com/ottjwhke/)
-- [「雨爱 (司凤版)」|“邦吧邦吧邦吧”| "听完感觉老通透了"](http://www.movie.hkepx.cn/movie/7215484.htm)
-- [《霸凌の意志》](http://www.movie.hkepx.cn/xiju/4060244.htm)
-- [美联储10月还会不会加息？](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
+- [学习时注意力不集中，如何快速恢复专注？](http://www.movie.hkepx.cn/movie/8094400.htm)
+- [中国游客听到China一呼百应](http://www.movie.hkepx.cn/movie/8053500.htm)
+- [沙特联军回应胡塞称袭击利雅得](http://www.movie.hkepx.cn/xiju/8733503.htm)
+- [国安部提醒小心基因被窃](http://www.play.hengshemaoyi.cn/kongbu/6039715.htm)
+- [【warma/怒九】我们俩第一次出国！](http://www.daogukj.com/9356439)
+- [韩国网友不满亚运会夺金牌就能免兵役，你怎么看？这到底算正当奖励还是过度特权？](http://www.daogukj.com/ianqofdj/)
+- [司机开着“智驾”在高速上睡着了](http://www.daogukj.com/sizrvcao/)
+- [欧国联 A 级联赛，克罗地亚0-7 不敌英格兰，创下历史最大分差记录，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/7255725.htm)
+- [中网再爆大冷门](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
+- [周扬青自嘲脸「馒化」了，什么是「馒化脸」？医美技术发展能避免这种情况吗？](http://www.daogukj.com/rwxeygms/)
+- [多地深度游、主题玩法花式“上新”](http://www.play.hengshemaoyi.cn/kongbu/9837059.htm)
+- [十几岁孩子一点小事就暴躁易怒，根源真的只是叛逆吗？](http://www.daogukj.com/2160602)
+- [蔡天凤去世当日正带准买家看楼](http://www.play.hengshemaoyi.cn/kongbu/7208069.htm)
+- [今年亚运会哪一场比赛最让你热血沸腾？](http://www.movie.hkepx.cn/movie/2235201.htm)
+- [姚明妻女在上海被偶遇](http://www.play.hengshemaoyi.cn/kongbu/1046080.htm)
+- [调休连续上学12天，这是他身体发生的变化](http://www.movie.hkepx.cn/xiju/2538742.htm)
+- [如何看待巴勒斯坦球员因一个拇指向下的争议手势向国足道歉，澄清并无不敬之意？](http://www.daogukj.com/9489918)
+- [【独家】牧神记 第103集 温酒](http://www.movie.hkepx.cn/xiju/2931592.htm)
+- [于子迪成为亚运史上最年轻MVP](http://www.daogukj.com/ottjwhke/)
+- [《霸凌の意志》](http://www.movie.hkepx.cn/movie/7215484.htm)
+- [99%中国人没来过的世界最高国门！千万不要随便奔跑！](http://www.movie.hkepx.cn/xiju/4060244.htm)
+- [网传俄罗斯一实验室助理打破试管后感染鼠疫死亡，近200人被纳入医学观察，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
 
 </details>
 
 ## 原始来源
 
-- [葡萄牙官方晒B费谈C罗视频](https://s.weibo.com/weibo?q=%E8%91%A1%E8%90%84%E7%89%99%E5%AE%98%E6%96%B9%E6%99%92B%E8%B4%B9%E8%B0%88C%E7%BD%97%E8%A7%86%E9%A2%91)
+- [徐良演唱会救活了即将倒闭的面包厂](https://www.baidu.com/s?wd=%E5%BE%90%E8%89%AF%E6%BC%94%E5%94%B1%E4%BC%9A%E6%95%91%E6%B4%BB%E4%BA%86%E5%8D%B3%E5%B0%86%E5%80%92%E9%97%AD%E7%9A%84%E9%9D%A2%E5%8C%85%E5%8E%82&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 610ceded87c614b38f77 -->
+<!-- content-fingerprint: 14004bc720d856c22dc6 -->
