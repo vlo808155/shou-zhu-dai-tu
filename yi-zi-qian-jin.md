@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 超10万份孕妇血样被偷运出境
+# 李勒优称与晋妈关系挺好
 
-> 来源：微博热搜 · 排名：第 8 位 · 热度：497736 · 分类：民生新闻 · 更新：2026-10-05T12:52:50+08:00
+> 来源：微博热搜 · 排名：第 8 位 · 热度：366875 · 分类：综艺 · 更新：2026-10-05T20:07:37+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“超10万份孕妇血样被偷运出境”位列第 8 位，公开热度指标为 497736，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“李勒优称与晋妈关系挺好”位列第 8 位，公开热度指标为 366875，榜单分类为“综艺”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `民生新闻`
+`微博热搜` `实时热搜` `热点资讯` `综艺`
 
 ## 相关热点
 
-- [美国抛出“子午线计划”有何意图](yi-fan-feng-shun.md)
-- [看完的朋友来说说，如何评价《生化危机：爆发夜》这部电影？](yi-ming-jing-ren.md)
-- [6个小时的成果](yi-jian-shuang-diao.md)
-- [重庆“落地签” 隐患](shou-zhu-dai-tu.md)
+- [中方10分钟收网缅北四大家族重要成员](yi-fan-feng-shun.md)
+- [你对于 2026 年诺贝尔物理学奖的预测是什么？](yi-ming-jing-ren.md)
+- [印度军事这次支棱起来了](yi-jian-shuang-diao.md)
+- [外籍武打演员何麦去世](shou-zhu-dai-tu.md)
 
 ## 站内推荐
 
-- [医生回应高铁座椅或为HPV感染重灾区](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
-- [年轻人开始不买景区冤种三件套了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
-- [中国选手包揽斯诺克世界排名前二](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
-- [用鳃呼吸吧沃雅妮莎！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
-- [这是一份专门给吃货的西安美食攻略](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
+- [华为高通 芯片](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [兰香如故大结局](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [日本罕见1天3次向美国强烈抗议](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [经济学家做过哪些「看起来不像经济学」的研究，最后却拿了诺奖？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [《布达佩斯大饭店》中大面积用粉色为什么不觉得土？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [女童站椅子上看电视连摔3次](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
-- [这是一份专门给吃货的西安美食攻略](http://www.daogukj.com/cmyxzqtz/)
-- [用鳃呼吸吧沃雅妮莎！](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
-- [刘学义回复孔令美](http://www.movie.hkepx.cn/movie/2501356.htm)
-- [代露娃高考分数](http://www.daogukj.com/ojwknvji/)
-- [国庆出行购票藏骗局？警惕诈骗陷阱](http://www.daogukj.com/2178083)
-- [国乒男单21世纪首次无缘前三](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
-- [国安部通报境外组织借医疗检测非法采血样，曾有超10万份孕妇血样被偷运出境，会对生物安全产生哪些影响？](http://www.play.hengshemaoyi.cn/xiju/1338838.htm)
-- [亚运国足门将笑称夺金：铜牌是玫瑰金](http://www.daogukj.com/1763072)
-- [必须改革但改革不能：法国高中全国大抗议是咋回事](http://www.daogukj.com/8155971)
-- [重庆“落地签” 隐患](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
-- [西游记里的人参果这么好，为什么妖怪不去抢？](http://www.daogukj.com/6164330)
-- [贵是贵了点 但吃了不烧心](http://www.movie.hkepx.cn/movie/1564233.htm)
-- [用户投诉说脏话 AI客服回复也含脏话](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
-- [《诡异的她》第一季全集·纯享](http://www.daogukj.com/agvcmxmf/)
-- [国庆出行警惕票务诈骗陷阱](http://www.daogukj.com/qklffuer/)
-- [陈飞宇演反派吓到自己和父母](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
-- [美国抛出“子午线计划”有何意图](http://www.daogukj.com/0737886)
-- [美伊讨论重开霍尔木兹海峡，美方称不急于求成，伊朗要求美国履行6月备忘录，7天内可重开海峡，如何解读？](http://www.movie.hkepx.cn/xiju/7431665.htm)
-- [大国重器公布最新消息](http://www.daogukj.com/igpatdfc/)
-- [蔡康永在台独分子竞选会场挥舞应援棒](http://www.daogukj.com/4475902)
-- [地球是不是诞生的太晚了？](http://www.daogukj.com/6579509)
-- [看完的朋友来说说，如何评价《生化危机：爆发夜》这部电影？](http://www.movie.hkepx.cn/xiju/5461514.htm)
-- [快递小哥下楼发现包裹全被拆](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
-- [年轻人开始不买景区冤种三件套了](http://www.daogukj.com/2214905)
-- [梦之bug](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
-- [孙怡唐艺昕看周翊然被挤的反应](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
-- [王炳忠：蔡康永是双面人想两边通吃](http://www.daogukj.com/4430972)
-- [国庆高速电车充电排队几小时，甚至电量1%趴窝，电车长途真的不适合节假日跑高速吗？](http://www.movie.hkepx.cn/xiju/8019376.htm)
-- [松岛辉空成史上最年轻世界第一](http://www.movie.hkepx.cn/movie/0123120.htm)
-- [缅北电诈头目的钱多到发霉](http://www.movie.hkepx.cn/xiju/8033346.htm)
-- [蔡康永手拿加油棒为“台独”站台](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
-- [也门宣布启动行动收复胡塞近期控制区](http://www.daogukj.com/8763764)
-- [广州街唱《万疆》唱到一半，李玉刚本人来了？！](http://www.daogukj.com/jqstllvn/)
-- [【春物语】我的婚后生活果然有问题 第1话：于是，结婚半年的两人还没叫过对方的名字。](http://www.daogukj.com/1298524)
-- [蔡康永个人社交账号多个作品下架](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
-- [武侠游戏里“朝廷”永远不参与江湖纷争，是为了省工作量，还是因为一旦入场整个游戏逻辑就会崩塌？](http://www.daogukj.com/3314823)
-- [乘联分会称 2026 年 1-8 月中国占世界汽车份额回落至 32%，背后原因有哪些？](http://www.play.hengshemaoyi.cn/kongbu/1318289.htm)
-- [近期画的](http://www.movie.hkepx.cn/xiju/6376636.htm)
-- [日本罕见1天3次向美国强烈抗议](http://www.play.hengshemaoyi.cn/kongbu/4440369.htm)
-- [普宁考生称因HIV被拒教师入职](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
-- [在中部-2026演习当中，各国军队都展示了哪些新装备？反映出什么新方向？](http://www.daogukj.com/pcyxvqcb/)
-- [30岁女子靠AI婚庆培训年入200万，10万元内的方案仅需十几分钟生成，实际含金量如何？](http://www.daogukj.com/7344740)
-- [吴宜泽世界排名上升到第二位](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
-- [1700万买义乌天价商铺 商户：值这个价](http://www.daogukj.com/okofdfns/)
-- [如何看待张家齐发长文告别综艺《我家那闺女》，称想学着掌控和主导自己的人生？](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
-- [中国人开始放心开电车跑长途了吗](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
-- [看这个视频我不烧心！](http://www.movie.hkepx.cn/movie/3905354.htm)
-- [今天吃小鱼](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
-- [如何评价布拉德·皮特新片《野兽之心》？](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
+- [一句“China”瞬间炸场 一呼百应](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
+- [《布达佩斯大饭店》中大面积用粉色为什么不觉得土？](http://www.daogukj.com/cmyxzqtz/)
+- [经济学家做过哪些「看起来不像经济学」的研究，最后却拿了诺奖？](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
+- [鸡排哥爆火1年后热度不减](http://www.movie.hkepx.cn/movie/2501356.htm)
+- [美国CEO枪杀妻子后自杀](http://www.daogukj.com/ojwknvji/)
+- [医生辟谣高铁座椅或为HPV感染重灾区](http://www.daogukj.com/2178083)
+- [《原神》过场动画-「摩拉游戏」](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
+- [耐克股价年内跌幅近 50%且计划裁员重组，其市场表现缘何急转直下？](http://www.play.hengshemaoyi.cn/xiju/1338838.htm)
+- [明珍珍讲述埋葬被杀电诈人员细节](http://www.daogukj.com/1763072)
+- [“哼，把我忘得干净，偏等伤了无人能医，才想起我这肯管你的人？”《明日方舟：终末地》核心章节「丹青渡」版本前瞻特别节目即将于10月6日19:30播出。](http://www.daogukj.com/8155971)
+- [外籍武打演员何麦去世](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
+- [为什么现在老外纷纷开始给游戏加中文并且设立国区最低价？](http://www.daogukj.com/6164330)
+- [凡事尽力而为 最是圆满](http://www.movie.hkepx.cn/movie/1564233.htm)
+- [再见了地球](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
+- [看这个视频我不烧心！](http://www.daogukj.com/agvcmxmf/)
+- [工人给乐山大佛掏耳朵鼻孔系AI生成](http://www.daogukj.com/qklffuer/)
+- [结尾喊妈妈](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
+- [中方10分钟收网缅北四大家族重要成员](http://www.daogukj.com/0737886)
+- [全国游客在武汉玩嗨了](http://www.movie.hkepx.cn/xiju/7431665.htm)
+- [今年以来我国投资结构优化持续推进](http://www.daogukj.com/igpatdfc/)
+- [华为与高通达成协议](http://www.daogukj.com/4475902)
+- [2026 国庆档首日票房 1.8 亿，《神探之痕迹》7100 万领跑，如何评价这一成绩？](http://www.daogukj.com/6579509)
+- [你对于 2026 年诺贝尔物理学奖的预测是什么？](http://www.movie.hkepx.cn/xiju/5461514.htm)
+- [央视调查重庆落地签背后隐患](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
+- [兰香如故大结局](http://www.daogukj.com/2214905)
+- [至冬会成为第二个因为研究深渊而崩溃的坎瑞亚吗？](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
+- [国乒仅占女单世界第一](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
+- [晋妈面馆偶遇在干活的李勒优](http://www.daogukj.com/4430972)
+- [郑钦文战胜布兹科娃晋级16强](http://www.movie.hkepx.cn/xiju/8019376.htm)
+- [泼天文博流量被一颗珠子接住了](http://www.movie.hkepx.cn/movie/0123120.htm)
+- [缅北电诈园区枪决底层人员](http://www.movie.hkepx.cn/xiju/8033346.htm)
+- [光遗传学](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
+- [38岁体制内干部求助大冰](http://www.daogukj.com/8763764)
+- [在古代汉字有5000多个，为什么计数要用 "正" 字，不用别的字？](http://www.daogukj.com/jqstllvn/)
+- [《诡异的她》第一季全集·纯享](http://www.daogukj.com/1298524)
+- [梦之bug](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
+- [2026诺贝尔生理学或医学奖揭晓](http://www.daogukj.com/3314823)
+- [武侠游戏里“朝廷”永远不参与江湖纷争，是为了省工作量，还是因为一旦入场整个游戏逻辑就会崩塌？](http://www.play.hengshemaoyi.cn/kongbu/1318289.htm)
+- [【完整版】纪录片《缅北电诈覆灭纪实》第一集《利剑出鞘》](http://www.movie.hkepx.cn/xiju/6376636.htm)
+- [中方曾三次约见缅北四大家族代表](http://www.play.hengshemaoyi.cn/kongbu/4440369.htm)
+- [曝代露娃家破产母亲做月嫂供其追梦](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
+- [郑合惠子：不强行共情杜翠雀的恶](http://www.daogukj.com/pcyxvqcb/)
+- [女网红参加柏林马拉松比赛，却通过骑自行车作弊，后因被当地人拍照揭发而道歉，如何看待这一现象？](http://www.daogukj.com/7344740)
+- [鸿蒙离一亿用户还有多远](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
+- [当 代 假 期 现 状](http://www.daogukj.com/okofdfns/)
+- [林锦岐去世](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
+- [自驾出游“车变床”有多危险](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
+- [《我上哪给你整假的》](http://www.movie.hkepx.cn/movie/3905354.htm)
+- [急停开关加罩子合理吗？](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
+- [年轻人开始不买景区冤种三件套了](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
 
 </details>
 
 ## 原始来源
 
-- [超10万份孕妇血样被偷运出境](https://s.weibo.com/weibo?q=%E8%B6%8510%E4%B8%87%E4%BB%BD%E5%AD%95%E5%A6%87%E8%A1%80%E6%A0%B7%E8%A2%AB%E5%81%B7%E8%BF%90%E5%87%BA%E5%A2%83)
+- [李勒优称与晋妈关系挺好](https://s.weibo.com/weibo?q=%E6%9D%8E%E5%8B%92%E4%BC%98%E7%A7%B0%E4%B8%8E%E6%99%8B%E5%A6%88%E5%85%B3%E7%B3%BB%E6%8C%BA%E5%A5%BD)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 758014ab2c063b165e6b -->
+<!-- content-fingerprint: 2e80e910768850347c51 -->
