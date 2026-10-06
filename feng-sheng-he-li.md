@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 李一桐：拍扇巴掌戏压力很大
+# 东南亚真的很危险吗？
 
-> 来源：百度热搜 · 排名：第 7 位 · 热度：7137394 · 更新：2026-10-06T16:00:01+08:00
+> 来源：知乎热榜 · 排名：第 7 位 · 热度：249 万热度 · 分类：问答 · 更新：2026-10-06T23:01:13+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“李一桐：拍扇巴掌戏压力很大”位列第 7 位，公开热度指标为 7137394。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“东南亚真的很危险吗？”位列第 7 位，公开热度指标为 249 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，李一桐专访透露，拍摄连扇二十个巴掌的戏份压力很大，戏里“人狠话不多”的她戏外爱傻乐，反差感十足。
+知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [缅北血手印的主人还活着](ru-huo-ru-tu.md)
-- [冲绳知事递抗议书 美军司令低头接过](yi-gu-zuo-qi.md)
-- [如果银河系里真有比人类早十亿年的文明，它们为什么至今没留下明显痕迹？](yi-zi-qian-jin.md)
-- [【抢先看】重回2002，永不空军的鱼竿被军方收编？军方进仓库一看：激光炮手电、隐身涂层、全球降雨弹……你管这叫鱼竿？](yi-fan-feng-shun.md)
+- [被 解 救 的 杰 戈](ru-huo-ru-tu.md)
+- [大学生旅游攻略 坑麻国庆出行中年人](yi-gu-zuo-qi.md)
+- [记者不解韦世豪失控肘击对手](yi-zi-qian-jin.md)
+- [白应苍临刑前称随口1个资金盘就20亿](yi-fan-feng-shun.md)
 
 ## 站内推荐
 
-- [中方工作组曾 3 次约见果敢「四大家族」代表但收效甚微，背后的深层原因是什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [央视披露缅北电诈真实案例，男子讲述被割肾经历，哪些细节值得关注？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [国乒男单真正的危机是梯队断层](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [高通回应华为专利协议](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [中国足球小将两天两冠](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [纪录片《缅北电诈覆灭纪实》首播，有哪些抓捕细节和内幕值得关注？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [缅方曾称没有中国人死，起初拒绝中国警方从电诈园区带回同胞遗骸，哪些信息值得关注？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [OPPO 为何要寻求 12 亿美元银团贷款？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [媒体称破铜烂铁、废纸壳、废塑料可能正在创造巨量财富，这是真的吗？为啥「破烂」正在变成黄金赛道？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [普宁教师岗考生称因HIV体检不合格被教育局劝签自愿放弃聘用，这合理吗？日常教学接触会传染到学生吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [缅北魏家接班人自曝布局军政两界](http://www.play.hengshemaoyi.cn/xiju/6111090.htm)
-- [白应苍临刑前称随口1个资金盘就20亿](http://www.daogukj.com/edzpadjo/)
-- [残雪、村上春树领跑诺奖赔率榜](http://www.movie.hkepx.cn/xiju/6105250.htm)
-- [二爷的弱点是叶腐?](http://www.play.hengshemaoyi.cn/kongbu/1070558.htm)
-- [食人魔王、内战、石油，乌干达百年国运，怎么比小说还离谱【东非04｜乌干达】](http://www.play.hengshemaoyi.cn/kongbu/7084010.htm)
-- [被 解 救 的 杰 戈](http://www.play.hengshemaoyi.cn/kongbu/6978620.htm)
-- [萨巴伦说被孙颖莎喜欢受宠若惊](http://www.daogukj.com/ydopnvwq/)
-- [👊亿 拳 超 人👊](http://www.daogukj.com/ikvvgoqn/)
-- [“大水时代”已经到来](http://www.play.hengshemaoyi.cn/xiju/4780278.htm)
-- [为什么伽罗瓦 19 岁就发明的群论，绝大多数那个专业的研究生终其一生都学不会？](http://www.play.hengshemaoyi.cn/kongbu/1667187.htm)
-- [12306售罄为何第三方还有票](http://www.daogukj.com/ruryuczo/)
-- [缅北血手印的主人还活着](http://www.play.hengshemaoyi.cn/xiju/2905183.htm)
-- [网红慧慧饱饱账号被禁止关注，客服称该用户因违反社区规范被处置，后账号恢复，未回应异常原因，具体咋回事？](http://www.play.hengshemaoyi.cn/xiju/5729760.htm)
-- [电诈主犯反问“杀人要什么感受”](http://www.play.hengshemaoyi.cn/kongbu/8964859.htm)
-- [全站首个恰饭对决！百万UP主真会做视频吗？](http://www.movie.hkepx.cn/xiju/2546414.htm)
-- [中方放弃谈判直接抓佤邦副总司令](http://www.movie.hkepx.cn/movie/4824208.htm)
-- [订单排到2027年！又一行业爆单了](http://www.daogukj.com/9789170)
-- [为什么很多影视明星的子女基本都在英美读书？](http://www.play.hengshemaoyi.cn/xiju/2235964.htm)
-- [国乒男单真正的危机是梯队断层](http://www.play.hengshemaoyi.cn/kongbu/0944708.htm)
-- [【完整版】纪录片《缅北电诈覆灭纪实》第一集《利剑出鞘》](http://www.daogukj.com/1702919)
-- [10万民警抵达中缅边境参与专项行动](http://www.movie.hkepx.cn/xiju/7626642.htm)
-- [陈楚生刑事民事重拳追责](http://www.play.hengshemaoyi.cn/xiju/6504158.htm)
-- [在华严寺感觉被盯上 抬头是只乌萨奇](http://www.play.hengshemaoyi.cn/kongbu/0276729.htm)
-- [如何看待小沈阳夫妇电影《什么意思夫妇》逆袭成国庆档票房黑马？你预测之后表现会怎样？](http://www.play.hengshemaoyi.cn/xiju/8604336.htm)
-- [缅北明家犯罪证据宣读了两个半小时](http://www.play.hengshemaoyi.cn/xiju/9791973.htm)
-- [何超盈仅仅用一年就瘦了100斤](http://www.movie.hkepx.cn/movie/0865243.htm)
-- [纪录片《缅北电诈覆灭纪实》首播，有哪些抓捕细节和内幕值得关注？](http://www.daogukj.com/2187991)
-- [如何评价《兰香如故》大结局？](http://www.daogukj.com/awimddvt/)
-- [邓紫棋深圳演唱会刷新一项世界纪录](http://www.movie.hkepx.cn/xiju/8479317.htm)
-- [你敢信？我在太平洋赶海竟然发现上百斤重的巨型砗磲！这么大的家伙，吃起来什么味道？](http://www.daogukj.com/8710264)
-- [国庆假期已过半，这个假期你们开心吗？](http://www.movie.hkepx.cn/xiju/7852987.htm)
-- [如何看待教育部要求辅导员与学生同吃同住同生活、思政工作下沉至学生私生活？](http://www.daogukj.com/9527639)
-- [稻城亚丁景区封闭？假的](http://www.movie.hkepx.cn/xiju/5317341.htm)
-- [普宁教师岗考生称因HIV体检不合格被教育局劝签自愿放弃聘用，这合理吗？日常教学接触会传染到学生吗？](http://www.daogukj.com/rfjzvnft/)
-- [曝张婧仪Burberry转YSL](http://www.play.hengshemaoyi.cn/kongbu/0835531.htm)
-- [本科生去找老师搞科研会不会被嫌弃？](http://www.play.hengshemaoyi.cn/kongbu/5783653.htm)
-- [为什么下馆子之后感觉特别渴](http://www.movie.hkepx.cn/movie/2541017.htm)
-- [四分钟看完华强买瓜【AI MV大赛】](http://www.daogukj.com/tdbkadsz/)
-- [不再赴日的中国游客都去哪了](http://www.movie.hkepx.cn/movie/8640580.htm)
-- [媒体曝腾讯 70 亿美元租用甲骨文海外算力，此举出于哪些考量？会带来哪些影响？](http://www.daogukj.com/5453849)
-- [年轻人婚礼 不早起不请司仪不办仪式](http://www.play.hengshemaoyi.cn/xiju/3894345.htm)
-- [金价高位震荡普通人该怎么买黄金](http://www.daogukj.com/hayaidza/)
-- [韩国博主在延边破大防](http://www.daogukj.com/ppbihxts/)
-- [国庆假期返程天气指南](http://www.play.hengshemaoyi.cn/kongbu/7747218.htm)
-- [平陆运河开通后，广西南部有可能会出现一个新一线城市吗？](http://www.daogukj.com/8988221)
-- [高通回应与华为达成专利许可协议](http://www.play.hengshemaoyi.cn/xiju/0659400.htm)
-- [真实事件不改编](http://www.movie.hkepx.cn/xiju/3713545.htm)
-- [升级交通服务 强化返程保障](http://www.play.hengshemaoyi.cn/xiju/1948140.htm)
-- [今日全国高速有44个路段易发拥堵](http://www.movie.hkepx.cn/xiju/3130950.htm)
-- [警惕机票退改、低价订房骗局](http://www.movie.hkepx.cn/movie/0216360.htm)
+- [曝邓紫棋男友是富三代](http://www.play.hengshemaoyi.cn/xiju/6111090.htm)
+- [外交部：美方应慎重处理台湾问题](http://www.daogukj.com/edzpadjo/)
+- [王皓遭辱骂拍照取证，其妻子发声「不理解竞技体育怎么变这样了」，怎样看待这一现象？骂人者会受到处罚吗？](http://www.movie.hkepx.cn/xiju/6105250.htm)
+- [韩乔生：邵佳一还远没到下课的地步](http://www.play.hengshemaoyi.cn/kongbu/1070558.htm)
+- [如何看待高通开始给华为交专利费](http://www.play.hengshemaoyi.cn/kongbu/7084010.htm)
+- [去台湾地区管辖的马祖列岛旅行...](http://www.play.hengshemaoyi.cn/kongbu/6978620.htm)
+- [第一次去美国，被吓到了……](http://www.daogukj.com/ydopnvwq/)
+- [有10万民警赴中缅边境打击涉我犯罪](http://www.daogukj.com/ikvvgoqn/)
+- [如何看待TES上单zuian签证两次被拒，369紧急成为TES S16首发上单？](http://www.play.hengshemaoyi.cn/xiju/4780278.htm)
+- [小孩在景区用磁吸充电线钓许愿池硬币](http://www.play.hengshemaoyi.cn/kongbu/1667187.htm)
+- [中国游客国庆出行让日媒很闹心](http://www.daogukj.com/ruryuczo/)
+- [被 解 救 的 杰 戈](http://www.play.hengshemaoyi.cn/xiju/2905183.htm)
+- [谭松韵老年妆化了6个小时](http://www.play.hengshemaoyi.cn/xiju/5729760.htm)
+- [周迅釜山电影节红毯状态](http://www.play.hengshemaoyi.cn/kongbu/8964859.htm)
+- [啊啊7月新番你到底给我下了什么药啊！！【泛式】](http://www.movie.hkepx.cn/xiju/2546414.htm)
+- [睡眠开始出现这种问题说明你可能老了](http://www.movie.hkepx.cn/movie/4824208.htm)
+- [下次回来就是2027年了](http://www.daogukj.com/9789170)
+- [代露娃艺考老师发文](http://www.play.hengshemaoyi.cn/xiju/2235964.htm)
+- [OPPO 为何要寻求 12 亿美元银团贷款？](http://www.play.hengshemaoyi.cn/kongbu/0944708.htm)
+- [《余红旧事》马伊琍张哲华搭戏表现](http://www.daogukj.com/1702919)
+- [佤邦联合军原副总司令落网画面公开，将对缅北电诈清剿及局势带来哪些影响？](http://www.movie.hkepx.cn/xiju/7626642.htm)
+- [中外乒坛名将点赞中国大满贯](http://www.play.hengshemaoyi.cn/xiju/6504158.htm)
+- [“16条人命只剩5具尸体1份骨灰”](http://www.play.hengshemaoyi.cn/kongbu/0276729.htm)
+- [十人国足 0-1 塔吉克斯坦，韦世豪肘击染红，刘殿座脱手致丢球，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/8604336.htm)
+- [为什么 macOS 比 Windows 好用且美观，但是国内 Windows 依旧是主流操作系统？](http://www.play.hengshemaoyi.cn/xiju/9791973.htm)
+- [夏果新片《山鸟》](http://www.movie.hkepx.cn/movie/0865243.htm)
+- [国足0比1塔吉克斯坦](http://www.daogukj.com/2187991)
+- [德约科维奇中网34胜0负](http://www.daogukj.com/awimddvt/)
+- [邵佳一回应国足三连败：试错是好事](http://www.movie.hkepx.cn/xiju/8479317.htm)
+- [高速堵车社牛小朋友从前车要来蜜柚](http://www.daogukj.com/8710264)
+- [一万块的威力被严重低估了](http://www.movie.hkepx.cn/xiju/7852987.htm)
+- [媒体曝多项研究证实最佳睡眠时长为7小时，这一结论的依据是啥？为什么很多网友觉得黄金睡眠时长一直在缩水？](http://www.daogukj.com/9527639)
+- [“稻城亚丁景区封闭”系谣言](http://www.movie.hkepx.cn/xiju/5317341.htm)
+- [AG 突围赛](http://www.daogukj.com/rfjzvnft/)
+- [99%中国人没来过的世界最高国门！千万不要随便奔跑！](http://www.play.hengshemaoyi.cn/kongbu/0835531.htm)
+- [破案](http://www.play.hengshemaoyi.cn/kongbu/5783653.htm)
+- [央视调查后 “牛奶湖”发布通告](http://www.movie.hkepx.cn/movie/2541017.htm)
+- [俄已警告各国在乌克兰基辅工作危险](http://www.daogukj.com/tdbkadsz/)
+- [Adobe Photoshop 是否已经过时？](http://www.movie.hkepx.cn/movie/8640580.htm)
+- [如何看待教育部要求辅导员与学生同吃同住同生活、思政工作下沉至学生私生活？](http://www.daogukj.com/5453849)
+- [10人国足0比1不敌塔吉克斯坦](http://www.play.hengshemaoyi.cn/xiju/3894345.htm)
+- [保时捷卡宴降20万 奥迪A8降30万](http://www.daogukj.com/hayaidza/)
+- [衡水模式为何没人吹了](http://www.daogukj.com/ppbihxts/)
+- [国庆假期大国重器新突破](http://www.play.hengshemaoyi.cn/kongbu/7747218.htm)
+- [【方舟短剧】奸商蛋炒饭，烧心吃到饱！](http://www.daogukj.com/8988221)
+- [缅北魏家接班人自曝布局军政两界](http://www.play.hengshemaoyi.cn/xiju/0659400.htm)
+- [胡塞称首次实战使用新型自制无人机](http://www.movie.hkepx.cn/xiju/3713545.htm)
+- [我国消费市场保持扩容提质发展态势](http://www.play.hengshemaoyi.cn/xiju/1948140.htm)
+- [记者谈邵佳一：对国足一筹莫展](http://www.movie.hkepx.cn/xiju/3130950.htm)
+- [高通澄清华为专利交叉授权，称涉及逻辑折叠（韬定律专利）不属实、高通为净支付方不准确，怎样解读？](http://www.movie.hkepx.cn/movie/0216360.htm)
 
 </details>
 
 ## 原始来源
 
-- [李一桐：拍扇巴掌戏压力很大](https://www.baidu.com/s?wd=%E6%9D%8E%E4%B8%80%E6%A1%90%EF%BC%9A%E6%8B%8D%E6%89%87%E5%B7%B4%E6%8E%8C%E6%88%8F%E5%8E%8B%E5%8A%9B%E5%BE%88%E5%A4%A7&sa=fyb_news&rsv_dl=fyb_news)
+- [东南亚真的很危险吗？](https://www.zhihu.com/question/14535550405)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 21416e48308f4e1a3bbf -->
+<!-- content-fingerprint: f118e9b5b9e3a005c739 -->
