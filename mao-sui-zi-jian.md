@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 这个器官厉害的人天生是“快乐体质”
+# 缅甸电诈园区或卷土重来
 
-> 来源：百度热搜 · 排名：第 6 位 · 热度：7232015 · 更新：2026-10-05T20:07:37+08:00
+> 来源：微博热搜 · 排名：第 7 位 · 热度：529896 · 分类：国际时政 · 更新：2026-10-06T09:26:53+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“这个器官厉害的人天生是“快乐体质””位列第 6 位，公开热度指标为 7232015。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“缅甸电诈园区或卷土重来”位列第 7 位，公开热度指标为 529896，榜单分类为“国际时政”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：研究指出，肠道被称为人体的“第二大脑”，约七到九成的“快乐激素”5-羟色胺由肠道菌群参与合成。肠道与大脑通过“肠-脑轴”双向调控，缺乏该神经递质易引发抑郁。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `国际时政`
 
 ## 相关热点
 
-- [国乒仅占女单世界第一](san-gu-mao-lu.md)
-- [鸿蒙离一亿用户还有多远](cao-mu-jie-bing.md)
-- [2026 国庆档首日票房 1.8 亿，《神探之痕迹》7100 万领跑，如何评价这一成绩？](feng-sheng-he-li.md)
-- [【完整版】纪录片《缅北电诈覆灭纪实》第一集《利剑出鞘》](ru-huo-ru-tu.md)
+- [第一批返程的“大聪明”又失算了](san-gu-mao-lu.md)
+- [水刚咽下去，口渴怎么就缓解了？身体从哪里知道我喝水了？](cao-mu-jie-bing.md)
+- [真实事件不改编](feng-sheng-he-li.md)
+- [游客住学生宿舍 教育局：离开还打扫了](ru-huo-ru-tu.md)
 
 ## 站内推荐
 
-- [超3万人涌入吉林山沟沟博物馆看黄金](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [外籍武打演员何麦去世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [一句“China”瞬间炸场 一呼百应](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [评论员：两岸走向统一是历史必然](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [全国游客在武汉玩嗨了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [中国警方缅北战火下挖出同胞遗体](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [未提前告知的的服务费均可拒付](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [谭松韵面相都变了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [张哲华《余红旧事》颠覆喜剧人形象](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [为什么伽罗瓦 19 岁就发明的群论，绝大多数那个专业的研究生终其一生都学不会？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [大V：不要悲观 慢牛依然在](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
-- [急停开关加罩子合理吗？](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
-- [代露娃持续掉粉](http://www.daogukj.com/hiiwohqb/)
-- [你吃饭老跟我闺蜜互动什么呀？](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
-- [华为高通 芯片](http://www.daogukj.com/2806482)
-- [泼天文博流量被一颗珠子接住了](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
-- [明珍珍临刑前画面曝光](http://www.daogukj.com/9832220)
-- [在你生活的城市，他的古城墙还存在吗?](http://www.movie.hkepx.cn/xiju/4624070.htm)
+- [印度军事这次支棱起来了](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
+- [普宁教师岗考生称因HIV体检不合格被教育局劝签自愿放弃聘用，这一安排合理吗？科学上会对孩子有影响吗？](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
+- [刘亦菲 掉代言](http://www.daogukj.com/hiiwohqb/)
+- [【抢先看】重回2002，永不空军的鱼竿被军方收编？军方进仓库一看：激光炮手电、隐身涂层、全球降雨弹……你管这叫鱼竿？](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
+- [回老家掰苞米感觉世界割裂](http://www.daogukj.com/2806482)
+- [明学昌畏罪自杀身亡照片曝光](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
+- [尼克斯vs76人](http://www.daogukj.com/9832220)
+- [谁在制造让中产上瘾的纸片](http://www.movie.hkepx.cn/xiju/4624070.htm)
 - [《诡异的她》第一季全集·纯享](http://www.movie.hkepx.cn/movie/0841033.htm)
-- [芒果台这双眼到底能看多远](http://www.movie.hkepx.cn/movie/4609262.htm)
-- [孙颖莎重回女单世界第一](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
-- [经济学家做过哪些「看起来不像经济学」的研究，最后却拿了诺奖？](http://www.daogukj.com/1127111)
-- [被执行死刑的巫鸿明、白应苍出镜](http://www.daogukj.com/pldvwggd/)
-- [十一假期返程安全提示](http://www.movie.hkepx.cn/xiju/1287269.htm)
-- [鸿蒙离一亿用户还有多远](http://www.daogukj.com/unklghpc/)
-- [至冬会成为第二个因为研究深渊而崩溃的坎瑞亚吗？](http://www.daogukj.com/4404570)
-- [全国游客在武汉玩嗨了](http://www.daogukj.com/wfqplasc/)
-- [“实验室制取培根”](http://www.daogukj.com/grgritvr/)
+- [中方放弃谈判直接抓佤邦副总司令](http://www.movie.hkepx.cn/movie/4609262.htm)
+- [香港为什么叫HK，不叫XG？](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
+- [如何看待小沈阳夫妇电影《什么意思夫妇》逆袭成国庆档票房黑马？你预测之后表现会怎样？](http://www.daogukj.com/1127111)
+- [中方曾三次约见缅北四大家族代表](http://www.daogukj.com/pldvwggd/)
+- [中国空心光纤网速更快了](http://www.movie.hkepx.cn/xiju/1287269.htm)
+- [水刚咽下去，口渴怎么就缓解了？身体从哪里知道我喝水了？](http://www.daogukj.com/unklghpc/)
+- [大学生挑战国庆7天一个人爆改包浆宿舍](http://www.daogukj.com/4404570)
+- [为什么伽罗瓦 19 岁就发明的群论，绝大多数那个专业的研究生终其一生都学不会？](http://www.daogukj.com/wfqplasc/)
+- [邓紫棋演唱会刷新一项世界纪录](http://www.daogukj.com/grgritvr/)
 - [医生辟谣高铁座椅或为HPV感染重灾区](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
-- [《我上哪给你整假的》](http://www.movie.hkepx.cn/movie/3539496.htm)
-- [38岁体制内干部求助大冰](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
-- [孙颖莎教练无通行证入场受阻](http://www.movie.hkepx.cn/xiju/3922759.htm)
-- [自驾出游“车变床”有多危险](http://www.daogukj.com/ynpujsgi/)
-- [华为与高通达成协议](http://www.movie.hkepx.cn/movie/2603972.htm)
-- [全 站 最 烧 心 版 本！！！](http://www.daogukj.com/9238608)
-- [你对于 2026 年诺贝尔物理学奖的预测是什么？](http://www.daogukj.com/xdtzeasn/)
-- [大国重器BEST、FAST公布最新消息](http://www.daogukj.com/2229169)
-- [曝代露娃家破产母亲做月嫂供其追梦](http://www.daogukj.com/pnnlzznp/)
-- [国安部通报境外组织借医疗检测非法采血样，曾有超10万份孕妇血样被偷运出境，会对生物安全产生哪些影响？](http://www.movie.hkepx.cn/movie/1141317.htm)
-- [2026 年诺贝尔生理学或医学奖颁给光遗传学，如何理解这项「用光精准控制大脑」的技术？](http://www.daogukj.com/3669738)
-- [今年以来我国投资结构优化持续推进](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
-- [耐克股价年内跌幅近 50%且计划裁员重组，其市场表现缘何急转直下？](http://www.movie.hkepx.cn/xiju/8333303.htm)
-- [【完整版】纪录片《缅北电诈覆灭纪实》第一集《利剑出鞘》](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
-- [再见了地球](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
-- [郑钦文庆祝模仿美少女战士](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
-- [外籍武打演员何麦去世](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
-- [年轻人开始不买景区冤种三件套了](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
-- [李勒优回应](http://www.movie.hkepx.cn/movie/7218961.htm)
+- [被 解 救 的 杰 戈](http://www.movie.hkepx.cn/movie/3539496.htm)
+- [超10万份孕妇血样被偷运出境](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
+- [国庆假期高速收费站区域事故多发](http://www.movie.hkepx.cn/xiju/3922759.htm)
+- [8岁男童确诊尿毒症 每天喝奶茶饮料](http://www.daogukj.com/ynpujsgi/)
+- [刘学义没对谭松韵用绅士手](http://www.movie.hkepx.cn/movie/2603972.htm)
+- [敢为人先，向前走，心就属于自己](http://www.daogukj.com/9238608)
+- [当我把verity变成双重人格！](http://www.daogukj.com/xdtzeasn/)
+- [国庆假期返程 这份安全提示请收好](http://www.daogukj.com/2229169)
+- [李荣浩回复邓紫棋](http://www.daogukj.com/pnnlzznp/)
+- [央视披露缅北电诈真实案例，男子讲述被割肾经历，哪些细节值得关注？](http://www.movie.hkepx.cn/movie/1141317.htm)
+- [中方工作组曾 3 次约见果敢「四大家族」代表但收效甚微，背后的深层原因是什么？](http://www.daogukj.com/3669738)
+- [假期过半，在照片中看见活力中国](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
+- [如何看待Anthropic被曝请神学家给Claude提供安全建议，并认为Claude有灵魂？](http://www.movie.hkepx.cn/xiju/8333303.htm)
+- [游客住学生宿舍 教育局：离开还打扫了](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
+- [食人魔王、内战、石油，乌干达百年国运，怎么比小说还离谱【东非04｜乌干达】](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
+- [网友称泰山躲雨80元一小时](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
+- [未提前告知的的服务费均可拒付](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
+- [被执行死刑的巫鸿明、白应苍出镜](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
+- [黄子韬直播回应王鹤棣为人如何](http://www.movie.hkepx.cn/movie/7218961.htm)
 - [工人给乐山大佛掏耳朵鼻孔系AI生成](http://www.movie.hkepx.cn/xiju/0034458.htm)
-- [如何评价代露娃发烧向母亲求助却被反问「别人能行你咋不行」？暴露了这段母女关系中哪些问题？](http://www.movie.hkepx.cn/movie/1373526.htm)
-- [李勒优称与晋妈关系挺好](http://www.movie.hkepx.cn/movie/8174344.htm)
-- [中方10分钟收网缅北四大家族重要成员](http://www.movie.hkepx.cn/xiju/7049500.htm)
-- [中方曾三次约见缅北四大家族代表](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
-- [民警进电诈园区取证 带回三具尸体](http://www.daogukj.com/1670030)
-- [女网红参加柏林马拉松比赛，却通过骑自行车作弊，后因被当地人拍照揭发而道歉，如何看待这一现象？](http://www.daogukj.com/4917906)
-- [明珍珍讲述埋葬被杀电诈人员细节](http://www.daogukj.com/jjbeajdp/)
-- [《布达佩斯大饭店》中大面积用粉色为什么不觉得土？](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
-- [明珍珍临刑前讲述埋葬电诈人员细节](http://www.daogukj.com/2644309)
-- [结尾喊妈妈](http://www.daogukj.com/2520362)
-- [在古代汉字有5000多个，为什么计数要用 "正" 字，不用别的字？](http://www.daogukj.com/4354347)
+- [当代文科教育的症结在哪里？](http://www.movie.hkepx.cn/movie/1373526.htm)
+- [明珍珍临刑前画面曝光](http://www.movie.hkepx.cn/movie/8174344.htm)
+- [医生辟谣「高铁座椅或为HPV感染重灾区」，这个说法怎么来的？坐高铁有必要使用一次性座套吗？](http://www.movie.hkepx.cn/xiju/7049500.htm)
+- [中国足球小将两天两冠](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
+- [明珍珍笑着讲述杀人埋尸](http://www.daogukj.com/1670030)
+- [媒体曝腾讯 70 亿美元租用甲骨文海外算力，此举出于哪些考量？会带来哪些影响？](http://www.daogukj.com/4917906)
+- [建议大家买房一定要远离公园](http://www.daogukj.com/jjbeajdp/)
+- [雨中爬岳麓山遇“蘑菇大军”](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
+- [区委书记逐一核查值班人员是否在岗](http://www.daogukj.com/2644309)
+- [游客下地割出9000碗米饭](http://www.daogukj.com/2520362)
+- [为什么很多影视明星的子女基本都在英美读书？](http://www.daogukj.com/4354347)
 
 </details>
 
 ## 原始来源
 
-- [这个器官厉害的人天生是“快乐体质”](https://www.baidu.com/s?wd=%E8%BF%99%E4%B8%AA%E5%99%A8%E5%AE%98%E5%8E%89%E5%AE%B3%E7%9A%84%E4%BA%BA%E5%A4%A9%E7%94%9F%E6%98%AF%E2%80%9C%E5%BF%AB%E4%B9%90%E4%BD%93%E8%B4%A8%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [缅甸电诈园区或卷土重来](https://s.weibo.com/weibo?q=%E7%BC%85%E7%94%B8%E7%94%B5%E8%AF%88%E5%9B%AD%E5%8C%BA%E6%88%96%E5%8D%B7%E5%9C%9F%E9%87%8D%E6%9D%A5)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1d7f00a6b032db2131da -->
+<!-- content-fingerprint: a52c935b61793ba8ae9b -->
