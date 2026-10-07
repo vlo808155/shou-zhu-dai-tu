@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 缅北电诈主犯反问民警杀人要什么感受
+# 为何清北的牌子在哪儿都能吃得开，唯独学术圈吃不开？
 
-> 来源：今日头条热榜 · 排名：第 7 位 · 热度：13799544 · 分类：热门事件 · 更新：2026-10-07T17:23:00+08:00
+> 来源：知乎热榜 · 排名：第 7 位 · 热度：299 万热度 · 分类：问答 · 更新：2026-10-08T00:48:56+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“缅北电诈主犯反问民警杀人要什么感受”位列第 7 位，公开热度指标为 13799544，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“为何清北的牌子在哪儿都能吃得开，唯独学术圈吃不开？”位列第 7 位，公开热度指标为 299 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：在金融行业，拿着清北的牌子就能稍微横着走不看业务能力，在教培行业，拿着清北的牌子彻底横着走，不看业务能力，在互联网行业，拿着清北的牌子也能稍微横着走不看业务能力，考公选调，清北的牌子也很有用，即便是做销售，清北牌子也有不小的优势，但似乎放在学术圈科研口，清北的牌子几乎没啥用了。 换而言之，清北的学生是否最不该做科研搞学术？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [俄研究人员疑染鼠疫死亡近 200 人被隔离，该疫情是否有扩散风险？](cao-mu-jie-bing.md)
-- [当所有植物274株叠种在一起 哪些僵尸能击败它呢？](feng-sheng-he-li.md)
-- [酒店拼床累坏保洁](ru-huo-ru-tu.md)
-- [酒店保洁吐槽带娃拼床复位累到崩溃](yi-gu-zuo-qi.md)
+- [⚡️如来 三界巡演⚡️【AI MV大赛】](cao-mu-jie-bing.md)
+- [离加油站20米燃油耗尽 车主求助被拒](feng-sheng-he-li.md)
+- [离加油站20米燃油耗尽车主发声](ru-huo-ru-tu.md)
+- [为什么学校不统一打印作业](yi-gu-zuo-qi.md)
 
 ## 站内推荐
 
-- [为什么学校不统一打印作业](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [直击国庆返程高峰路况](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [高通和华为正在变成彼此绕不开的人](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [古代皇帝吃不完的菜都是怎么处理的？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [【PVZ小动画】硬 币 劫 案](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [建议女孩子多用原相机拍照](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [对手赢孙颖莎后开心到不知怎么形容](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [为什么中国厨师做菜加佐料都是少许，适量，而外国却精确到克？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [莫言的同学，《水浒传》编剧，竟是灭门案凶手？万字解析《悬案：旅馆案》上](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [【我在现代当幽差】：赶着去投胎啊！！！！【UP动画】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [女子美容院灌肠肠子被捅破](http://www.daogukj.com/kuavhmmy/)
-- [数码闲聊站晒麒麟9050Pro游戏实测数据](http://www.daogukj.com/bedufjas/)
-- [颜十六自曝诱骗演员王星话术](http://www.play.hengshemaoyi.cn/xiju/7689194.htm)
-- [余承东称华为将不得不涨价，存储元器件大涨使每部手机增超两百美元成本，会对消费者及手机市场有多大影响？](http://www.daogukj.com/jcrslpkp/)
-- [如何看待 C 罗就离队风波致歉并自请重罚？其或面临最高6个月禁赛，你认为他有可能顺利归队吗？](http://www.play.hengshemaoyi.cn/kongbu/8639365.htm)
-- [机票价格跳水 多航线比高铁还便宜](http://www.daogukj.com/0804205)
-- [缅北电诈犯杀陌生人祭天，明珍珍死刑前微笑接受采访，为什么这些电诈犯这么嚣张？背后可能存在哪些保护伞？](http://www.daogukj.com/gquevtwi/)
-- [柬埔寨太子集团头目陈志真容](http://www.daogukj.com/kmrfjtbk/)
-- [猫喂了没有成求救暗号](http://www.daogukj.com/vvfwljkx/)
-- [当你意识到来不及写国庆作业时](http://www.daogukj.com/0329673)
-- [演员王星案](http://www.play.hengshemaoyi.cn/xiju/8593805.htm)
-- [高芙中网第四轮状态低迷](http://www.daogukj.com/4691227)
-- [粤J2888T车主到郑州了](http://www.play.hengshemaoyi.cn/kongbu/0488493.htm)
-- [为什么有些学生初中成绩很好，到了高中就跟不上了?](http://www.daogukj.com/1097135)
-- [中国的音乐产业为什么会变成一个歌手、平台、听众三方都不满意的诡异产业？](http://www.play.hengshemaoyi.cn/xiju/0741052.htm)
-- [2026 国庆档票房 6 天破 10亿，为什么今年的增速变慢了？最终大约会到多少？](http://www.movie.hkepx.cn/xiju/0027119.htm)
-- [张馨予央视一分钟自画像](http://www.movie.hkepx.cn/xiju/7032434.htm)
-- [【算命TV】反封建迷信第一人重拳出击（字面意思）](http://www.movie.hkepx.cn/movie/4229032.htm)
-- [节后逢寒露 养生主打“秋收敛藏”](http://www.movie.hkepx.cn/xiju/0464917.htm)
-- [千万别用这个姿势坐车](http://www.play.hengshemaoyi.cn/xiju/2385137.htm)
-- [高芙无缘中网八强](http://www.play.hengshemaoyi.cn/kongbu/7794000.htm)
-- [离加油站20米燃油耗尽 车主求助被拒](http://www.movie.hkepx.cn/xiju/4679052.htm)
-- [葡萄牙队友无人点赞C罗声明](http://www.daogukj.com/2258039)
-- [弘扬长征精神 走好新时代长征路](http://www.movie.hkepx.cn/xiju/0911151.htm)
-- [何卓佳晋级WTT中国大满贯女单16强](http://www.movie.hkepx.cn/xiju/2919294.htm)
-- [佘智江被捕画面：满脸笑意 十分嚣张](http://www.daogukj.com/4572993)
-- [交通运输部提醒：免费时段即将结束](http://www.daogukj.com/uaupjwbn/)
-- [如何看待急诊医生上班期间上厕所被投诉脱岗，医生调监控自证清白？](http://www.daogukj.com/7711348)
-- [去台湾地区管辖的马祖列岛旅行...](http://www.movie.hkepx.cn/movie/8070936.htm)
-- [烧 心 大 赛 ！【AI全民制作人】](http://www.movie.hkepx.cn/xiju/5929168.htm)
-- [警方辟谣四川五通桥一处楼房垮掉](http://www.play.hengshemaoyi.cn/xiju/2633886.htm)
-- [古代皇帝吃不完的菜都是怎么处理的？](http://www.movie.hkepx.cn/movie/4735294.htm)
-- [在泰失联的上海音乐教师已安全回国](http://www.play.hengshemaoyi.cn/kongbu/7569980.htm)
-- [吴奇隆 不赚钱也是这个立场](http://www.daogukj.com/3420205)
-- [为什么同样是上节目倾诉自己的原生家庭，张家齐能够收获一众同情，代露娃却很难引起大家的同情？](http://www.movie.hkepx.cn/xiju/4061305.htm)
-- [儿子，儿媳回来过节，全家都很高兴，只是吃饭的时候，儿媳吃的很少，问她想吃啥，又不说，怎么办？](http://www.movie.hkepx.cn/xiju/5044088.htm)
-- [俄研究人员疑染鼠疫死亡近 200 人被隔离，该疫情是否有扩散风险？](http://www.daogukj.com/lbtgvjga/)
-- [中国警方：缅北电诈死灰复燃也不怕](http://www.daogukj.com/7687127)
-- [高铁静音车厢是不是馊主意？](http://www.play.hengshemaoyi.cn/xiju/2300399.htm)
-- [中国警方回应缅北电诈死灰复燃](http://www.play.hengshemaoyi.cn/kongbu/9699772.htm)
-- [电诈头目“江湖哥”佘智江出镜忏悔](http://www.play.hengshemaoyi.cn/xiju/7804499.htm)
-- [如何看待英国首相再提重新入欧，称「希望在有生之年见证」？](http://www.daogukj.com/miapvosn/)
-- [网友称过节回老家掰玉米感觉现代化离自己很远，你也有过这样割裂感的体验吗？这种返璞归真戳中了大家什么？](http://www.play.hengshemaoyi.cn/kongbu/6610421.htm)
-- [演员王星4天被卖3次](http://www.movie.hkepx.cn/movie/2073300.htm)
-- [啊啊7月新番你到底给我下了什么药啊！！【泛式】](http://www.play.hengshemaoyi.cn/xiju/0985181.htm)
-- [保时捷中国销量 4 年腰斩，其背后的原因是什么？](http://www.movie.hkepx.cn/xiju/3768661.htm)
-- [如何看待 OpenAI 公开 722 份数学手稿，宣布解决包含「准黎曼猜想」的数百个数学问题？](http://www.movie.hkepx.cn/movie/1249407.htm)
-- [“但凡少一个契机，两个人就不会相遇”【Night Crusing-降调】【世界线の小曲】](http://www.play.hengshemaoyi.cn/xiju/9352164.htm)
-- [王星4天被卖3次](http://www.play.hengshemaoyi.cn/xiju/6237396.htm)
-- [不烧心的作业我不写！！！](http://www.daogukj.com/7440566)
+- [年轻人为何觉得景区越来越没意思了](http://www.daogukj.com/kuavhmmy/)
+- [全套Adobe软件开源实现](http://www.daogukj.com/bedufjas/)
+- [曝王晓慧老公是富二代](http://www.play.hengshemaoyi.cn/xiju/7689194.htm)
+- [老师太显小](http://www.daogukj.com/jcrslpkp/)
+- [中国乒协发布声明，将推动建立赛场禁入名单制度，能有效治理粉丝乱象吗？](http://www.play.hengshemaoyi.cn/kongbu/8639365.htm)
+- [世界第1被世界第101淘汰](http://www.daogukj.com/0804205)
+- [孙颖莎 1-3 不敌泰国选手，止步 WTT 中国大满贯女单 32 强，怎样评价本场比赛？](http://www.daogukj.com/gquevtwi/)
+- [日本前外相：中日关系恶化责任在日本](http://www.daogukj.com/kmrfjtbk/)
+- [吴奇隆 不赚钱也是这个立场](http://www.daogukj.com/vvfwljkx/)
+- [啊啊7月新番你到底给我下了什么药啊！！【泛式】](http://www.daogukj.com/0329673)
+- [孙颖莎比赛前一晚一直在发烧](http://www.play.hengshemaoyi.cn/xiju/8593805.htm)
+- [演员王星4天被卖3次](http://www.daogukj.com/4691227)
+- [西班牙因「住房危机」爆发「街头怒火」运动，桑切斯宣布提前举行2026年大选，其核心经济根源是何？](http://www.play.hengshemaoyi.cn/kongbu/0488493.htm)
+- [缅北电诈犯杀陌生人祭天，明珍珍死刑前微笑接受采访，为什么这些电诈犯这么嚣张？背后可能存在哪些保护伞？](http://www.daogukj.com/1097135)
+- [演员王星案牵出跨境人口贩卖集团，其4天被卖3次，打击跨境犯罪有哪些难点？我们要提高哪些防骗意识？](http://www.play.hengshemaoyi.cn/xiju/0741052.htm)
+- [余承东称华为将不得不涨价，存储元器件大涨使每部手机增超两百美元成本，会对消费者及手机市场有多大影响？](http://www.movie.hkepx.cn/xiju/0027119.htm)
+- [缅北电诈窝点距我口岸仅200米](http://www.movie.hkepx.cn/xiju/7032434.htm)
+- [手机价格在涨 掏钱的理由没涨](http://www.movie.hkepx.cn/movie/4229032.htm)
+- [柬埔寨太子集团头目陈志押解画面曝光，太子集团以及陈志曾犯下过哪些罪行？接下来他可能面对哪些刑罚？](http://www.movie.hkepx.cn/xiju/0464917.htm)
+- [众多台湾艺人明确一个中国立场](http://www.play.hengshemaoyi.cn/xiju/2385137.htm)
+- [郑钦文成中网唯一非种子](http://www.play.hengshemaoyi.cn/kongbu/7794000.htm)
+- [代露娃 谢谢所有骂醒我的人](http://www.movie.hkepx.cn/xiju/4679052.htm)
+- [檀健次卢昱晓 身高差](http://www.daogukj.com/2258039)
+- [点赞！大国工程重器进度条刷新](http://www.movie.hkepx.cn/xiju/0911151.htm)
+- [缅方从一直通报无中国人死亡到与中方联合成立调查组，缅方的态度转变是从什么时候开始的？受哪些因素驱动？](http://www.movie.hkepx.cn/xiju/2919294.htm)
+- [郑钦文晋级中网八强](http://www.daogukj.com/4572993)
+- [俄罗斯现不明原因肺炎死亡病例](http://www.daogukj.com/uaupjwbn/)
+- [历史上有哪些是当时地位名望非常高，但是现在却没什么名气的人？](http://www.daogukj.com/7711348)
+- [孙颖莎止步中国大满贯32强](http://www.movie.hkepx.cn/movie/8070936.htm)
+- [俄称鼠疫研究人员确诊不明原因肺炎](http://www.movie.hkepx.cn/xiju/5929168.htm)
+- [如何看待 OpenAI 公开 722 份数学手稿，宣布解决包含「准黎曼猜想」的数百个数学问题？](http://www.play.hengshemaoyi.cn/xiju/2633886.htm)
+- [莫言的同学，《水浒传》编剧，竟是灭门案凶手？万字解析《悬案：旅馆案》上](http://www.movie.hkepx.cn/movie/4735294.htm)
+- [今夜股债双杀](http://www.play.hengshemaoyi.cn/kongbu/7569980.htm)
+- [王星失联前向女友求救发猫喂了没](http://www.daogukj.com/3420205)
+- [吴奇隆被曝因国庆手举国旗遭台机构取消活动，本人晒游览天坛视频，称不赚钱也是这个立场，怎样看待他的做法？](http://www.movie.hkepx.cn/xiju/4061305.htm)
+- [博主：基辅被推向最凶险临界点](http://www.movie.hkepx.cn/xiju/5044088.htm)
+- [⚡️如来 三界巡演⚡️【AI MV大赛】](http://www.daogukj.com/lbtgvjga/)
+- [上3休1再上5休2](http://www.daogukj.com/7687127)
+- [《每日邮报》报道俄罗斯鼠疫出现第二例死亡患者，美督促在俄公民立即离境接受14天隔离，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/2300399.htm)
+- [孙颖莎爆冷止步32强](http://www.play.hengshemaoyi.cn/kongbu/9699772.htm)
+- [佘智江落网时嚣张妄言人脉能摆平](http://www.play.hengshemaoyi.cn/xiju/7804499.htm)
+- [如何看待华为余承东官宣鸿蒙出海：正在考虑未来逐步将 HarmonyOS 推向全球市场，你怎么看？](http://www.daogukj.com/miapvosn/)
+- [去台湾地区管辖的马祖列岛旅行...](http://www.play.hengshemaoyi.cn/kongbu/6610421.htm)
+- [在一个没有手性的世界里如何可以产生手性物质？](http://www.movie.hkepx.cn/movie/2073300.htm)
+- [反向旅游 陕西铜川！这次我要把铜川拍透…](http://www.play.hengshemaoyi.cn/xiju/0985181.htm)
+- [【完整版】纪录片《缅北电诈覆灭纪实》第二集《犁庭扫穴》](http://www.movie.hkepx.cn/xiju/3768661.htm)
+- [【科学史】那些年，科学家用光遗传做的鬼畜实验……](http://www.movie.hkepx.cn/movie/1249407.htm)
+- [【完整版】纪录片《缅北电诈覆灭纪实》第三集《共筑天网》](http://www.play.hengshemaoyi.cn/xiju/9352164.htm)
+- [孙颖莎爆冷1-3不敌泰国选手](http://www.play.hengshemaoyi.cn/xiju/6237396.htm)
+- [孙颖莎发布会落座瞬间面露疼痛](http://www.daogukj.com/7440566)
 
 </details>
 
 ## 原始来源
 
-- [缅北电诈主犯反问民警杀人要什么感受](https://www.toutiao.com/trending/7693598861029458483/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2215%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227693598861029458483%22%2C%22hot_board_impr_id%22%3A%222026100717225919C5339143C7CCEA3964%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
+- [为何清北的牌子在哪儿都能吃得开，唯独学术圈吃不开？](https://www.zhihu.com/question/9265507272)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b988acd396a13eb1ac3b -->
+<!-- content-fingerprint: 2dcdcfd3607a62e4f59d -->
