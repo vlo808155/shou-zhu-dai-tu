@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何评价江淮汽车股价跌停？和尊界风波有关吗？
+# 女子在美容院做「排毒水光肌」套餐，灌肠时肠子被捅破致肠穿孔，这有多危险？美容院要承担哪些责任？
 
-> 来源：知乎热榜 · 排名：第 5 位 · 热度：264 万热度 · 分类：问答 · 更新：2026-10-09T04:34:07+08:00
+> 来源：知乎热榜 · 排名：第 5 位 · 热度：194 万热度 · 分类：问答 · 更新：2026-10-09T08:38:13+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何评价江淮汽车股价跌停？和尊界风波有关吗？”位列第 5 位，公开热度指标为 264 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“女子在美容院做「排毒水光肌」套餐，灌肠时肠子被捅破致肠穿孔，这有多危险？美容院要承担哪些责任？”位列第 5 位，公开热度指标为 194 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月8日，江淮汽车（600418.SH）盘中跌停，截至午盘报24.72元/股，跌10.01%，成交额超35亿元。 消息面上，当天“尊界V800刹车踏板支架断裂”“尊界懂车帝 ”等消息先后冲上热搜。此前，汽车垂直领域平台懂车帝发布的相关测试视频称，被测试的三台尊界V800在紧急制动时，发生了刹车踏板支架断裂的问题。 该消息受到市场广泛关注，网友呼吁江淮汽车对尊界V800展开调查，但也有不少人质疑本场测试是否合规。其中，不乏有声音质疑该测试属于连续暴力重刹，不属于日常道路国标工况，还有网友提到该平台此前多次测试鸿蒙智行车型并引发争议。 尊界是鸿蒙智行旗下，
+来源公开摘要显示：10月6日，据浙医在线：42岁的李女士平时特别注重保养，在美容院砸重金买下了号称能“排毒焕亮水光肌”的高端灌肠排毒套餐。然而，灌肠时，随着不明液体被盲目加压灌入，李女士突然感觉肚子一阵撕裂般的剧痛，瞬间冷汗直冒、几近休克。 被紧急送医抢救后，医生发现，不正规的灌肠操作已经把脆弱的肠子捅破，导致肠穿孔，大量粪便和肠管内容物漏进肚子里，引发了极其凶险的弥漫性腹膜炎，住进了重症监护室。所幸救治及时，最终脱离危险。 浙江省立同德医院肛肠外科主任陈诚豪主任介绍，灌肠，简单说就是将一定量的液体通过肛门注入直肠和结肠，以达到清洁肠道、给药、降温或诊断等目的的一种医疗操
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,18 +18,18 @@
 
 ## 相关热点
 
-- [《阴阳师》咲耶CG丨拾此一瞬（CV：小泽亚李）](po-fu-chen-zhou.md)
-- [新郎婚礼当天去医院看病后离世](bei-shui-yi-zhan.md)
-- [崔晋李勒优聊天记录](zhi-shang-tan-bing.md)
-- [央视披露紧急营救北斗卫星](wei-wei-jiu-zhao.md)
+- [男子放生清道夫引热议，这鱼为何非灭不可？再遇本土大鱼的开心](po-fu-chen-zhou.md)
+- [人需要一场旷世长久的长假](bei-shui-yi-zhan.md)
+- [缅北电诈逃脱者的自救建议：别打车](zhi-shang-tan-bing.md)
+- [12306老是说其他不是官方授权，不是官方授权，他们为什么能卖票？他们的票又是从哪里来的？](wei-wei-jiu-zhao.md)
 
 ## 站内推荐
 
-- [央行发布关于人民币汇率的政策立场，称中国没有必要，也无意通过汇率贬值获取贸易竞争优势，如何解读？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [德法提议设贸易「紧急切断开关」指向中国，将对中欧经贸产生何种影响？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [“站在台中间串两边，全明星百分百参团”【Immortals-Deep】【百分百参团の小曲】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [在大山支教 学校宿舍水太小又冷，已经半个月没洗澡了，扛不住了抓住假期的尾巴出山进城开房洗澡 买菜 拿物资..](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [带班主任体验黄毛的一天](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [古代打仗士兵为什么总是要军饷？能保证自己能活下来花吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [迈克尔·高启强 世界巡演【AI MV大赛】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [出重拳：李在明决心终结“韩奸富三代”乱象](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [一口气训两个](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [广东佛山：发生食源性疾病聚集事件](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [【剧情】长生契（2026）20【方逸伦 / 谢可寅】](http://www.daogukj.com/epcjcrex/)
-- [女子捡到一袋5元纸币不知如何处理](http://www.movie.hkepx.cn/xiju/7554306.htm)
-- [赵晴化的这个妆据说要好几万](http://www.daogukj.com/7098171)
-- [如何评价字节Seed团队发现DeepSeek性能漂移？](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
+- [考研预报名开启](http://www.movie.hkepx.cn/xiju/7554306.htm)
+- [向佐曾因过量喝蛋白粉把肾喝成70岁](http://www.daogukj.com/7098171)
+- [711 便利店关闭印度全部门店，背后的原因是什么？](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
 - [【独家】时光代理人 第三季 PartOne 第10集 错位的救赎【8月国创】](http://www.daogukj.com/5595330)
-- [肺鼠疫可飞沫传播](http://www.movie.hkepx.cn/xiju/4881611.htm)
-- [张本智和被“满电战神”打没电了](http://www.daogukj.com/2794428)
+- [新郎婚礼当天去医院看病后离世](http://www.movie.hkepx.cn/xiju/4881611.htm)
+- [谭松韵分享许兰香的情感内核](http://www.daogukj.com/2794428)
 - [湖南一女局长被举报婚内出轨多人](http://www.movie.hkepx.cn/movie/0220033.htm)
-- [【EPL表演赛】当CS的最强教练们再次进入服务器](http://www.daogukj.com/3787812)
+- [中国屌丝用7千块花掉印度人半年的薪资，体验婆罗门生活，富人生活到底有多奢侈？](http://www.daogukj.com/3787812)
 - [唐驳虎：俄“鼠疫”惊动几大邻国](http://www.movie.hkepx.cn/movie/2410306.htm)
-- [空房未用暖气被收违约金](http://www.movie.hkepx.cn/movie/4961738.htm)
-- [宇树科技股价较上市高点跌超60%](http://www.movie.hkepx.cn/xiju/4077836.htm)
-- [新冠刚开始也是不明原因肺炎](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
-- [带班主任体验黄毛的一天](http://www.daogukj.com/rrqdxtcv/)
-- [如何看待 DeepSeek 估值已接近 5000 亿元？](http://www.daogukj.com/5407672)
-- [越南连续推出多型主战装备，其军工为何能「突然崛起」？](http://www.daogukj.com/9043091)
+- [崔晋李勒优聊天记录](http://www.movie.hkepx.cn/movie/4961738.htm)
+- [医生：40岁后一定要防猝死](http://www.movie.hkepx.cn/xiju/4077836.htm)
+- [高血压是最常见的心血管疾病之一](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
+- [广东佛山：发生食源性疾病聚集事件](http://www.daogukj.com/rrqdxtcv/)
+- [跳水运动员张家齐和她母亲的关系揭示了中国式母女的哪些问题？](http://www.daogukj.com/5407672)
+- [黄仁勋女婿晋升英伟达副总裁并操盘核心业务，释放了哪些信号？](http://www.daogukj.com/9043091)
 - [《和樱花妹互换身体の日常》第五集【AI全民制作人】](http://www.daogukj.com/9116005)
-- [肺鼠疫症状](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
-- [女子开超小养老院只收六人](http://www.daogukj.com/eqgomafp/)
-- [兰州牛肉面馆 “最强大脑”师傅](http://www.daogukj.com/7605991)
-- [“为了看短剧 我妈两年花22万”](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
-- [为什么说华中科技大学是工科大学中的异类？](http://www.movie.hkepx.cn/movie/4360714.htm)
-- [俄罗斯不明肺炎会传进来吗](http://www.daogukj.com/4727961)
+- [俄罗斯鼠疫](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
+- [感觉不对劲一定不要回应](http://www.daogukj.com/eqgomafp/)
+- [赵丽颖 飞天奖](http://www.daogukj.com/7605991)
+- [厄尔尼诺现象预计在12月达到峰值](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
+- [带班主任体验黄毛的一天](http://www.movie.hkepx.cn/movie/4360714.htm)
+- [女儿向八旬母亲借钱救命被拒](http://www.daogukj.com/4727961)
 - [“新疆棕熊索食险酿大祸”系编造](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
-- [黑龙江鹤岗一秒入冬银装素裹](http://www.movie.hkepx.cn/xiju/3457747.htm)
-- [床车旅行管理正在持续升级](http://www.movie.hkepx.cn/movie/9116389.htm)
-- [李子坝地下33米藏一亿现钞](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
-- [我国房地产进入存量时代，二手房交易占比超 50%，现房销售是大势所趋，普通人买房该如何调整思路？](http://www.movie.hkepx.cn/movie/6275425.htm)
+- [国际油价深夜大涨](http://www.movie.hkepx.cn/xiju/3457747.htm)
+- [看完缅北电诈覆灭纪实纪录片，最让你感慨的是什么？](http://www.movie.hkepx.cn/movie/9116389.htm)
+- [高速免费最后一刻女子淡定缴费](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
+- [向佐自曝喝蛋白粉把肾喝成了「70 岁」，真的会这样吗？蛋白粉怎样喝才正确？](http://www.movie.hkepx.cn/movie/6275425.htm)
 - [让长征故事代代相传](http://www.daogukj.com/6962158)
-- [李一桐le成断层第一](http://www.movie.hkepx.cn/movie/3536173.htm)
-- [曝华为 Mate 90 系列手机首销期销量超 27 万台，“超大杯”占比约 40% 你怎么看？](http://www.daogukj.com/5602314)
-- [国内有哪些「德不配位」的 5A 级景区？](http://www.daogukj.com/rhzksqyv/)
-- [女局长被举报婚内出轨多人家属发声](http://www.daogukj.com/ciddvmwp/)
-- [祁连县官方回应征用宿舍事件，称宿舍已复原消杀，给学生发放文创礼包，如何评价这次处置与善后措施？](http://www.movie.hkepx.cn/xiju/5158718.htm)
-- [国庆电影票房以 11.65 亿收官，创十三年来新低，如何看待国庆档电影票房持续走低？](http://www.movie.hkepx.cn/xiju/4192777.htm)
-- [周启豪零封张本智和晋级8强](http://www.movie.hkepx.cn/xiju/6976677.htm)
-- [139万元的药一年半才等到第一个患者](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
-- [如何看待欧洲反华决议高票通过](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
-- [纪委回应女局长被举报婚内出轨多人](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
-- [外交部回应直呼高市早苗名字](http://www.daogukj.com/3262256)
-- [从未见过如此「好笑」之人丨丞相还挺忙·于洋](http://www.daogukj.com/2924239)
-- [《原神》过场动画-「生与死的流速」](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
-- [新郎婚礼当天去医院看病后离世](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
-- [央行发布关于人民币汇率的政策立场，称中国没有必要，也无意通过汇率贬值获取贸易竞争优势，如何解读？](http://www.daogukj.com/cszxbbqq/)
-- [【断网补全计划149】太阳之子，闪身步，不烧心，农大科比，雨中霸王龙，超长蛋挞，疯狂水世界，冰冰冰，咕咕嘎嘎小孩，野人先生罗永浩风波，钟薛高复活](http://www.movie.hkepx.cn/movie/9183199.htm)
-- [购房者买房多年才得知客厅正上方天台埋着一座土坟，房东和物业应承担责任吗？购房者应怎样维权？](http://www.daogukj.com/zmttmgkb/)
+- [曾舜晞19岁至29岁颜值变化](http://www.movie.hkepx.cn/movie/3536173.htm)
+- [有事没事儿，尽喜欢做点好吃的、新鲜玩意给家里人尝一尝！好好吃饭就是好好生活！【睡个好觉】](http://www.daogukj.com/5602314)
+- [网传一车主后备箱装十箱矿泉水被罚，称因为「客货混装」，这是真的吗？后备箱怎么装会违规？](http://www.daogukj.com/rhzksqyv/)
+- [肺鼠疫症状](http://www.daogukj.com/ciddvmwp/)
+- [如何看待央视六套时隔18年，将于10月10日重播《楚门的世界》？你对该影片有什么感想？](http://www.movie.hkepx.cn/xiju/5158718.htm)
+- [如何在中国合法造一把你自己的枪？【鹰哥Studio】](http://www.movie.hkepx.cn/xiju/4192777.htm)
+- [向佐喝蛋白粉把肾喝成70岁](http://www.movie.hkepx.cn/xiju/6976677.htm)
+- [郭晶晶有新身份 霍启刚：特别骄傲](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
+- [俄不明原因肺炎地区正解除防疫措施](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
+- [林依晨婆婆和纯美婆婆一模一样](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
+- [内娱女配“掀桌”式爆火背后](http://www.daogukj.com/3262256)
+- [中国代表在联合国批驳日本](http://www.daogukj.com/2924239)
+- [上厕所先洗手还是后洗手](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
+- [人需要一场旷世长久的长假](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
+- [古代打仗士兵为什么总是要军饷？能保证自己能活下来花吗？](http://www.daogukj.com/cszxbbqq/)
+- [“为了看短剧 我妈两年花22万”](http://www.movie.hkepx.cn/movie/9183199.htm)
+- [如何评价字节Seed团队发现DeepSeek性能漂移？](http://www.daogukj.com/zmttmgkb/)
 - [超市生存挑战后续！4人吃完整个超市赢100万美金！](http://www.movie.hkepx.cn/xiju/7610500.htm)
-- [崔晋称会发声明回应](http://www.movie.hkepx.cn/xiju/6364739.htm)
-- [三甲医生回应“喝大水”](http://www.daogukj.com/5178801)
-- [如何看待现在大部分零零后学生几乎不会使用网址进行搜索？](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
+- [贺峻霖粉丝要爱贺峻霖一辈子了](http://www.movie.hkepx.cn/xiju/6364739.htm)
+- [汽车重要部件 原料价格暴涨](http://www.daogukj.com/5178801)
+- [2026WTT中国大满贯，温瑞博2-3惜败莫雷加德，无缘男单八强，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何评价江淮汽车股价跌停？和尊界风波有关吗？](https://www.zhihu.com/question/2091510176536687944)
+- [女子在美容院做「排毒水光肌」套餐，灌肠时肠子被捅破致肠穿孔，这有多危险？美容院要承担哪些责任？](https://www.zhihu.com/question/2091169766090043415)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ec446b74a6f883a247e3 -->
+<!-- content-fingerprint: f9ae5d05cb02c5ce6204 -->
