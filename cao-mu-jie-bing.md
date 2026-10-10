@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 安德列娃横扫对手挺进中网决赛
+# 两名内地女学生在澳门非法旅拍被捕，为什么属于非法务工？雇主和摄影师会面临什么处罚？
 
-> 来源：今日头条热榜 · 排名：第 9 位 · 热度：8311219 · 分类：新事件上榜 · 更新：2026-10-10T16:59:21+08:00
+> 来源：知乎热榜 · 排名：第 7 位 · 热度：386 万热度 · 分类：问答 · 更新：2026-10-10T23:13:23+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“安德列娃横扫对手挺进中网决赛”位列第 9 位，公开热度指标为 8311219，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“两名内地女学生在澳门非法旅拍被捕，为什么属于非法务工？雇主和摄影师会面临什么处罚？”位列第 7 位，公开热度指标为 386 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：据广州日报，近日，澳门治安警侦破一宗非法工作案件，两名持旅客身份入境的内地女学生，因在澳门开展有偿旅拍服务、非法雇佣涉事人员被查获。 据悉，10月1日傍晚，澳门特区政府治安警警员在路氹连贯公路巡查时，发现两名女子正在拍摄并进行现金交易，疑似存在非法工作嫌疑，随即上前截查。 经调查，20岁的内地女学生张某，通过社交平台联系到21岁的内地女子张某，以400元人民币时薪聘请对方到澳门，为自己及友人提供旅拍服务，二人事前互不相识。警方现场检获1部相机、3部手提电话等涉案证物。 目前，案件已进入后续处置流程。出资雇人的张某涉嫌触犯澳门特区“不合规范的雇用罪”，被警
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
 - [讨伐型人格大合集](feng-sheng-he-li.md)
-- [44岁副院长下车避险 高架桥坠落去世](ru-huo-ru-tu.md)
-- [C罗领跑历史最伟大金球奖投票](yi-gu-zuo-qi.md)
-- [男领导发淫秽照女下属母亲讨说法](yi-zi-qian-jin.md)
+- [钢笔、黑胶唱片、胶片、刺绣火了](ru-huo-ru-tu.md)
+- [羊水栓塞抢救要花很多钱](yi-gu-zuo-qi.md)
+- [人社部：新就业形态人员可按单参保](yi-zi-qian-jin.md)
 
 ## 站内推荐
 
-- [【独家】《凡人修仙传之慕兰之战》第19集【总第195集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [对话孙宇晨：年轻人如何抓住AI时代的机会？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [王仁君成功接班唐国强](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [山姆 亲友卡新规](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [迪丽热巴阿道夫](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [郑钦文打丢高压向观众喊：不要说话](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [多家烘焙店陆续下架超长蛋挞，为啥网红小吃总难逃昙花一现的命运？有啥破局之法吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [国庆景区热度前十被小城包揽，这会成为一种旅游趋势吗？你会选择大城市出游还是小城呢？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [潜伏为什么结局写这么残忍？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [顾客称在胖东来购物结账时发现多收 27.79 元，次日退还款项还额外补偿两百元，如何看待这一处理方式？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [C罗领跑历史最伟大金球奖投票](http://www.play.hengshemaoyi.cn/kongbu/8543260.htm)
-- [【豪物语】：就你叫嘉豪啊 【UP动画】](http://www.movie.hkepx.cn/movie/4724518.htm)
-- [御灵师第2集](http://www.play.hengshemaoyi.cn/kongbu/0028042.htm)
-- [突然发现物业费比房贷可怕多了](http://www.play.hengshemaoyi.cn/xiju/3193472.htm)
-- [巴拿马强震高楼泳池水变瀑布](http://www.movie.hkepx.cn/xiju/5695874.htm)
-- [山姆 亲友卡新规](http://www.play.hengshemaoyi.cn/kongbu/9716007.htm)
-- [宋佳回应获三大奖争议](http://www.play.hengshemaoyi.cn/kongbu/6976710.htm)
-- [大学讲GalGame这一块](http://www.daogukj.com/6389351)
-- [花少偶数季魔咒确实服了](http://www.movie.hkepx.cn/xiju/4891708.htm)
-- [鼓励灵活就业人员参加职工养老保险](http://www.movie.hkepx.cn/xiju/9183020.htm)
-- [人社部：坚决守好群众的民生家底](http://www.daogukj.com/mgeudand/)
-- [买榴莲开出土豆太离谱](http://www.daogukj.com/thgbmsar/)
-- [长沙文玩地摊惊现两套“金缕玉衣”](http://www.movie.hkepx.cn/movie/7141685.htm)
-- [巴拿马强震 有人一口气跑下48楼](http://www.movie.hkepx.cn/movie/8285250.htm)
-- [林诗栋退出亚锦赛男单混双](http://www.play.hengshemaoyi.cn/kongbu/8845063.htm)
-- [巴拿马华人从51楼跑下来花10多分钟](http://www.play.hengshemaoyi.cn/xiju/1186264.htm)
-- [自闭症男童乘电梯遭陌生男子踹飞](http://www.movie.hkepx.cn/xiju/0249486.htm)
-- [【独家】《凡人修仙传之慕兰之战》第19集【总第195集】](http://www.daogukj.com/7987932)
-- [小时候幻想过的事](http://www.play.hengshemaoyi.cn/xiju/9727864.htm)
-- [丰收的中国如此多娇](http://www.daogukj.com/1491749)
-- [极极极极，极限战场👉🏻首曝极首测，所见极所玩](http://www.play.hengshemaoyi.cn/xiju/5312952.htm)
-- [超市里……未检测到人脸……](http://www.movie.hkepx.cn/movie/1704748.htm)
-- [31岁男子练背一年换了张脸](http://www.movie.hkepx.cn/movie/6434749.htm)
-- [人社部：全面推进“退休预服务”](http://www.movie.hkepx.cn/xiju/3903629.htm)
-- [人社部：要把未参保人员找到动员参保](http://www.play.hengshemaoyi.cn/kongbu/1169569.htm)
+- [羊水栓塞抢救要花很多钱](http://www.play.hengshemaoyi.cn/kongbu/8543260.htm)
+- [王仁君击败于和伟，凭《浴血荣光》首获飞天视帝，他在这部作品中的表现如何？](http://www.movie.hkepx.cn/movie/4724518.htm)
+- [手脚发麻不是小毛病](http://www.play.hengshemaoyi.cn/kongbu/0028042.htm)
+- [《甲乙丙丁》，但是昭和金曲（citypop日语版）【AI MV大赛】](http://www.play.hengshemaoyi.cn/xiju/3193472.htm)
+- [王曼昱：决赛打佐藤瞳会很艰苦](http://www.movie.hkepx.cn/xiju/5695874.htm)
+- [潜伏为什么结局写这么残忍？](http://www.play.hengshemaoyi.cn/kongbu/9716007.htm)
+- [葡萄牙足协公布C罗处罚结果](http://www.play.hengshemaoyi.cn/kongbu/6976710.htm)
+- [张雪机车葡萄牙站第1回合德比斯第6](http://www.daogukj.com/6389351)
+- [【独家】《凡人修仙传之慕兰之战》第19集【总第195集】](http://www.movie.hkepx.cn/xiju/4891708.htm)
+- [郑钦文排名](http://www.movie.hkepx.cn/xiju/9183020.htm)
+- [老歌还是得老东西来唱『深夜之门/Stay With Me』翻唱【bilibili次元干杯】](http://www.daogukj.com/mgeudand/)
+- [人社部：全面推进“退休预服务”](http://www.daogukj.com/thgbmsar/)
+- [如何评价邵艾伦对话孙宇晨4.5小时？](http://www.movie.hkepx.cn/movie/7141685.htm)
+- [黄磊二女儿和黄磊一模一样](http://www.movie.hkepx.cn/movie/8285250.htm)
+- [为什么中国的影视行业至今都没有一个有普遍大众公信力的奖项？](http://www.play.hengshemaoyi.cn/kongbu/8845063.htm)
+- [刘琳琳抖音账号被封](http://www.play.hengshemaoyi.cn/xiju/1186264.htm)
+- [郑钦文创中网历史](http://www.movie.hkepx.cn/xiju/0249486.htm)
+- [郑钦文打丢高压向观众喊：不要说话](http://www.daogukj.com/7987932)
+- [男性衰老时身体或会有4大变化](http://www.play.hengshemaoyi.cn/xiju/9727864.htm)
+- [男子在 ICU 抢救，母亲却取不出儿子存款救命，银行称家属须出具法定监护人身份证明，这规定合理吗？](http://www.daogukj.com/1491749)
+- [抗癌药物研发迎来重要突破](http://www.play.hengshemaoyi.cn/xiju/5312952.htm)
+- [【年度级预告片】轮回，由你打破！](http://www.movie.hkepx.cn/movie/1704748.htm)
+- [多家医院、卫生院暂停夜间门诊，为什么会这样？对患者夜间就诊影响有多大？](http://www.movie.hkepx.cn/movie/6434749.htm)
+- [快把家里的盐换了 可以帮助控血压](http://www.movie.hkepx.cn/xiju/3903629.htm)
+- [郑钦文首次晋级中网女单决赛](http://www.play.hengshemaoyi.cn/kongbu/1169569.htm)
 - [讨伐型人格大合集](http://www.movie.hkepx.cn/movie/4527568.htm)
-- [【大鸣王潮1566】岁主帮岁共](http://www.play.hengshemaoyi.cn/xiju/6189163.htm)
-- [社保卡有金卡？北京人社局：诈骗](http://www.daogukj.com/0521779)
-- [史上最大现金收购案 富二代如何正确拼爹](http://www.daogukj.com/5716979)
-- [因地制宜 推动县域经济高质量发展](http://www.movie.hkepx.cn/movie/6813612.htm)
-- [中国女孩美国买特斯拉惨遭逮捕，神秘背景牵出跨国惊天大案！](http://www.play.hengshemaoyi.cn/kongbu/0013525.htm)
-- [螃蟹蒸出来的白色固体是螃蟹血？原来这些动物的血都不是红色的！【主播说三农】](http://www.daogukj.com/sijbwiiz/)
-- [中学要求家长轮值：老师不能连续工作](http://www.movie.hkepx.cn/xiju/5793926.htm)
-- [单亲妈妈仅退款童装勒索3千被刑拘](http://www.movie.hkepx.cn/movie/5566595.htm)
-- [王曼昱蒯曼夺中国大满贯女双冠军](http://www.movie.hkepx.cn/movie/7078471.htm)
-- [沐言父母 过度包装女儿](http://www.play.hengshemaoyi.cn/kongbu/3140322.htm)
-- [钟南山团队发布肺癌病理基因AI模型](http://www.play.hengshemaoyi.cn/kongbu/9870126.htm)
-- [人社部：打破户籍身份等限制](http://www.movie.hkepx.cn/movie/3347353.htm)
-- [深圳公园的椅子竟然是外卖盒做的](http://www.play.hengshemaoyi.cn/xiju/4013867.htm)
-- [【颠覆】我用AI魔改周星驰电影宇宙 【AI全民制作人】](http://www.daogukj.com/neoiosto/)
-- [今天做个屋](http://www.daogukj.com/2254144)
-- [新质生产力发展有了清晰路线图](http://www.play.hengshemaoyi.cn/xiju/2382409.htm)
-- [宋佳回应飞天奖争议](http://www.daogukj.com/9886230)
-- [44岁副院长下车避险 高架桥坠落去世](http://www.play.hengshemaoyi.cn/kongbu/5207966.htm)
-- [赤峰一渣土车侧翻 17岁女孩身亡](http://www.movie.hkepx.cn/movie/7743518.htm)
-- [专家：不认同中国房地产进入筑底阶段](http://www.daogukj.com/dzqtqzgj/)
-- [雨哥到处跑新车曝光！居然是……](http://www.play.hengshemaoyi.cn/kongbu/2288019.htm)
-- [沐言爸爸 太烧心啦](http://www.play.hengshemaoyi.cn/xiju/9678725.htm)
-- [女子仅退款9斤蜜薯称有本事来拿](http://www.play.hengshemaoyi.cn/kongbu/9902985.htm)
-- [《阴阳师》咲耶CG丨拾此一瞬（CV：小泽亚李）](http://www.play.hengshemaoyi.cn/kongbu/8033858.htm)
+- [国乒调整亚锦赛名单，林诗栋不参加男单混双项目，梁靖崑不参加男单男团项目，如何评价新名单？](http://www.play.hengshemaoyi.cn/xiju/6189163.htm)
+- [鼓励灵活就业人员参加职工养老保险](http://www.daogukj.com/0521779)
+- [耗时一年，改造善良老人晚年，完整后续来了！](http://www.daogukj.com/5716979)
+- [《司机の噩梦》](http://www.movie.hkepx.cn/movie/6813612.htm)
+- [雅思考试取消考生在考场外大哭](http://www.play.hengshemaoyi.cn/kongbu/0013525.htm)
+- [深圳一高颜值新娘撞脸赵丽颖赵露思](http://www.daogukj.com/sijbwiiz/)
+- [两名中国男子国庆赴泰旅游失联](http://www.movie.hkepx.cn/xiju/5793926.htm)
+- [deepseek 翻唱《人是猫》完整版，大肥鱼觉得人和猫一样可爱,所以人是猫](http://www.movie.hkepx.cn/movie/5566595.htm)
+- [医生：七成肝癌早期没症状](http://www.movie.hkepx.cn/movie/7078471.htm)
+- [人民日报评畸形饭圈：赛场不容戾气](http://www.play.hengshemaoyi.cn/kongbu/3140322.htm)
+- [超市里……未检测到人脸……](http://www.play.hengshemaoyi.cn/kongbu/9870126.htm)
+- [黄建生向江秋莲公开道歉](http://www.movie.hkepx.cn/movie/3347353.htm)
+- [郑钦文打丢高压球现场喊话：不要说话](http://www.play.hengshemaoyi.cn/xiju/4013867.htm)
+- [崔晋说李勒优的钱都拿去买车开店](http://www.daogukj.com/neoiosto/)
+- [未来五年推进就业有哪些新变化](http://www.daogukj.com/2254144)
+- [人社部：要把未参保人员找到动员参保](http://www.play.hengshemaoyi.cn/xiju/2382409.htm)
+- [如何像人类一样开车](http://www.daogukj.com/9886230)
+- [钢笔、黑胶唱片、胶片、刺绣火了](http://www.play.hengshemaoyi.cn/kongbu/5207966.htm)
+- [【春物语】我的婚后生活果然有问题 第4话：小町的嫂子分数，加上前社长的经验。](http://www.movie.hkepx.cn/movie/7743518.htm)
+- [家委倡导家长轮岗照看学生午休](http://www.daogukj.com/dzqtqzgj/)
+- [国防部：日本必须履行二战战败国义务](http://www.play.hengshemaoyi.cn/kongbu/2288019.htm)
+- [张雪机车德比斯夺葡萄牙站首回合第6](http://www.play.hengshemaoyi.cn/xiju/9678725.htm)
+- [巴拿马华人从51楼跑下来花10多分钟](http://www.play.hengshemaoyi.cn/kongbu/9902985.htm)
+- [自闭症男童电梯被踹飞 当地妇联回应](http://www.play.hengshemaoyi.cn/kongbu/8033858.htm)
 
 </details>
 
 ## 原始来源
 
-- [安德列娃横扫对手挺进中网决赛](https://www.toutiao.com/trending/7694184395044831241/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227694184395044831241%22%2C%22hot_board_impr_id%22%3A%2220261010165902CC820A703A216443DABB%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [两名内地女学生在澳门非法旅拍被捕，为什么属于非法务工？雇主和摄影师会面临什么处罚？](https://www.zhihu.com/question/2092196902880203160)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 805f78f641aa1e504162 -->
+<!-- content-fingerprint: a8c0db62d9b01d7155b5 -->
