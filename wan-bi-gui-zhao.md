@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如果把一根压紧的弹簧放进酸里溶解，它的弹性势能到哪里去了？
+# 单亲妈妈仅退款童装勒索3千被刑拘
 
-> 来源：知乎热榜 · 排名：第 6 位 · 热度：229 万热度 · 分类：问答 · 更新：2026-10-10T10:35:56+08:00
+> 来源：微博热搜 · 排名：第 8 位 · 热度：546823 · 分类：辟谣/通报 · 更新：2026-10-10T16:59:21+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如果把一根压紧的弹簧放进酸里溶解，它的弹性势能到哪里去了？”位列第 6 位，公开热度指标为 229 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“单亲妈妈仅退款童装勒索3千被刑拘”位列第 8 位，公开热度指标为 546823，榜单分类为“辟谣/通报”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：如果把一根压紧的弹簧放进酸里溶解，它的弹性势能到哪里去了？ 什么是势能？本质是动能吗？一切形式能量是否就是势能和动能的混合？
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `辟谣/通报`
 
 ## 相关热点
 
-- [【大鸣王潮1566】岁主帮岁共](fu-jing-qing-zui.md)
-- [宋佳集齐三大奖](mao-sui-zi-jian.md)
-- [为啥以前去医院医生看一眼就知道啥病，现在上来就是一堆检查单？](san-gu-mao-lu.md)
-- [雨哥到处跑新车曝光！居然是……](cao-mu-jie-bing.md)
+- [今年已下达养老保险补助金约1.2万亿](fu-jing-qing-zui.md)
+- [中国女孩美国买特斯拉惨遭逮捕，神秘背景牵出跨国惊天大案！](mao-sui-zi-jian.md)
+- [核磁共振为什么这么贵](san-gu-mao-lu.md)
+- [安德列娃横扫对手挺进中网决赛](cao-mu-jie-bing.md)
 
 ## 站内推荐
 
-- [大学生骑车时被改装电动车撞后离世，家属称难以接受肇事者与死者共担事故同等责任，各方责任到底该咋划定？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [“盛家的儿女一个比一个争气”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [夫妻一方出轨 向过错方要钱算敲诈吗](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [多家医院、卫生院暂停夜间门诊](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [巴拿马7.6级强震](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [【豪物语】：就你叫嘉豪啊 【UP动画】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [办社保卡金卡每月发补贴？系诈骗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [武网](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [突然发现物业费比房贷可怕多了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [人社部：坚决守好群众的民生家底](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [郑钦文：我一直在成为更好自己的路上](http://www.daogukj.com/3042716)
-- [市场不跟涨反跟跌问题出在哪](http://www.movie.hkepx.cn/movie/2061637.htm)
-- [【大鸣王潮1566】岁主帮岁共](http://www.daogukj.com/whcykmxi/)
-- [中纪委连打两虎](http://www.daogukj.com/8289578)
-- [武汉一中学要求家长到校轮值延时晚自习，且必须是学生父母，当地教育局回应已介入调查，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/6917669.htm)
-- [现在不是出轨的问题](http://www.daogukj.com/1323195)
-- [【手术TV】先生！我知道这很荒诞，但人还得往前看......](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
-- [秦海璐颁奖前口误王雷紧急救场](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
-- [国内航线燃油附加费今起上调](http://www.movie.hkepx.cn/xiju/7626363.htm)
-- [养了五年的猫突然开线还能修吗](http://www.daogukj.com/zbetfxek/)
-- [普京特朗普通话 俄将向全球供应石油](http://www.daogukj.com/6022603)
-- [王仁君回复刘钧刘琳](http://www.movie.hkepx.cn/xiju/5313504.htm)
-- [为什么很多人买新能源车之前很兴奋，开了一年后却开始怀念燃油车？](http://www.daogukj.com/xdexhduz/)
-- [假如人体是一个宿主，哪个器官最像寄生者？](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
-- [卫星互联网低轨27组卫星成功发射](http://www.movie.hkepx.cn/movie/6492359.htm)
-- [爆发！中国资产大涨](http://www.daogukj.com/6000133)
-- [妈妈回应沐言为何没读私立学校](http://www.daogukj.com/ajsfeojq/)
-- [deepseek 翻唱《人是猫》完整版，大肥鱼觉得人和猫一样可爱,所以人是猫](http://www.movie.hkepx.cn/xiju/4278075.htm)
-- [《老友记》五人组拒演“钱德勒”纪录片](http://www.movie.hkepx.cn/movie/5534562.htm)
-- [下周一A股怎么走](http://www.daogukj.com/6871213)
-- [夫妻一方出轨 向过错方要钱算敲诈吗](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
-- [《国色芳华》等获飞天奖优秀电视剧奖](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
-- [广交会即将开幕](http://www.movie.hkepx.cn/xiju/4051583.htm)
-- [多地宣布中小学春秋假安排](http://www.daogukj.com/4848168)
-- [从什么时候开始，报喜不报忧成了本能？｜暗叫 - きくお](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
-- [媒体：许多球员没有资格进入国足](http://www.movie.hkepx.cn/movie/2894342.htm)
-- [如何评价邵艾伦对话孙宇晨4.5小时？](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
-- [两名内地女学生在澳门非法旅拍被捕](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
-- [为什么没人责怪林黛玉不劝宝玉走仕途经济呢?](http://www.movie.hkepx.cn/xiju/8848024.htm)
-- [四大家族覆灭后，纪录片之外的电诈如何了？](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
-- [普京：俄愿向美国及全球市场供应石油](http://www.movie.hkepx.cn/xiju/3438884.htm)
-- [法国最近太烧心了](http://www.daogukj.com/ieqapfew/)
-- [飞天奖获奖名单](http://www.daogukj.com/8044050)
-- [“献血前空腹血液更干净”系谣言](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
-- [一起生！一起熟！猕猴桃为啥这么团结？猕猴桃园结义了吗？【主播说三农】](http://www.movie.hkepx.cn/xiju/0303756.htm)
-- [嘘声一片：委内瑞拉感谢美国，以色列送伊朗星链——联大一般性辩论02](http://www.daogukj.com/8598756)
-- [为什么原子弹威力有上限，氢弹理论上没有上限？](http://www.movie.hkepx.cn/movie/4526722.htm)
-- [史上最大现金收购案 富二代如何正确拼爹](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
-- [救场李克勤歌手要开演唱会了](http://www.daogukj.com/0218050)
-- [粤J2888T现身万岁山 带刀护卫守车](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
-- [王曼昱多次一球致胜申裕斌无奈微笑](http://www.daogukj.com/3371192)
-- [42岁男子半马完赛后倒地离世](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
-- [“盛家的儿女一个比一个争气”](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
-- [金价下跌女儿买10万黄金送父母](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
-- [女局长被指出轨多人 当地成立调查组](http://www.movie.hkepx.cn/movie/1298994.htm)
-- [你觉得中国人说英语最大的阻碍是什么？](http://www.movie.hkepx.cn/movie/6188638.htm)
-- [出口暴涨160%！昔日“废料”全球抢手](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
-- [中国大满贯女双决赛迎中日对决](http://www.daogukj.com/4541580)
-- [宋佳集齐三大奖](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
-- [盛家把视后视帝包揽了](http://www.daogukj.com/4450013)
+- [社保卡有金卡？北京人社局：诈骗](http://www.daogukj.com/3042716)
+- [新疆五胞胎出生226天后回家了](http://www.movie.hkepx.cn/movie/2061637.htm)
+- [今年已下达养老保险补助金约1.2万亿](http://www.daogukj.com/whcykmxi/)
+- [举报女局长出轨多人男子再发声](http://www.daogukj.com/8289578)
+- [大闸蟹真的“崩盘”了吗](http://www.movie.hkepx.cn/movie/6917669.htm)
+- [螃蟹蒸出来的白色固体是螃蟹血？原来这些动物的血都不是红色的！【主播说三农】](http://www.daogukj.com/1323195)
+- [超市里……未检测到人脸……](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
+- [巴拿马华人从51楼跑下来花10多分钟](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
+- [赤峰一渣土车侧翻 17岁女孩身亡](http://www.movie.hkepx.cn/xiju/7626363.htm)
+- [小时候幻想过的事](http://www.daogukj.com/zbetfxek/)
+- [宋佳回应获三大奖争议](http://www.daogukj.com/6022603)
+- [巴拿马强震高楼泳池水变瀑布](http://www.movie.hkepx.cn/xiju/5313504.htm)
+- [沐言父母 过度包装女儿](http://www.daogukj.com/xdexhduz/)
+- [男婴出生不到两天转入新生儿科后死亡](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
+- [中学要求家长轮值：老师不能连续工作](http://www.movie.hkepx.cn/movie/6492359.htm)
+- [人社部：要把未参保人员找到动员参保](http://www.daogukj.com/6000133)
+- [黑客被日本运维整崩溃](http://www.daogukj.com/ajsfeojq/)
+- [山姆 亲友卡新规](http://www.movie.hkepx.cn/xiju/4278075.htm)
+- [油价将于10月15日24时调整](http://www.movie.hkepx.cn/movie/5534562.htm)
+- [巴拿马强震 有人一口气跑下48楼](http://www.daogukj.com/6871213)
+- [武网](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
+- [专家：不认同中国房地产进入筑底阶段](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
+- [今天做个屋](http://www.movie.hkepx.cn/xiju/4051583.htm)
+- [《阴阳师》咲耶CG丨拾此一瞬（CV：小泽亚李）](http://www.daogukj.com/4848168)
+- [因地制宜 推动县域经济高质量发展](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
+- [C罗领跑历史最伟大金球奖投票](http://www.movie.hkepx.cn/movie/2894342.htm)
+- [大学讲GalGame这一块](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
+- [《司机の噩梦》](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
+- [买榴莲开出土豆太离谱](http://www.movie.hkepx.cn/xiju/8848024.htm)
+- [【大鸣王潮1566】岁主帮岁共](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
+- [村民自家宅基地发现古墓盗掘获刑15年](http://www.movie.hkepx.cn/xiju/3438884.htm)
+- [林诗栋退出亚锦赛男单及混双](http://www.daogukj.com/ieqapfew/)
+- [沐言爸爸 太烧心啦](http://www.daogukj.com/8044050)
+- [从什么时候开始，报喜不报忧成了本能？｜暗叫 - きくお](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
+- [31岁男子练背一年换了张脸](http://www.movie.hkepx.cn/xiju/0303756.htm)
+- [王仁君获飞天奖 早起感谢盛家人](http://www.daogukj.com/8598756)
+- [内娱的神之八秒](http://www.movie.hkepx.cn/movie/4526722.htm)
+- [王仁君成功接班唐国强](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
+- [影视飓风的直升机？怪东西分享9.0](http://www.daogukj.com/0218050)
+- [鼓励支持灵活就业人员参加职工养老险](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
+- [耗时一年，改造善良老人晚年，完整后续来了！](http://www.daogukj.com/3371192)
+- [沈腾水中瑜伽秒变扑腾](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
+- [办社保卡金卡每月发补贴？系诈骗](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
+- [中纪委连打两虎](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
+- [人社部：打破户籍身份等限制](http://www.movie.hkepx.cn/movie/1298994.htm)
+- [御灵师第2集](http://www.movie.hkepx.cn/movie/6188638.htm)
+- [人社部：全面推进“退休预服务”](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
+- [讨伐型人格大合集](http://www.daogukj.com/4541580)
+- [中国女孩美国买特斯拉惨遭逮捕，神秘背景牵出跨国惊天大案！](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
+- [【独家】《凡人修仙传之慕兰之战》第19集【总第195集】](http://www.daogukj.com/4450013)
 
 </details>
 
 ## 原始来源
 
-- [如果把一根压紧的弹簧放进酸里溶解，它的弹性势能到哪里去了？](https://www.zhihu.com/question/21069416)
+- [单亲妈妈仅退款童装勒索3千被刑拘](https://s.weibo.com/weibo?q=%E5%8D%95%E4%BA%B2%E5%A6%88%E5%A6%88%E4%BB%85%E9%80%80%E6%AC%BE%E7%AB%A5%E8%A3%85%E5%8B%92%E7%B4%A23%E5%8D%83%E8%A2%AB%E5%88%91%E6%8B%98)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: cf9031e6cbc985b6ee86 -->
+<!-- content-fingerprint: 029d2103a6fb98b1fbdd -->
