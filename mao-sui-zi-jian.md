@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 被字节开除实习生创业获2亿美元估值
+# 郑钦文收获115万美元奖金
 
-> 来源：微博热搜 · 排名：第 7 位 · 热度：353706 · 分类：互联网 · 更新：2026-10-11T15:42:00+08:00
+> 来源：百度热搜 · 排名：第 6 位 · 热度：7236798 · 更新：2026-10-11T22:23:49+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“被字节开除实习生创业获2亿美元估值”位列第 7 位，公开热度指标为 353706，榜单分类为“互联网”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“郑钦文收获115万美元奖金”位列第 6 位，公开热度指标为 7236798。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：10月11日，在2026中网女单决赛中，郑钦文2-0战胜安德列娃夺得冠军。这是她首个中网女单及1000赛冠军头衔。夺冠后，郑钦文收获115万美元奖金（约合人民币769万元）及1000积分，即时世界排名重回世界前25。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `互联网`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [李连杰澄清抛妻弃子传闻](san-gu-mao-lu.md)
-- [WTT 中国大满贯男单半决赛，周启豪 2-4 松岛辉空，至此国乒无缘男单决赛，如何评价这场比赛？](cao-mu-jie-bing.md)
-- [阴阳师你最好解释一下！](feng-sheng-he-li.md)
-- [2岁孩子上路开车 家长还发朋友圈炫耀](ru-huo-ru-tu.md)
+- [传的鹿晗来的是关晓彤](san-gu-mao-lu.md)
+- [人民日报评刹车踏板风波](cao-mu-jie-bing.md)
+- [岸本齐史的全新漫画《火影忍者：暗影崛起》正式公布，对此你有哪些期待？](feng-sheng-he-li.md)
+- [礼花炸响那一刻 又有个家庭蒸蒸日上](ru-huo-ru-tu.md)
 
 ## 站内推荐
 
-- [国乒中国大满贯已失三冠](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [柳杰克：台湾就是中国的一个省](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [国乒男单14人出征无人进决赛](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [牛弹琴：泽连斯基最凶险的时刻来了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [部分大闸蟹跌出“地板价”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [创造历史！郑钦文中网夺冠](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [郑钦文哭了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [周鸿祎攀岩摔伤致左膝粉碎性骨折](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [杭州限狗令白天遛狗罚款](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [郑钦文决赛状态](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [全国各地最低工资标准公布](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
-- [「螃蟹加柿子等于砒霜」被媒体辟谣，这两种食物一起吃是否存在不良反应？为什么之前有这样的说法？](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
-- [突然不羡慕沐言一家了](http://www.daogukj.com/hiiwohqb/)
-- [关羽全新双血条机制登场！](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
-- [双方父母都觉得自己占了天大的便宜](http://www.daogukj.com/2806482)
-- [张雪机车获至尊金奖](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
-- [周启豪2比4松岛辉空](http://www.daogukj.com/9832220)
-- [王楚然现发4口碑反转](http://www.movie.hkepx.cn/xiju/4624070.htm)
-- [虽然命还在，但是鱼没了啊！！！【AI全民制作人】](http://www.movie.hkepx.cn/movie/0841033.htm)
-- [代露娃被导演说没有教养](http://www.movie.hkepx.cn/movie/4609262.htm)
-- [人是由猿进化来的，那为啥现在的猿猴不进化了？](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
-- [老是入睡困难，十点半躺床上凌晨二点半才可能睡着，怎么解决?](http://www.daogukj.com/1127111)
-- [大二专科生自述靠切片三年赚七百万，直播切片究竟是怎么赚钱的？这种赚钱模式能复制吗？](http://www.daogukj.com/pldvwggd/)
-- [每一个名字都是山河丰碑](http://www.movie.hkepx.cn/xiju/1287269.htm)
-- [WTT 中国大满贯男单半决赛，周启豪 2-4 松岛辉空，至此国乒无缘男单决赛，如何评价这场比赛？](http://www.daogukj.com/unklghpc/)
-- [闫妮自曝离婚后还会去前夫家里打掼蛋](http://www.daogukj.com/4404570)
-- [部分大闸蟹跌出“地板价”](http://www.daogukj.com/wfqplasc/)
-- [46岁“数学家”AI炒股跻身顶级富豪](http://www.daogukj.com/grgritvr/)
-- [亲子鉴定32份报告21个非亲生？假的](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
-- [《为何要生两个》](http://www.movie.hkepx.cn/movie/3539496.htm)
-- [《稀释剂复印战士》第一话：屎徒来袭](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
-- [试驾别克第五代君越](http://www.movie.hkepx.cn/xiju/3922759.htm)
-- [26/27 赛季英超联赛第 6 轮曼联 1-1 热刺，如何评价这场比赛？](http://www.daogukj.com/ynpujsgi/)
-- [红果短剧为何让人着迷？](http://www.movie.hkepx.cn/movie/2603972.htm)
-- [梅艳芳家人称拿不出赎金](http://www.daogukj.com/9238608)
-- [如果把我和男朋友这几年的约会地点列出来](http://www.daogukj.com/xdtzeasn/)
-- [中国新能源产业做对了什么](http://www.daogukj.com/2229169)
-- [为什么一些骑公路车的人和骑山地车的人互相看不起？](http://www.daogukj.com/pnnlzznp/)
-- [四部门发文严管汽车研发测试整治「速成车」，并设定一年三万公里指标，将对车企竞争和造车周期带来哪些改变？](http://www.movie.hkepx.cn/movie/1141317.htm)
-- [沙特利雅得机场遭袭，造成 12 人死亡 309 人受伤，哪些信息值得关注？对中东局势有何影响？](http://www.daogukj.com/3669738)
-- [因地制宜发展新质生产力](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
-- [如何评价电影《生化危机：爆发夜》的结局？](http://www.movie.hkepx.cn/xiju/8333303.htm)
-- [2岁孩子上路开车 家长还发朋友圈炫耀](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
-- [【年度级预告片】轮回，由你打破！](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
-- [国乒男单男双混双三线失守](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
-- [柳杰克：台湾就是中国的一个省](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
-- [动物的起源是否是一次偶然事件？如果重新再来一次，可能动物也产生不了？](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
-- [社保](http://www.movie.hkepx.cn/movie/7218961.htm)
-- [反复流传的孩子被拐寻人启事系谣言](http://www.movie.hkepx.cn/xiju/0034458.htm)
-- [95后姑娘四无婚礼讲三句话直接开席](http://www.movie.hkepx.cn/movie/1373526.htm)
-- [医生两次对五胞胎母亲说希望别后悔](http://www.movie.hkepx.cn/movie/8174344.htm)
-- [女子称 38 元买榴莲，切开后发现里面都是假果肉，还塞着年糕和土豆，是真的吗？可以怎样维权？](http://www.movie.hkepx.cn/xiju/7049500.htm)
-- [中国人亲历机场遇袭：多人被巨响吓哭](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
-- [张予曦不知道妈妈生了弟弟](http://www.daogukj.com/1670030)
-- [如何看待给大模型投毒被字节索赔800 万的前实习生开启创业，已获近三千万美元融资？你看好其创业前景吗？](http://www.daogukj.com/4917906)
-- [丢掉工作，回农村种地是好办法吗？](http://www.daogukj.com/jjbeajdp/)
-- [养老金待遇削峰填谷](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
-- [收废品 成了大生意](http://www.daogukj.com/2644309)
-- [国防部批赖清德是“台湾之祸”](http://www.daogukj.com/2520362)
-- [马斯克以反讽口吻向印度首富道歉，指其垄断市场阻挠星链入印，星链进入印度市场为何一波三折？还有哪些阻力？](http://www.daogukj.com/4354347)
+- [郑钦文收获收获115万美元和1000积分](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
+- [胖东来施工现场干净得像AI](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
+- [身高2.2米巨人网红小玥去世](http://www.daogukj.com/hiiwohqb/)
+- [OpenAI 发布 175 页四维挂谷猜想证明稿，这意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
+- [中网奖金](http://www.daogukj.com/2806482)
+- [郑钦文 中网首位本土女单冠军](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
+- [郑钦文赛后唱王心凌《梦的光点》](http://www.daogukj.com/9832220)
+- [牛弹琴：泽连斯基最凶险的时刻来了](http://www.movie.hkepx.cn/xiju/4624070.htm)
+- [《阴阳师》十周年丨永恒印象美学双人舞·特别演绎](http://www.movie.hkepx.cn/movie/0841033.htm)
+- [霸王茶姬](http://www.movie.hkepx.cn/movie/4609262.htm)
+- [周鸿祎左膝粉碎性骨折](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
+- [中国人亲历机场遇袭：多人被巨响吓哭](http://www.daogukj.com/1127111)
+- [郑钦文救球神来之笔](http://www.daogukj.com/pldvwggd/)
+- [我国经济回升向好态势持续巩固](http://www.movie.hkepx.cn/xiju/1287269.htm)
+- [人民日报评刹车踏板风波](http://www.daogukj.com/unklghpc/)
+- [中网多项数据创新高](http://www.daogukj.com/4404570)
+- [郑钦文决赛状态](http://www.daogukj.com/wfqplasc/)
+- [每个生命都值得被善待](http://www.daogukj.com/grgritvr/)
+- [社保](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
+- [逃离闪电侠黄金费德熊！你好邻居Mod](http://www.movie.hkepx.cn/movie/3539496.htm)
+- [河南小吃开伦敦首店 一碗胡辣汤87元](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
+- [梦的光点](http://www.movie.hkepx.cn/xiju/3922759.htm)
+- [【愚人众CB】潘塔罗涅的眼镜坏了](http://www.daogukj.com/ynpujsgi/)
+- [新人第1次编曲耶](http://www.movie.hkepx.cn/movie/2603972.htm)
+- [WTT中国大满贯赛，男世一松岛辉空 4-3 林昀儒夺冠，怎么评价本场比赛以及19岁松岛辉空的上升势头？](http://www.daogukj.com/9238608)
+- [WTT 中国大满贯女单决赛，王曼昱 4-0 佐藤瞳成功卫冕，如何评价本场比赛？](http://www.daogukj.com/xdtzeasn/)
+- [这些文物见证伟大远征](http://www.daogukj.com/2229169)
+- [如果把我和男朋友这几年的约会地点列出来](http://www.daogukj.com/pnnlzznp/)
+- [大二专科生自述靠切片三年赚七百万，直播切片究竟是怎么赚钱的？这种赚钱模式能复制吗？](http://www.movie.hkepx.cn/movie/1141317.htm)
+- [中网女单决赛，郑钦文 2-0 战胜安德列娃夺得冠军，如何评价本场比赛以及她的亮眼表现？](http://www.daogukj.com/3669738)
+- [节后错峰出游持续升温](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
+- [因长期辱骂江秋莲被判道歉+赔付，网红黄建生公开发文向江秋莲道歉，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/8333303.htm)
+- [礼花炸响那一刻 又有个家庭蒸蒸日上](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
+- [《血观音》棠夫人如果放弃对权力的钻营，守着棠将军的遗产和棠宁棠真过日子，能过得下去吗？](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
+- [中国人时隔14年再夺1000赛冠军](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
+- [郑钦文哭了](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
+- [插队被拒投诉儿科医生的家长已道歉](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
+- [亲子鉴定32份报告21个非亲生？假的](http://www.movie.hkepx.cn/movie/7218961.htm)
+- [有人说一台苹果18的钱能在山东大集买到多少东西和多少人快乐，咱们一起来挑战和数数！](http://www.movie.hkepx.cn/xiju/0034458.htm)
+- [库克和苏炳添一起在广州叹早茶](http://www.movie.hkepx.cn/movie/1373526.htm)
+- [郑钦文中网决赛收视率第一](http://www.movie.hkepx.cn/movie/8174344.htm)
+- [蔡琴宣布退出舞台时间](http://www.movie.hkepx.cn/xiju/7049500.htm)
+- [郑钦文首夺中网冠军](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
+- [身高2.2米网红小玥去世 年仅26岁](http://www.daogukj.com/1670030)
+- [沙特利雅得机场遭袭，造成 12 人死亡 309 人受伤，哪些信息值得关注？对中东局势有何影响？](http://www.daogukj.com/4917906)
+- [二十年夫妻因1万元打斗致丈夫死亡](http://www.daogukj.com/jjbeajdp/)
+- [大闸蟹价格大跌](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
+- [郑钦文 排名](http://www.daogukj.com/2644309)
+- [红果短剧为何让人着迷？](http://www.daogukj.com/2520362)
+- [第四届衢州烂柯杯世界围棋公开赛，韩国申真谞、申旻埈、卞相壹、李志贤包揽四强，如何看待这一结果？](http://www.daogukj.com/4354347)
 
 </details>
 
 ## 原始来源
 
-- [被字节开除实习生创业获2亿美元估值](https://s.weibo.com/weibo?q=%E8%A2%AB%E5%AD%97%E8%8A%82%E5%BC%80%E9%99%A4%E5%AE%9E%E4%B9%A0%E7%94%9F%E5%88%9B%E4%B8%9A%E8%8E%B72%E4%BA%BF%E7%BE%8E%E5%85%83%E4%BC%B0%E5%80%BC)
+- [郑钦文收获115万美元奖金](https://www.baidu.com/s?wd=%E9%83%91%E9%92%A6%E6%96%87%E6%94%B6%E8%8E%B7115%E4%B8%87%E7%BE%8E%E5%85%83%E5%A5%96%E9%87%91&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d960014e5deb975ec0b3 -->
+<!-- content-fingerprint: 27bb37ad58ffc6ad07b5 -->
