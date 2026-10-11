@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 我们来到了地中海，重走《奥德赛》十年回家路！
+# 有人说一台苹果18的钱能在山东大集买到多少东西和多少人快乐，咱们一起来挑战和数数！
 
-> 来源：哔哩哔哩热门 · 排名：第 5 位 · 热度：404198 · 分类：出行 · 更新：2026-10-11T22:23:49+08:00
+> 来源：哔哩哔哩热门 · 排名：第 5 位 · 热度：987964 · 分类：田园美食 · 更新：2026-10-12T03:07:03+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“我们来到了地中海，重走《奥德赛》十年回家路！”位列第 5 位，公开热度指标为 404198，榜单分类为“出行”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“有人说一台苹果18的钱能在山东大集买到多少东西和多少人快乐，咱们一起来挑战和数数！”位列第 5 位，公开热度指标为 987964，榜单分类为“田园美食”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：-
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `出行`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `田园美食`
 
 ## 相关热点
 
-- [身高2.2米网红小玥去世 年仅26岁](bei-shui-yi-zhan.md)
-- [郑钦文夺冠后热泪盈眶](zhi-shang-tan-bing.md)
+- [周鸿祎攀岩摔伤致左膝粉碎性骨折](bei-shui-yi-zhan.md)
+- [身高2.2米巨人网红小玥去世](zhi-shang-tan-bing.md)
 - [周鸿祎左膝粉碎性骨折](wei-wei-jiu-zhao.md)
-- [深圳中小学将迎春秋假且不调休，会对双职工家庭带来哪些影响？](wan-bi-gui-zhao.md)
+- [我国验证出一种全新抗癌疗法，一针纳米材料打进肿瘤可让癌细胞生锈死亡，原理是什么？这一成果具有哪些意义？](wan-bi-gui-zhao.md)
 
 ## 站内推荐
 
-- [“上大学该谈个女朋友了”。我呀？我去谈恋爱啊？！那无敌了……](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [礼花炸响那一刻 又有个家庭蒸蒸日上](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [王婆说媒现场29岁女舞蹈老师火了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [二十年夫妻因1万元打斗致丈夫死亡](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [松岛辉空中国大满贯男单夺冠](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [虽然命还在，但是鱼没了啊！！！【AI全民制作人】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [逃离闪电侠黄金费德熊！你好邻居Mod](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [二十年夫妻因1万元打斗致丈夫死亡](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [搜“中国石油”被导航到“中国加油”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [中国人时隔14年再夺1000赛冠军](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [WTT中国大满贯赛，男世一松岛辉空 4-3 林昀儒夺冠，怎么评价本场比赛以及19岁松岛辉空的上升势头？](http://www.daogukj.com/1823488)
-- [倒查三年流水，顶级商K集体关门！商K经济终于崩盘了？](http://www.play.hengshemaoyi.cn/xiju/5320894.htm)
-- [大闸蟹价格大跌](http://www.movie.hkepx.cn/xiju/9086289.htm)
-- [郑钦文中网夺冠狂揽770万元奖金](http://www.daogukj.com/cskdtjca/)
-- [身高2.2米网红小玥去世 年仅26岁](http://www.movie.hkepx.cn/movie/5197885.htm)
-- [霸王茶姬](http://www.daogukj.com/9392657)
-- [郑钦文赛后唱王心凌《梦的光点》](http://www.movie.hkepx.cn/movie/8565414.htm)
-- [牛弹琴：泽连斯基最凶险的时刻来了](http://www.daogukj.com/6051164)
+- [郑钦文哭了](http://www.play.hengshemaoyi.cn/xiju/5320894.htm)
+- [人民日报评刹车踏板风波](http://www.movie.hkepx.cn/xiju/9086289.htm)
+- [沙特遭遇十年来最惨袭击](http://www.daogukj.com/cskdtjca/)
+- [周鸿祎攀岩摔伤致左膝粉碎性骨折](http://www.movie.hkepx.cn/movie/5197885.htm)
+- [李九 AG](http://www.daogukj.com/9392657)
+- [中央考核巡查专家：你们这么挂灯没用](http://www.movie.hkepx.cn/movie/8565414.htm)
+- [超强厄尔尼诺或致广州冬季强寒潮](http://www.daogukj.com/6051164)
 - [因长期辱骂江秋莲被判道歉+赔付，网红黄建生公开发文向江秋莲道歉，哪些信息值得关注？](http://www.daogukj.com/6679975)
-- [为什么一些骑公路车的人和骑山地车的人互相看不起？](http://www.daogukj.com/2695648)
-- [24岁郑钦文霸气7连胜](http://www.play.hengshemaoyi.cn/xiju/3099726.htm)
-- [插队被拒投诉儿科医生的家长已道歉](http://www.movie.hkepx.cn/movie/7889816.htm)
-- [郑钦文中网决赛收视率第一](http://www.play.hengshemaoyi.cn/xiju/3571483.htm)
+- [红果短剧为何让人着迷？](http://www.daogukj.com/2695648)
+- [被骗缅北女孩遭遇惨不忍睹](http://www.play.hengshemaoyi.cn/xiju/3099726.htm)
+- [厚本我不是NPC演技](http://www.movie.hkepx.cn/movie/7889816.htm)
+- [李思潼妆前妆后变化好大](http://www.play.hengshemaoyi.cn/xiju/3571483.htm)
 - [社保](http://www.play.hengshemaoyi.cn/kongbu/9465250.htm)
-- [人民日报评刹车踏板风波](http://www.movie.hkepx.cn/xiju/2970345.htm)
-- [网红贵价面包接连遇冷，迎来烘焙「闭店潮」，是消费回归理性还是烘焙商业模式本身就存在硬伤？](http://www.daogukj.com/7120405)
-- [这种神人游戏怎么还在出新作啊？](http://www.play.hengshemaoyi.cn/xiju/4113560.htm)
-- [深圳中小学将迎春秋假且不调休，会对双职工家庭带来哪些影响？](http://www.daogukj.com/jzelussd/)
-- [12个脑洞大开的做饭方式！](http://www.daogukj.com/ajlcnxcx/)
-- [郑钦文收获115万美元奖金](http://www.daogukj.com/0152970)
-- [山东大爷一开口网友听出“伦敦腔”](http://www.movie.hkepx.cn/movie/9056597.htm)
-- [周鸿祎攀岩摔伤致左膝粉碎性骨折](http://www.play.hengshemaoyi.cn/xiju/9731004.htm)
-- [传的鹿晗来的是关晓彤](http://www.movie.hkepx.cn/xiju/1868267.htm)
-- [【邓肯】新发恐怖事件！女企业家被儿子雇人送入老年护理中心丨诡异的五亿高中生坠楼谜案！](http://www.play.hengshemaoyi.cn/xiju/1299773.htm)
+- [大闸蟹价格大跌](http://www.movie.hkepx.cn/xiju/2970345.htm)
+- [广东 5 人吃野生红尾鲤确诊哈夫病，这种病是如何引发的？日常吃鱼该怎样防范？](http://www.daogukj.com/7120405)
+- [《贫道》](http://www.play.hengshemaoyi.cn/xiju/4113560.htm)
+- [我国验证出一种全新抗癌疗法，一针纳米材料打进肿瘤可让癌细胞生锈死亡，原理是什么？这一成果具有哪些意义？](http://www.daogukj.com/jzelussd/)
+- [如果把我和男朋友这几年的约会地点列出来](http://www.daogukj.com/ajlcnxcx/)
+- [郑钦文夺冠后拥抱教练里巴](http://www.daogukj.com/0152970)
+- [郑钦文的24岁夯爆了](http://www.movie.hkepx.cn/movie/9056597.htm)
+- [河南小吃开伦敦首店 一碗胡辣汤87元](http://www.play.hengshemaoyi.cn/xiju/9731004.htm)
+- [李娜 郑钦文](http://www.movie.hkepx.cn/xiju/1868267.htm)
+- [我们来到了地中海，重走《奥德赛》十年回家路！](http://www.play.hengshemaoyi.cn/xiju/1299773.htm)
 - [OpenAI 发布 175 页四维挂谷猜想证明稿，这意味着什么？](http://www.daogukj.com/onyieegy/)
-- [华为被曝将推子品牌星芒](http://www.play.hengshemaoyi.cn/xiju/0532528.htm)
+- [利物浦红牌](http://www.play.hengshemaoyi.cn/xiju/0532528.htm)
 - [人社部提出「通过政策优化、数据找人等措施，力争基本养老保险参保率稳定在95%以上」，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/0256063.htm)
 - [身高2米2网红小玥去世年仅26岁](http://www.movie.hkepx.cn/movie/9918247.htm)
-- [中央考核巡查专家：你们这么挂灯没用](http://www.movie.hkepx.cn/movie/8593083.htm)
-- [郑钦文救球神来之笔](http://www.movie.hkepx.cn/movie/0122390.htm)
+- [郑钦文父母现场见证夺冠](http://www.movie.hkepx.cn/movie/8593083.htm)
+- [大二专科生称靠切片三年赚七百万](http://www.movie.hkepx.cn/movie/0122390.htm)
 - [郑钦文首夺中网冠军](http://www.movie.hkepx.cn/movie/7943713.htm)
-- [特朗普为何急着和普京联手](http://www.play.hengshemaoyi.cn/kongbu/5001053.htm)
-- [中网奖金](http://www.daogukj.com/qcrvnclj/)
-- [库克和苏炳添一起在广州叹早茶](http://www.daogukj.com/hwjdrvyl/)
-- [郑钦文vs安德列娃](http://www.movie.hkepx.cn/xiju/3504908.htm)
-- [沙特利雅得机场遭袭，造成 12 人死亡 309 人受伤，哪些信息值得关注？对中东局势有何影响？](http://www.daogukj.com/lfqwqkoe/)
-- [岸本齐史的全新漫画《火影忍者：暗影崛起》正式公布，对此你有哪些期待？](http://www.daogukj.com/6505376)
-- [《阴阳师》十周年丨永恒印象美学双人舞·特别演绎](http://www.daogukj.com/mdqmkfar/)
-- [为什么喝酒喝到微醺会让人感到快乐？](http://www.play.hengshemaoyi.cn/kongbu/2415448.htm)
-- [每个生命都值得被善待](http://www.movie.hkepx.cn/xiju/3998678.htm)
-- [郑钦文回应夺冠：这个冠军有你们一份](http://www.movie.hkepx.cn/movie/6743699.htm)
+- [为什么感觉gpt6反而不好用了？](http://www.play.hengshemaoyi.cn/kongbu/5001053.htm)
+- [郑钦文就差一个大满贯冠军了](http://www.daogukj.com/qcrvnclj/)
+- [医生：熬夜就是熬命](http://www.daogukj.com/hwjdrvyl/)
+- [记者暗访有偿陪伴服务](http://www.movie.hkepx.cn/xiju/3504908.htm)
+- [为什么大部分医院的院长副院长都是心外科胸外科上任的？](http://www.daogukj.com/lfqwqkoe/)
+- [第四届衢州烂柯杯世界围棋公开赛，韩国申真谞、申旻埈、卞相壹、李志贤包揽四强，如何看待这一结果？](http://www.daogukj.com/6505376)
+- [“上大学该谈个女朋友了”。我呀？我去谈恋爱啊？！那无敌了……](http://www.daogukj.com/mdqmkfar/)
+- [关羽全新双血条机制登场！](http://www.play.hengshemaoyi.cn/kongbu/2415448.htm)
+- [礼花炸响那一刻 又有个家庭蒸蒸日上](http://www.movie.hkepx.cn/xiju/3998678.htm)
+- [潘玮柏自曝瘦了26斤 瘦到穿女装](http://www.movie.hkepx.cn/movie/6743699.htm)
 - [节后错峰出游持续升温](http://www.daogukj.com/xgmimokd/)
-- [外地务工人员2元彩票中500万](http://www.play.hengshemaoyi.cn/xiju/7200927.htm)
-- [郑钦文决赛状态](http://www.daogukj.com/0557862)
+- [女生被迫吸二手烟怒吼抽烟的把烟掐了](http://www.play.hengshemaoyi.cn/xiju/7200927.htm)
+- [中网奖金](http://www.daogukj.com/0557862)
 - [亲子鉴定32份报告21个非亲生？假的](http://www.play.hengshemaoyi.cn/kongbu/0604765.htm)
-- [为什么大部分医院的院长副院长都是心外科胸外科上任的？](http://www.movie.hkepx.cn/movie/8247300.htm)
+- [大二专科生自述靠切片三年赚七百万，直播切片究竟是怎么赚钱的？这种赚钱模式能复制吗？](http://www.movie.hkepx.cn/movie/8247300.htm)
 - [史上最大退休潮来了，未来 14 年，平均每天 6 万人退休 ​，养老金体系该如何应对？](http://www.daogukj.com/jcieinjo/)
-- [逃离闪电侠黄金费德熊！你好邻居Mod](http://www.daogukj.com/1895577)
-- [【愚人众CB】潘塔罗涅的眼镜坏了](http://www.play.hengshemaoyi.cn/kongbu/4995743.htm)
+- [12个脑洞大开的做饭方式！](http://www.daogukj.com/1895577)
+- [这种神人游戏怎么还在出新作啊？](http://www.play.hengshemaoyi.cn/kongbu/4995743.htm)
 - [郑钦文 排名](http://www.play.hengshemaoyi.cn/xiju/5777989.htm)
 
 </details>
 
 ## 原始来源
 
-- [我们来到了地中海，重走《奥德赛》十年回家路！](https://b23.tv/BV1mopE6xEqv)
+- [有人说一台苹果18的钱能在山东大集买到多少东西和多少人快乐，咱们一起来挑战和数数！](https://b23.tv/BV1Tfpu6PEKq)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 39343d594ca6ce15c420 -->
+<!-- content-fingerprint: 8231aa9d5052c0797cdc -->
