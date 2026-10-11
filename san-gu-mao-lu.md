@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# AI把数学干废了
+# 李连杰澄清抛妻弃子传闻
 
-> 来源：微博热搜 · 排名：第 7 位 · 热度：484330 · 分类：互联网 · 更新：2026-10-11T09:23:10+08:00
+> 来源：今日头条热榜 · 排名：第 7 位 · 热度：9899524 · 分类：新事件上榜 · 更新：2026-10-11T15:42:00+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“AI把数学干废了”位列第 7 位，公开热度指标为 484330，榜单分类为“互联网”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“李连杰澄清抛妻弃子传闻”位列第 7 位，公开热度指标为 9899524，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `互联网`
+`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
 
 ## 相关热点
 
-- [美国可能加入沙特对胡塞打击行动](cao-mu-jie-bing.md)
-- [为什么很多书法看着很丑评价很高?](feng-sheng-he-li.md)
-- [内蒙古包头一婚礼主持人发现新人买的礼炮里塞满纸钱和骂人纸条，婚礼主持人：发现及时，没使用](ru-huo-ru-tu.md)
-- [快把家里的盐换了 可以帮助控血压](yi-gu-zuo-qi.md)
+- [WTT 中国大满贯男单半决赛，周启豪 2-4 松岛辉空，至此国乒无缘男单决赛，如何评价这场比赛？](cao-mu-jie-bing.md)
+- [阴阳师你最好解释一下！](feng-sheng-he-li.md)
+- [2岁孩子上路开车 家长还发朋友圈炫耀](ru-huo-ru-tu.md)
+- [46岁数学家凭AI炒股登上富豪榜](yi-gu-zuo-qi.md)
 
 ## 站内推荐
 
 - [大二专科生称靠切片三年赚七百万](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [明知不该买房却想要自己的家](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [四川巴中12345员工投诉欠薪](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [国庆景区热度前十被小城包揽，这会成为一种旅游趋势吗？你会选择大城市出游还是小城呢？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [2627 赛季英超联赛英超第 6 轮曼联 1-1 热刺，如何评价这场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [国乒男单男双混双三线失守](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [试驾别克第五代君越](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [「螃蟹加柿子等于砒霜」被媒体辟谣，这两种食物一起吃是否存在不良反应？为什么之前有这样的说法？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [闫妮自曝离婚后还会去前夫家里打掼蛋](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [施永青建议推会漏的避孕套](http://www.daogukj.com/kuavhmmy/)
-- [【纪录片】中国救护2 04 心是一座城](http://www.daogukj.com/bedufjas/)
-- [美国有可能加入沙特对胡塞打击行动](http://www.play.hengshemaoyi.cn/xiju/7689194.htm)
-- [男性衰老时身体或会有4大变化](http://www.daogukj.com/jcrslpkp/)
-- [中外游客“双向奔赴”活力涌动](http://www.play.hengshemaoyi.cn/kongbu/8639365.htm)
-- [哪一行都不好干（84）](http://www.daogukj.com/0804205)
-- [日媒曝黑客黑掉软银旗下云平台后留下225封勒索信，结果运维找7小时没发现勒索信只是一味重启，如何看待？](http://www.daogukj.com/gquevtwi/)
-- [检查你发的朋友圈 这7种照片建议删掉](http://www.daogukj.com/kmrfjtbk/)
-- [王楚然接替金晨](http://www.daogukj.com/vvfwljkx/)
-- [巴拿马华人从51楼跑下来花10多分钟](http://www.daogukj.com/0329673)
-- [谢娜刘烨十多年都没有同台过](http://www.play.hengshemaoyi.cn/xiju/8593805.htm)
-- [如果把我和男朋友这几年的约会地点列出来](http://www.daogukj.com/4691227)
-- [梅艳芳骨灰被盗近3月无线索](http://www.play.hengshemaoyi.cn/kongbu/0488493.htm)
-- [曝李勒优崔晋私下和解](http://www.daogukj.com/1097135)
-- [台湾民众街头举五星红旗高喊要统一](http://www.play.hengshemaoyi.cn/xiju/0741052.htm)
-- [沙特利雅得机场遭袭12死309伤](http://www.movie.hkepx.cn/xiju/0027119.htm)
-- [金智媛空窗两年再出爆剧](http://www.movie.hkepx.cn/xiju/7032434.htm)
-- [杀人经历写进小说，意外成为名作家？现实比剧更离奇！万字解析《悬案：旅馆案》下](http://www.movie.hkepx.cn/movie/4229032.htm)
-- [台湾民众在台北街头高喊要统一](http://www.movie.hkepx.cn/xiju/0464917.htm)
-- [公积金功能又上新了](http://www.play.hengshemaoyi.cn/xiju/2385137.htm)
-- [也是当上外卖大法官了](http://www.play.hengshemaoyi.cn/kongbu/7794000.htm)
-- [被举报女局长曾称选择了扶贫式婚姻](http://www.movie.hkepx.cn/xiju/4679052.htm)
-- [交警上班发现：单位门口这辆车不对劲](http://www.daogukj.com/2258039)
-- [以青春之我建强农之业](http://www.movie.hkepx.cn/xiju/0911151.htm)
-- [郑钦文首进中网决赛](http://www.movie.hkepx.cn/xiju/2919294.htm)
-- [虽然命还在，但是鱼没了啊！！！【AI全民制作人】](http://www.daogukj.com/4572993)
-- [美强烈谴责对沙特袭击 有美公民死亡](http://www.daogukj.com/uaupjwbn/)
-- [嫁人也要嫁舍得开灯的家庭](http://www.daogukj.com/7711348)
-- [倒查三年流水，顶级商K集体关门！商K经济终于崩盘了？](http://www.movie.hkepx.cn/movie/8070936.htm)
-- [美国国债已攀升至约 41 万亿美元规模，会带来哪些影响？财长称将推出财政整顿计划，可能有哪些手段？](http://www.movie.hkepx.cn/xiju/5929168.htm)
-- [尿毒症大多是吃出来的](http://www.play.hengshemaoyi.cn/xiju/2633886.htm)
-- [国庆景区热度前十被小城包揽，这会成为一种旅游趋势吗？你会选择大城市出游还是小城呢？](http://www.movie.hkepx.cn/movie/4735294.htm)
-- [年轻人勇闯“夕阳红”旅行团](http://www.play.hengshemaoyi.cn/kongbu/7569980.htm)
-- [中国旅客：在机场听到巨响多人被吓哭](http://www.daogukj.com/3420205)
-- [邓亚萍谈WTT大满贯男双决赛](http://www.movie.hkepx.cn/xiju/4061305.htm)
-- [香港骨灰盗窃案疑涉跨境犯罪集团](http://www.movie.hkepx.cn/xiju/5044088.htm)
-- [美国可能加入沙特对胡塞打击行动](http://www.daogukj.com/lbtgvjga/)
+- [胡歌称拍仙剑三很无聊](http://www.daogukj.com/kuavhmmy/)
+- [任重陪孙骁骁做产检](http://www.daogukj.com/bedufjas/)
+- [红果短剧为何让人着迷？](http://www.play.hengshemaoyi.cn/xiju/7689194.htm)
+- [女子称 38 元买榴莲，切开后发现里面都是假果肉，还塞着年糕和土豆，是真的吗？可以怎样维权？](http://www.daogukj.com/jcrslpkp/)
+- [因地制宜发展新质生产力](http://www.play.hengshemaoyi.cn/kongbu/8639365.htm)
+- [男子国庆被排7天班 1天都没去遭开除](http://www.daogukj.com/0804205)
+- [沙特利雅得机场遭袭，造成 12 人死亡 309 人受伤，哪些信息值得关注？对中东局势有何影响？](http://www.daogukj.com/gquevtwi/)
+- [国乒男单14人出征无人进决赛](http://www.daogukj.com/kmrfjtbk/)
+- [周杰伦被介绍为中国著名歌手](http://www.daogukj.com/vvfwljkx/)
+- [俄罗斯友人被新疆小羊“迷倒”](http://www.daogukj.com/0329673)
+- [中网决赛日中国金花双冲冠](http://www.play.hengshemaoyi.cn/xiju/8593805.htm)
+- [香港警方回应“梅艳芳骨灰被盗”](http://www.daogukj.com/4691227)
+- [突然不羡慕沐言一家了](http://www.play.hengshemaoyi.cn/kongbu/0488493.htm)
+- [《司机の噩梦》](http://www.daogukj.com/1097135)
+- [大二专科生自述靠切片三年赚七百万，直播切片究竟是怎么赚钱的？这种赚钱模式能复制吗？](http://www.play.hengshemaoyi.cn/xiju/0741052.htm)
+- [周启豪2-4不敌新科世界第一松岛辉空](http://www.movie.hkepx.cn/xiju/0027119.htm)
+- [一汽：坚持不成熟不上车未验证不上市](http://www.movie.hkepx.cn/xiju/7032434.htm)
+- [马斯克以反讽口吻向印度首富道歉，指其垄断市场阻挠星链入印，星链进入印度市场为何一波三折？还有哪些阻力？](http://www.movie.hkepx.cn/movie/4229032.htm)
+- [医生两次对五胞胎母亲说希望别后悔](http://www.movie.hkepx.cn/xiju/0464917.htm)
+- [被举报出轨女局长称长期遭受家暴](http://www.play.hengshemaoyi.cn/xiju/2385137.htm)
+- [医生提醒别把低钾信号当成累了](http://www.play.hengshemaoyi.cn/kongbu/7794000.htm)
+- [华裔老两口枪杀女婿案曝惊天细节](http://www.movie.hkepx.cn/xiju/4679052.htm)
+- [张予曦不知道妈妈生了弟弟](http://www.daogukj.com/2258039)
+- [每一个名字都是山河丰碑](http://www.movie.hkepx.cn/xiju/0911151.htm)
+- [银河战舰700上市12分钟大定突破1万台](http://www.movie.hkepx.cn/xiju/2919294.htm)
+- [也是当上外卖大法官了](http://www.daogukj.com/4572993)
+- [《明日方舟》× 国家图书馆「恒远津梁」合作宣传PV](http://www.daogukj.com/uaupjwbn/)
+- [疯牛失控窜行，民警到场一枪将其击毙，及时消除安全隐患。](http://www.daogukj.com/7711348)
+- [关羽全新双血条机制登场！](http://www.movie.hkepx.cn/movie/8070936.htm)
+- [如何评价电影《生化危机：爆发夜》的结局？](http://www.movie.hkepx.cn/xiju/5929168.htm)
+- [社保](http://www.play.hengshemaoyi.cn/xiju/2633886.htm)
+- [「螃蟹加柿子等于砒霜」被媒体辟谣，这两种食物一起吃是否存在不良反应？为什么之前有这样的说法？](http://www.movie.hkepx.cn/movie/4735294.htm)
+- [柳杰克：台湾就是中国的一个省](http://www.play.hengshemaoyi.cn/kongbu/7569980.htm)
+- [收废品 成了大生意](http://www.daogukj.com/3420205)
+- [【雀说】雀巢&鲸尾 | 自卑在哪一天消失](http://www.movie.hkepx.cn/xiju/4061305.htm)
+- [后来的我才明白...](http://www.movie.hkepx.cn/xiju/5044088.htm)
+- [WTT 中国大满贯男单半决赛，周启豪 2-4 松岛辉空，至此国乒无缘男单决赛，如何评价这场比赛？](http://www.daogukj.com/lbtgvjga/)
 - [中国人亲历机场遇袭：多人被巨响吓哭](http://www.daogukj.com/7687127)
-- [韩国瑜：有一万个理由维护两岸和平](http://www.play.hengshemaoyi.cn/xiju/2300399.htm)
-- [利雅得机场遭袭致12死309伤](http://www.play.hengshemaoyi.cn/kongbu/9699772.htm)
-- [抗癌药物研发迎来重要突破](http://www.play.hengshemaoyi.cn/xiju/7804499.htm)
-- [长期这样吃饭全身炎症水平会上升](http://www.daogukj.com/miapvosn/)
-- [国乒调整亚锦赛名单，林诗栋不参加男单混双项目，梁靖崑不参加男单男团项目，如何评价新名单？](http://www.play.hengshemaoyi.cn/kongbu/6610421.htm)
-- [香港近年多位名人骨灰被盗](http://www.movie.hkepx.cn/movie/2073300.htm)
-- [如何看待给大模型投毒被字节索赔800 万的前实习生开启创业，已获近三千万美元融资？你看好其创业前景吗？](http://www.play.hengshemaoyi.cn/xiju/0985181.htm)
-- [鲁比奥：有美国公民死于沙特机场袭击](http://www.movie.hkepx.cn/xiju/3768661.htm)
-- [买家花 15 元买蜜薯后「仅退款」，还称有本事就过来拿，商家驱车数百公里连夜取回，买家的行为算违法吗？](http://www.movie.hkepx.cn/movie/1249407.htm)
-- [【独家】《凡人修仙传之慕兰之战》第19集【总第195集】](http://www.play.hengshemaoyi.cn/xiju/9352164.htm)
-- [沙特利雅得机场遭袭 致12死309伤](http://www.play.hengshemaoyi.cn/xiju/6237396.htm)
-- [根据《国家通用语言文字法》，在正式场合把“兆”当作“万亿”来使用是不是违法行为？](http://www.daogukj.com/7440566)
+- [人是由猿进化来的，那为啥现在的猿猴不进化了？](http://www.play.hengshemaoyi.cn/xiju/2300399.htm)
+- [双方父母都觉得自己占了天大的便宜](http://www.play.hengshemaoyi.cn/kongbu/9699772.htm)
+- [为什么不能由产品经理操作AI开发，把程序员全淘汰掉？](http://www.play.hengshemaoyi.cn/xiju/7804499.htm)
+- [部分大闸蟹跌出“地板价”](http://www.daogukj.com/miapvosn/)
+- [超市里……未检测到人脸……](http://www.play.hengshemaoyi.cn/kongbu/6610421.htm)
+- [周启豪2比4松岛辉空](http://www.movie.hkepx.cn/movie/2073300.htm)
+- [10w？100w？1000w？普通人多少战备才打得过职业哥？](http://www.play.hengshemaoyi.cn/xiju/0985181.htm)
+- [沙特利雅得机场遭袭12死309伤](http://www.movie.hkepx.cn/xiju/3768661.htm)
+- [包贝尔出轨风波后与包文婧出游](http://www.movie.hkepx.cn/movie/1249407.htm)
+- [虽然命还在，但是鱼没了啊！！！【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/9352164.htm)
+- [国乒中国大满贯已失三冠](http://www.play.hengshemaoyi.cn/xiju/6237396.htm)
+- [《结账是你的谎言》](http://www.daogukj.com/7440566)
 
 </details>
 
 ## 原始来源
 
-- [AI把数学干废了](https://s.weibo.com/weibo?q=AI%E6%8A%8A%E6%95%B0%E5%AD%A6%E5%B9%B2%E5%BA%9F%E4%BA%86)
+- [李连杰澄清抛妻弃子传闻](https://www.toutiao.com/trending/7695236775379894326/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227695236775379894326%22%2C%22hot_board_impr_id%22%3A%22202610111541589FF995E5229309955D7B%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d2800921c949b45daacc -->
+<!-- content-fingerprint: f803d70e969b88bc08f3 -->
