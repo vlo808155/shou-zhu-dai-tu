@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 全球智能手机出货量第三季度同比降 22% ，创有纪录以来最大降幅，背后是什么原因？
+# “这波秒开仙人，直接把六小龄童看呆了！”
 
-> 来源：知乎热榜 · 排名：第 6 位 · 热度：152 万热度 · 分类：问答 · 更新：2026-10-16T21:54:01+08:00
+> 来源：哔哩哔哩热门 · 排名：第 6 位 · 热度：3533115 · 分类：搞笑 · 更新：2026-10-17T01:52:14+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“全球智能手机出货量第三季度同比降 22% ，创有纪录以来最大降幅，背后是什么原因？”位列第 6 位，公开热度指标为 152 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，““这波秒开仙人，直接把六小龄童看呆了！””位列第 6 位，公开热度指标为 3533115，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：根据国际数据公司（IDC）最新发布的初步数据，2026年第三季度全球智能手机出货量降至2.553亿部，同比萎缩22.0%，创下有纪录以来最大降幅。 IDC在周三（10月14日）发布的《全球季度手机跟踪报告》中写道，人工智能热潮引发的存储芯片危机持续冲击智能手机市场，零部件成本迅速攀升至前所未有的水平，供应也日趋紧张。
+来源公开摘要显示：“这波秒开仙人，直接把六小龄童看呆了！”
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
 
 ## 相关热点
 
-- [20万的越野车，怎么做到既要又要？](fu-jing-qing-zui.md)
-- [他牺牲那年十三岁 手还伸向那只碗](mao-sui-zi-jian.md)
-- [傅首尔新片投资5000万票房仅8万](san-gu-mao-lu.md)
-- [人民日报：严打“公考围岗”](cao-mu-jie-bing.md)
+- [男子凌晨炖鱼睡着 醒来鱼已碳化](fu-jing-qing-zui.md)
+- [TVB红果](mao-sui-zi-jian.md)
+- [全球智能手机出货量第三季度同比降 22% ，创有纪录以来最大降幅，背后是什么原因？](san-gu-mao-lu.md)
+- [肾里长的石头，医生是怎么取出来的？](cao-mu-jie-bing.md)
 
 ## 站内推荐
 
-- [日本误报称发生 9.9 级地震，出现这种情况可能是因为啥原因？9.9 级地震是什么概念？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [根本没有这种祀频](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [AL最发愁的居然是不会吵架？拷打Tarzan&Shanks的职业秘辛【视频播客 | 元来如此EP.08】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [我对不同假期的态度](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [都想看我怎么拔刀的](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [【侦探TV】真好…每个人都有自己忙的事……](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [费德勒李娜vs萨芬兄妹](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [黄子韬：谁会把家里事给陌生人讲](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [威马官方发帖讨薪：请发我们工资](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [王传君把余文乐老人味都跳出来了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [嫁金钗](http://www.daogukj.com/3042716)
-- [李昀锐想早五年认识孟子义](http://www.movie.hkepx.cn/movie/2061637.htm)
-- [20万的越野车，怎么做到既要又要？](http://www.daogukj.com/whcykmxi/)
-- [田曦薇演技](http://www.daogukj.com/8289578)
-- [大厂员工吐槽新来的校招生特别mean，被回复不mean根本过不了面试，真的吗？面试到底在选什么样的人？](http://www.movie.hkepx.cn/movie/6917669.htm)
-- [把喝牛奶当回事](http://www.daogukj.com/1323195)
-- [【昨日海】YW-EX-1至YW-EX-8突袭 摆完挂机 简单好抄](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
-- [黄子韬谁欺负我老婆了](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
-- [【绝密大坝】猛攻哥来了！！！](http://www.movie.hkepx.cn/xiju/7626363.htm)
-- [特斯拉](http://www.daogukj.com/zbetfxek/)
-- [手机掉进地铁缝连播16小时短剧](http://www.daogukj.com/6022603)
-- [孙颖莎省运会火炬手直播在线人数超百万](http://www.movie.hkepx.cn/xiju/5313504.htm)
-- [律师解读教师与“耻辱”合影处理结果](http://www.daogukj.com/xdexhduz/)
-- [00后小伙手搓载人飞行滑板](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
-- [大江南北丰收正当时](http://www.movie.hkepx.cn/movie/6492359.htm)
+- [中方：中国核力量与美俄不在一个量级](http://www.daogukj.com/3042716)
+- [庾澄庆说不会和伊能静同框](http://www.movie.hkepx.cn/movie/2061637.htm)
+- [男子凌晨炖鱼睡着 醒来鱼已碳化](http://www.daogukj.com/whcykmxi/)
+- [王一博这个镜头40w](http://www.daogukj.com/8289578)
+- [女子在自己手机上登录前男友账号以「1314」等金额转走近二十万，法院判决全部返还，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/6917669.htm)
+- [特斯拉](http://www.daogukj.com/1323195)
+- [欠钱不还却有钱出道？是谁又在给老赖之女洗白？深扒李秀满新女团成员盛艾敬！](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
+- [徐艺洋：孩子是自己生的 已经2岁多](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
+- [全球时间标尺为何大调整](http://www.movie.hkepx.cn/xiju/7626363.htm)
+- [张雪机车再冲第七冠](http://www.daogukj.com/zbetfxek/)
+- [徐艺洋 孩子是我自己生的](http://www.daogukj.com/6022603)
+- [104岁哥哥探望101岁弟弟](http://www.movie.hkepx.cn/xiju/5313504.htm)
+- [为什么 HR 大部分都是女性呢？](http://www.daogukj.com/xdexhduz/)
+- [iPhone Duo一分钟全线售罄，下单发货已排到明年，你抢到了吗？折叠机能否支撑苹果股价再创新高？](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
+- [中央红军长征路线全览](http://www.movie.hkepx.cn/movie/6492359.htm)
 - [存款利率普遍上调了](http://www.daogukj.com/6000133)
-- [威马官方发帖讨薪：请发我们工资](http://www.daogukj.com/ajsfeojq/)
-- [为什么 HR 大部分都是女性呢？](http://www.movie.hkepx.cn/xiju/4278075.htm)
-- [你敢信苏联真的做过人猿杂交实验？走进地图上不存在的国家，探访那座被废弃的实验基地](http://www.movie.hkepx.cn/movie/5534562.htm)
-- [天水铅中毒案监管问责](http://www.daogukj.com/6871213)
-- [AL最发愁的居然是不会吵架？拷打Tarzan&Shanks的职业秘辛【视频播客 | 元来如此EP.08】](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
-- [蔡文静喝了多少上的台](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
+- [黄子韬徐艺洋拍了生孩子转场视频](http://www.daogukj.com/ajsfeojq/)
+- [一天天的就不能消停会 Ep.26 【AI全民制作人】](http://www.movie.hkepx.cn/xiju/4278075.htm)
+- [这才是真正的“欲买桂花同载酒”](http://www.movie.hkepx.cn/movie/5534562.htm)
+- [香港名媛碎尸案庭审曝惊人场面](http://www.daogukj.com/6871213)
+- [黄子韬：谁会把家里事给陌生人讲](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
+- [人民日报：严打“公考围岗”](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
 - [端牢中国饭碗 底气从何而来](http://www.movie.hkepx.cn/xiju/4051583.htm)
-- [重庆一车辆从60米高架桥坠落系谣言](http://www.daogukj.com/4848168)
+- [女子回应监控取证丈夫出轨不被采用](http://www.daogukj.com/4848168)
 - [《绝区零》菲欧妮角色展示 | 不要死挑战](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
-- [高速现“叠叠乐”运车 目击者被吓到](http://www.movie.hkepx.cn/movie/2894342.htm)
-- [徐艺洋：孩子是自己生的 已经2岁多](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
-- [小三上门80多次妻子装监控法院不采用](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
-- [中方：中国核力量与美俄不在一个量级](http://www.movie.hkepx.cn/xiju/8848024.htm)
-- [如何看待网友说DeepSeek在爱里长大？](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
-- [医生在4岁宝宝睫毛上发现阴虱](http://www.movie.hkepx.cn/xiju/3438884.htm)
-- [AnthropicCEO 仅管理未婚妻一人，这种极简模式将带来哪些影响？](http://www.daogukj.com/ieqapfew/)
-- [打假第一人王海公司大门紧闭](http://www.daogukj.com/8044050)
-- [“闪身哆嗦毛”](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
-- [特斯拉新款 Roadster 正式亮相，能实现离地升空、空中翻滚，如何评价？你看好它的市场前景吗？](http://www.movie.hkepx.cn/xiju/0303756.htm)
-- [珠穆朗玛峰只有一半在中国，为何全世界都认为是我国的？](http://www.daogukj.com/8598756)
-- [多个手机品牌集体宣布降价](http://www.movie.hkepx.cn/movie/4526722.htm)
-- [普通人能接住马龙的发球吗?](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
-- [操 控 买 瓜 2.0](http://www.daogukj.com/0218050)
-- [《 官 宣 》](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
-- [孙颖莎火炬手](http://www.daogukj.com/3371192)
-- [全新Roadster登场⚡️](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
-- [根本没有这种祀频](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
-- [【侯绿萝】更新了一条视频，快来围观！](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
-- [妻子监控取证丈夫出轨不被法院采纳](http://www.movie.hkepx.cn/movie/1298994.htm)
-- [1.3万亿“国家长钱”到位](http://www.movie.hkepx.cn/movie/6188638.htm)
-- [明代古宅蔡厅5根承重木柱被人锯断](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
-- [四部门组织30余家车企座谈，加强产品研发测试验证管理，要求不得作虚假、夸大或引人误解的宣传，怎样解读？](http://www.daogukj.com/4541580)
-- [他牺牲那年十三岁 手还伸向那只碗](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
-- [男子中1000万不到一月花到仅剩28元](http://www.daogukj.com/4450013)
+- [黄海南部连续47天禁入藏了什么深意](http://www.movie.hkepx.cn/movie/2894342.htm)
+- [如何看待微软已完成2.8T大模型的预训练？](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
+- [抖音起诉京东员工](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
+- [周迅凭《初次尝到寂寞》获釜山电影节最佳女演员，加封国际 A 类影后，当下在华语演员里，她处于什么地位？](http://www.movie.hkepx.cn/xiju/8848024.htm)
+- [营销噱头还是黑科技?Roadster 2造车门槛是什么？专利、商业解读](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
+- [加油站应于11月1日前实现交易即开票](http://www.movie.hkepx.cn/xiju/3438884.htm)
+- [我造了一块会飞的滑板...](http://www.daogukj.com/ieqapfew/)
+- [网友真立大功查出男友婚史](http://www.daogukj.com/8044050)
+- [洛阳辟谣挖出“传国玉玺”](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
+- [COD做搜打撤，最上头的居然不是开枪？](http://www.movie.hkepx.cn/xiju/0303756.htm)
+- [【绝密大坝】猛攻哥来了！！！](http://www.daogukj.com/8598756)
+- [普通人能接住马龙的发球吗?](http://www.movie.hkepx.cn/movie/4526722.htm)
+- [“闪身哆嗦毛”](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
+- [iPhone Duo发货已排到明年](http://www.daogukj.com/0218050)
+- [中国驻泰使馆：谨慎前往泰缅边境](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
+- [专家：日本全境都在解放军射程范围内](http://www.daogukj.com/3371192)
+- [徐艺洋回应生子：就1个孩子 自己生的](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
+- [费德勒李娜vs萨芬兄妹](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
+- [iPhone Duo首批现货最高涨7143元](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
+- [中国“飞行汽车”看呆外国学生](http://www.movie.hkepx.cn/movie/1298994.htm)
+- [枪械为什么要造得这么容易拆卸，连个螺丝都不用？](http://www.movie.hkepx.cn/movie/6188638.htm)
+- [“搭子社交” 灰色交易](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
+- [长鑫科技预计前三季度净利超1300亿](http://www.daogukj.com/4541580)
+- [TVB红果](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
+- [妈妈将大一儿子生活费从4000降至2000](http://www.daogukj.com/4450013)
 
 </details>
 
 ## 原始来源
 
-- [全球智能手机出货量第三季度同比降 22% ，创有纪录以来最大降幅，背后是什么原因？](https://www.zhihu.com/question/2094360204083315679)
+- [“这波秒开仙人，直接把六小龄童看呆了！”](https://b23.tv/BV1Fspj66E66)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 71392c030d3d5f565956 -->
+<!-- content-fingerprint: 991e9d50e8c5ccf23d47 -->
