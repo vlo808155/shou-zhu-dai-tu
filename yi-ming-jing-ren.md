@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# “优秀的作品都在讲同一件事”
+# 【毕导】不做诺奖科普的第一年，科普博主我还会做多久？
 
-> 来源：哔哩哔哩热门 · 排名：第 8 位 · 热度：6639715 · 分类：影视剪辑 · 更新：2026-10-17T17:41:58+08:00
+> 来源：哔哩哔哩热门 · 排名：第 8 位 · 热度：888621 · 分类：科学科普 · 更新：2026-10-17T21:16:19+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，““优秀的作品都在讲同一件事””位列第 8 位，公开热度指标为 6639715，榜单分类为“影视剪辑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【毕导】不做诺奖科普的第一年，科普博主我还会做多久？”位列第 8 位，公开热度指标为 888621，榜单分类为“科学科普”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：感谢审核大大！！！
+来源公开摘要显示：科普博主会被AI取代吗？也许会吧。 但我感觉，暂时还有一件人类比AI更强的事情。 ———————————————————————————— 你还可以看看: 这个X你肯定见过，但它其实根本不存在 BV1VVhk6pEiR 这是什么妖术？酒在坛子里是绿色，舀出来瞬间变红！ BV1JiVb6EEi7 我预言了一个物理规律，历时100天我证明了它 BV1wPoVB7Egv 这 个现象你肯定见过，但初中教材上的解释几乎都是错的 BV18yXbB8EJw 这条线看得清摸得着，但你永远测不出它的长度
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `影视剪辑`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `科学科普`
 
 ## 相关热点
 
-- [会飞的特斯拉跑车有什么应用场景](yi-jian-shuang-diao.md)
-- [张继科说刘丁硕得罪了不少人](shou-zhu-dai-tu.md)
-- [中纪委：只要搞腐败就没所谓平安着陆](wang-mei-zhi-ke.md)
-- [刘丁硕疑暗讽张继科蹭热度、低价课扰乱市场，张继科回怼「段位不够、上不了台面」，你咋看？他两有啥纠葛吗？](wen-ji-qi-wu.md)
+- [95后小伙做“共享儿女”300元1小时](yi-jian-shuang-diao.md)
+- [我家那闺女不要再诉苦了](shou-zhu-dai-tu.md)
+- [直击西安阿达西烤馕现场](wang-mei-zhi-ke.md)
+- [多家银行上调存款利率，五年期定存高至 2.1%，怎样看待这一变化？还会持续上调吗？](wen-ji-qi-wu.md)
 
 ## 站内推荐
 
-- [浪漫惊悚文字冒险《Rain98》第二支PV公开！Demo现已上线Steam！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [美国最肥披萨店！全球第一大50斤70000千卡有多离谱？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [【纪录片】威尔史密斯的极地纵横 03 厄瓜多尔搜寻水蚺](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [重金托举女儿明星路却欠打工人345万](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [嫉妒心太强刘丁硕这句话太不应该了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [科学家们用物理智斗爱因斯坦？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [浪漫惊悚文字冒险《Rain98》第二支PV公开！Demo现已上线Steam！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [“村干部”助农直播带货？小心骗局](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [抖音和京东公开互呛](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [陈奕迅将开26场演唱会：禁止带手机](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [张继科 刘丁硕](http://www.daogukj.com/fudrdubx/)
-- [刘丁硕疑暗讽张继科蹭热度、低价课扰乱市场，张继科回怼「段位不够、上不了台面」，你咋看？他两有啥纠葛吗？](http://www.daogukj.com/jnybznkv/)
-- [英国菜究竟是一种什么刑罚？英国人还有味觉吗？](http://www.daogukj.com/4844384)
-- [货轮起火沉没 大量iPhone漂浮海面](http://www.daogukj.com/sgrsjaxr/)
-- [95后小伙做“共享儿女”300元1小时](http://www.play.hengshemaoyi.cn/xiju/2709685.htm)
-- [被问是否是特朗普替罪羊泽连斯基沉默](http://www.daogukj.com/2157977)
-- [让人生理性厌恶的两口子黄子韬徐艺洋](http://www.play.hengshemaoyi.cn/kongbu/7420321.htm)
-- [德小蓝灰鲸鲨战车！这自带音响的小车谁不爱呢？可把玩可合体可扔出！4套检视也是没谁了吧？](http://www.movie.hkepx.cn/xiju/8620011.htm)
-- [张继科说刘丁硕得罪了不少人](http://www.play.hengshemaoyi.cn/kongbu/8118071.htm)
-- [长白山天池“水怪”真容揭秘](http://www.daogukj.com/ybylltrh/)
-- [张杰演唱会被三个女儿打断演唱节奏](http://www.play.hengshemaoyi.cn/xiju/7207629.htm)
-- [拿员工血汗钱给女儿铺星路](http://www.play.hengshemaoyi.cn/xiju/8320007.htm)
-- [贾乃亮否认有儿子](http://www.play.hengshemaoyi.cn/kongbu/8567673.htm)
-- [“以善为饵，比恶更恶”](http://www.movie.hkepx.cn/xiju/6034585.htm)
-- [班主任休产假遭家长投诉质问「一定要生孩子吗」，教师称举报信数量激增，如何看待近几年兴起的校园投诉潮？](http://www.movie.hkepx.cn/xiju/6364290.htm)
-- [学生插队被制止家长举报老师体罚](http://www.movie.hkepx.cn/xiju/0846089.htm)
-- [张继科劝大家少接触刘丁硕](http://www.daogukj.com/1651835)
-- [中国飞行汽车在做什么](http://www.daogukj.com/amghneqm/)
-- [怎么评价高三学生陈妤颉在近期访谈中提到的“最好不出省不出市”的高考目标？](http://www.movie.hkepx.cn/xiju/4371729.htm)
-- [乌导弹连炸俄6架苏34战机有何影响](http://www.daogukj.com/gzlhbupb/)
-- [谁看完《嫁金钗》第一集脸不疼](http://www.daogukj.com/dhxrjyno/)
-- [家长怒斥让小孩扫厕所老师怎么不干](http://www.play.hengshemaoyi.cn/kongbu/0642618.htm)
-- [山东费县网红“沂蒙三老板”离世](http://www.play.hengshemaoyi.cn/xiju/9001524.htm)
-- [重金托举女儿明星路却欠打工人345万](http://www.movie.hkepx.cn/xiju/9522798.htm)
-- [大学生生活费到底多少才够用](http://www.play.hengshemaoyi.cn/xiju/7270146.htm)
-- [华中科技大学女篮与武汉盛帆女篮爆发大规模冲突，华科主帅追打对方球员，具体情况如何？将面临什么处罚？](http://www.movie.hkepx.cn/xiju/6713581.htm)
-- [夫妻花67.3万买劳力士店员报警](http://www.movie.hkepx.cn/xiju/1107922.htm)
-- [如何看待洛阳博物馆回应闭馆一年，称新馆运行超 15 年需要升级，辟谣洛阳挖出「传国玉玺」？](http://www.play.hengshemaoyi.cn/kongbu/1709616.htm)
-- [黄奇帆被查 中纪委官网重磅发文](http://www.daogukj.com/1746327)
-- [教师不愿当班主任困局怎么破](http://www.movie.hkepx.cn/xiju/9443648.htm)
-- [新疆喀什要投资5000万新建景区？假](http://www.movie.hkepx.cn/movie/6311095.htm)
-- [徐艺洋怀孕下楼梯那英扶了她一把](http://www.play.hengshemaoyi.cn/xiju/1238840.htm)
+- [夫妻花67.3万买劳力士店员报警](http://www.daogukj.com/fudrdubx/)
+- [多家银行上调存款利率，五年期定存高至 2.1%，怎样看待这一变化？还会持续上调吗？](http://www.daogukj.com/jnybznkv/)
+- [“优秀的作品都在讲同一件事”](http://www.daogukj.com/4844384)
+- [【独家】《凡人修仙传之慕兰之战》第20集【总第196集】](http://www.daogukj.com/sgrsjaxr/)
+- [会飞的特斯拉 敲打了中国车企](http://www.play.hengshemaoyi.cn/xiju/2709685.htm)
+- [高市为何把参加APEC峰会门槛推给国会](http://www.daogukj.com/2157977)
+- [如何评价三国杀新包《蚀心入魔·贪》？](http://www.play.hengshemaoyi.cn/kongbu/7420321.htm)
+- [女子选“聪明又老实”的结婚后后悔](http://www.movie.hkepx.cn/xiju/8620011.htm)
+- [我家那闺女不要再诉苦了](http://www.play.hengshemaoyi.cn/kongbu/8118071.htm)
+- [多少岁才算老人家](http://www.daogukj.com/ybylltrh/)
+- [当代福尔摩斯让我找到了](http://www.play.hengshemaoyi.cn/xiju/7207629.htm)
+- [花费上万！真人版弹丸论破开庭！](http://www.play.hengshemaoyi.cn/xiju/8320007.htm)
+- [“会飞”的特斯拉能够“落地”吗](http://www.play.hengshemaoyi.cn/kongbu/8567673.htm)
+- [做了鸡翅，孩子想多吃一个发现没有了，看到表弟碗里堆积几个，二宝看了一眼之后默默吃饭，你会怎么处理？](http://www.movie.hkepx.cn/xiju/6034585.htm)
+- [为什么感觉一代教父对任何事情云淡风轻，总可以拿捏很好，但二代教父感觉过的很艰难？](http://www.movie.hkepx.cn/xiju/6364290.htm)
+- [唐九洲戏曲女装扮相](http://www.movie.hkepx.cn/xiju/0846089.htm)
+- [郑合惠子任宥纶挽手遛狗路透](http://www.daogukj.com/1651835)
+- [“重阳”的由来](http://www.daogukj.com/amghneqm/)
+- [科学家吴军辞去美终身教职回国加盟西湖大学，这一选择背后有哪些考量？](http://www.movie.hkepx.cn/xiju/4371729.htm)
+- [警方回应男子出狱后50余万被转走](http://www.daogukj.com/gzlhbupb/)
+- [吴奇隆戴老花眼镜拼豆 熬到凌晨3点](http://www.daogukj.com/dhxrjyno/)
+- [爸爸AB型妈妈A型女儿O型](http://www.play.hengshemaoyi.cn/kongbu/0642618.htm)
+- [黄奇帆被查 中纪委官网重磅发文](http://www.play.hengshemaoyi.cn/xiju/9001524.htm)
+- [抖音和京东公开互呛](http://www.movie.hkepx.cn/xiju/9522798.htm)
+- [小伙睡太沉家人叫不醒哭着欲办后事](http://www.play.hengshemaoyi.cn/xiju/7270146.htm)
+- [美国最肥披萨店！全球第一大50斤70000千卡有多离谱？](http://www.movie.hkepx.cn/xiju/6713581.htm)
+- [在梅边 夯爆了](http://www.movie.hkepx.cn/xiju/1107922.htm)
+- [如何看待《流浪地球3》首次票房预测为48亿？](http://www.play.hengshemaoyi.cn/kongbu/1709616.htm)
+- [二十年后发现老师早知道自己撒谎](http://www.daogukj.com/1746327)
+- [网传世界杯一战封神的佛得角40岁门将沃齐尼亚被俱乐部弃用，疑似要提前退役，原因是什么？](http://www.movie.hkepx.cn/xiju/9443648.htm)
+- [社保新规11月1日起施行，明确自愿放弃社保无效，怎样解读？企业未足额缴纳社保，员工权益会受到哪些损害？](http://www.movie.hkepx.cn/movie/6311095.htm)
+- [新疆喀什要投资5000万新建景区？假](http://www.play.hengshemaoyi.cn/xiju/1238840.htm)
 - [一口气看完故宫角楼建造全过程](http://www.daogukj.com/5649815)
-- [重庆一车辆从60米高架桥坠落系谣言](http://www.movie.hkepx.cn/movie/6082292.htm)
-- [特斯拉“弹跳汽车”到底有啥用](http://www.daogukj.com/7096702)
-- [美国最肥披萨店！全球第一大50斤70000千卡有多离谱？](http://www.movie.hkepx.cn/xiju/6645727.htm)
-- [会飞的特斯拉跑车有什么应用场景](http://www.play.hengshemaoyi.cn/xiju/6625835.htm)
-- [如何评价DeepSeek V4.1 Flash 1017?](http://www.daogukj.com/qkznereg/)
-- [成吉思汗第32代嫡孙女斯琴杭茹离世](http://www.movie.hkepx.cn/xiju/8695048.htm)
-- [如何看待宾川老人误喝白桃香氛洁厕慕斯事件？日化产品外形模仿食品饮料包装是否合适？](http://www.play.hengshemaoyi.cn/xiju/6994271.htm)
-- [消失很久的“结婚大件”突然卖爆了](http://www.play.hengshemaoyi.cn/kongbu/9150882.htm)
-- [为什么宋江那么牛，江湖上的人都卖他的面子？](http://www.movie.hkepx.cn/xiju/4430995.htm)
-- [刘诗诗新剧面相变了](http://www.play.hengshemaoyi.cn/xiju/0984127.htm)
+- [徐艺洋怀孕下楼梯那英扶了她一把](http://www.movie.hkepx.cn/movie/6082292.htm)
+- [舅舅立遗嘱换我养老该怎么办？](http://www.daogukj.com/7096702)
+- [浪漫惊悚文字冒险《Rain98》第二支PV公开！Demo现已上线Steam！](http://www.movie.hkepx.cn/xiju/6645727.htm)
+- [95后小伙做“共享儿女”300元1小时](http://www.play.hengshemaoyi.cn/xiju/6625835.htm)
+- [怎么评价高三学生陈妤颉在近期访谈中提到的“最好不出省不出市”的高考目标？](http://www.daogukj.com/qkznereg/)
+- [双休不一定休周六周日](http://www.movie.hkepx.cn/xiju/8695048.htm)
+- [如何看待洛阳博物馆回应闭馆一年，称新馆运行超 15 年需要升级，辟谣洛阳挖出「传国玉玺」？](http://www.play.hengshemaoyi.cn/xiju/6994271.htm)
+- [人民日报：岂能让职业差评扰乱市场](http://www.play.hengshemaoyi.cn/kongbu/9150882.htm)
+- [解放军南北6处演训有何深意](http://www.movie.hkepx.cn/xiju/4430995.htm)
+- [演员全是俊男美女让冯远征犯了愁](http://www.play.hengshemaoyi.cn/xiju/0984127.htm)
 - [夫妻买2块劳力士不选不试戴 店员报警](http://www.play.hengshemaoyi.cn/kongbu/0936148.htm)
 - [事业编和公务员区别](http://www.movie.hkepx.cn/xiju/8400822.htm)
-- [国家出手 养老账单要变了](http://www.daogukj.com/ogibyscz/)
-- [女子生下龙凤胎起诉已婚董事长望其承担养育责任，男方质疑其通过人工试管受孕，有哪些疑点待厘清？](http://www.daogukj.com/1532292)
-- [深圳一天内报名停驶私家车人数超12万](http://www.movie.hkepx.cn/xiju/9678115.htm)
-- [怎么看印财长抱怨中国“歧视”印牛肉](http://www.movie.hkepx.cn/movie/0181516.htm)
-- [李晨郑恺看到王祖蓝回归的反应](http://www.movie.hkepx.cn/movie/7964895.htm)
+- [防癌神药出厂价不到1块钱](http://www.daogukj.com/ogibyscz/)
+- [央视三国演义，为什么会安排一个徐晃被颜良斩杀的桥段，不觉得诡异吗？](http://www.daogukj.com/1532292)
+- [特斯拉新车内部测试画面曝光](http://www.movie.hkepx.cn/xiju/9678115.htm)
+- [警方追查出1400余张加油机作弊主板](http://www.movie.hkepx.cn/movie/0181516.htm)
+- [教师不愿当班主任困局怎么破](http://www.movie.hkepx.cn/movie/7964895.htm)
 
 </details>
 
 ## 原始来源
 
-- [“优秀的作品都在讲同一件事”](https://b23.tv/BV1wbpR6HE1g)
+- [【毕导】不做诺奖科普的第一年，科普博主我还会做多久？](https://b23.tv/BV1cpJ86BEys)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 34ad366942761b815d71 -->
+<!-- content-fingerprint: ec8259e977feb322c664 -->
