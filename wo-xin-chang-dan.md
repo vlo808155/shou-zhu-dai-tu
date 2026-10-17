@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 教师真的是社会阅历最少的人吗？
+# 【毕导】不做诺奖科普的第一年，科普博主我还会做多久？
 
-> 来源：知乎热榜 · 排名：第 5 位 · 热度：439 万热度 · 分类：问答 · 更新：2026-10-17T13:41:05+08:00
+> 来源：哔哩哔哩热门 · 排名：第 5 位 · 热度：535206 · 分类：科学科普 · 更新：2026-10-17T17:41:58+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“教师真的是社会阅历最少的人吗？”位列第 5 位，公开热度指标为 439 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【毕导】不做诺奖科普的第一年，科普博主我还会做多久？”位列第 5 位，公开热度指标为 535206，榜单分类为“科学科普”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：网上总有人说，教师是社会阅历最少的人，因为他们一毕业就从学校到学校，没有到社会历练，“社会经验”不足。大家认可这个观点吗？
+来源公开摘要显示：科普博主会被AI取代吗？也许会吧。 但我感觉，暂时还有一件人类比AI更强的事情。 ———————————————————————————— 你还可以看看: 这个X你肯定见过，但它其实根本不存在 BV1VVhk6pEiR 这是什么妖术？酒在坛子里是绿色，舀出来瞬间变红！ BV1JiVb6EEi7 我预言了一个物理规律，历时100天我证明了它 BV1wPoVB7Egv 这 个现象你肯定见过，但初中教材上的解释几乎都是错的 BV18yXbB8EJw 这条线看得清摸得着，但你永远测不出它的长度
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `科学科普`
 
 ## 相关热点
 
-- [“这波秒开仙人，直接把六小龄童看呆了！”](po-fu-chen-zhou.md)
-- [夫妻买2块劳力士不选不试戴 店员报警](bei-shui-yi-zhan.md)
-- [邓亚萍说刘丁硕是谁](zhi-shang-tan-bing.md)
-- [特斯拉全新Roadster为何能上天](wei-wei-jiu-zhao.md)
+- [大学生生活费到底多少才够用](po-fu-chen-zhou.md)
+- [刘涛和蒋欣怎么了](bei-shui-yi-zhan.md)
+- [山东费县网红“沂蒙三老板”离世](zhi-shang-tan-bing.md)
+- [为什么年轻人开始流行「纯过日子」？这是理性回归还是被迫收缩？](wei-wei-jiu-zhao.md)
 
 ## 站内推荐
 
-- [Roadster 发布后，特斯拉、SpaceX 仍在大跌，马斯克身家四天缩水5286亿元，如何解读？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [刘丁硕疑暗讽张继科蹭热度、低价课扰乱市场，张继科回怼「段位不够、上不了台面」，你咋看？他两有啥纠葛吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [如何看待海外研究人员曝光「运行在腾讯云上 AI 智能体为查询高德地图，自主利用泄露密钥、绕过反爬」？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [为什么冬泳的大都是老年人？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [2627赛季NBA季前赛开拓者 118:128 勇士，如何评价这场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [科学家们用物理智斗爱因斯坦？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [英国菜究竟是一种什么刑罚？英国人还有味觉吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [挑战把歌词中的爱换成钱 网友：实在是忧郁不起来了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [消失很久的“结婚大件”突然卖爆了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [iPhoneDuo官方壳用胶固定](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [中建七局拖欠118名农民工合计320万工资，为何这些大企业也会拖欠工资？相关负责人可能会面临哪些处罚？](http://www.daogukj.com/epcjcrex/)
-- [【侦探TV】真好…每个人都有自己忙的事……](http://www.movie.hkepx.cn/xiju/7554306.htm)
-- [长白山天池水怪真容揭秘](http://www.daogukj.com/7098171)
-- [如何看待宾川老人误喝白桃香氛洁厕慕斯事件？日化产品外形模仿食品饮料包装是否合适？](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
-- [【暗区突围手游PV】兵临城下，全新篇章「战火重燃」10月29日上线！C2S0赛季即将开启](http://www.daogukj.com/5595330)
-- [班主任休产假家长称一定要生孩子吗](http://www.movie.hkepx.cn/xiju/4881611.htm)
-- [徐艺洋喝酒视频有奶瓶清洁剂](http://www.daogukj.com/2794428)
-- [朱棣：“我的侄子走丢了，有好心人能帮帮我吗？”](http://www.movie.hkepx.cn/movie/0220033.htm)
-- [为什么年轻人开始流行「纯过日子」？这是理性回归还是被迫收缩？](http://www.daogukj.com/3787812)
-- [张继科劝大家少接触刘丁硕](http://www.movie.hkepx.cn/movie/2410306.htm)
-- [一碰就会“叫”的虫蛹，你见过吗？](http://www.movie.hkepx.cn/movie/4961738.htm)
-- [沈月好友翁小雯离婚](http://www.movie.hkepx.cn/xiju/4077836.htm)
-- [教师不愿当班主任 困局怎么破](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
-- [2627赛季NBA季前赛开拓者 118:128 勇士，如何评价这场比赛？](http://www.daogukj.com/rrqdxtcv/)
-- [新疆喀什要投资5000万新建景区？假](http://www.daogukj.com/5407672)
-- [妈妈将大一儿子生活费从4000降至2000](http://www.daogukj.com/9043091)
-- [红魔12 Pro+上手体验：终极游戏利器](http://www.daogukj.com/9116005)
-- [洛阳辟谣挖出“传国玉玺”](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
-- [挑战全程扛共享单车登顶峨眉山金顶](http://www.daogukj.com/eqgomafp/)
-- [【侯绿萝】更新了一条视频，快来围观！](http://www.daogukj.com/7605991)
-- [拿员工血汗钱给女儿铺星路](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
-- [如何测试身体衰老程度](http://www.movie.hkepx.cn/movie/4360714.htm)
-- [酒厂在药酒里掺伟哥 被罚252万](http://www.daogukj.com/4727961)
-- [【纪录片】威尔史密斯的极地纵横 03 厄瓜多尔搜寻水蚺](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
-- [一口气看完故宫角楼建造全过程](http://www.movie.hkepx.cn/xiju/3457747.htm)
-- [刘丁硕称输樊振东是人生最高光时刻](http://www.movie.hkepx.cn/movie/9116389.htm)
-- [大陆交换生因一张照片遭民进党驱逐](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
-- [本周末北京交通压力较大](http://www.movie.hkepx.cn/movie/6275425.htm)
-- [第九届进博会多项数据创历年新高](http://www.daogukj.com/6962158)
-- [病危老人被中介哄骗220万房只卖70万](http://www.movie.hkepx.cn/movie/3536173.htm)
-- [iPhone Duo首批现货溢价最高达16000](http://www.daogukj.com/5602314)
-- [能飞的Roadster对特斯拉有何意义](http://www.daogukj.com/rhzksqyv/)
-- [女子生下龙凤胎 起诉已婚董事长](http://www.daogukj.com/ciddvmwp/)
-- [德国一机器人涉嫌猥亵16岁少女，警方调查疑系机器人主人远程操控，案件调查难点在哪？如何认定相关责任 ？](http://www.movie.hkepx.cn/xiju/5158718.htm)
-- [iPhone Duo卖爆背后的真相](http://www.movie.hkepx.cn/xiju/4192777.htm)
-- [当我每次操作，都会同步改变世界所有区块！](http://www.movie.hkepx.cn/xiju/6976677.htm)
-- [董宇辉的“榜一大哥”要补税7.9亿](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
-- [92%在岗班主任不愿继续干了](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
-- [29岁教师瘫痪 刚怀孕的妻子回应](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
-- [河北卫视回应孙颖莎站错位](http://www.daogukj.com/3262256)
-- [为什么内存要叫内存，而不是临时存储？](http://www.daogukj.com/2924239)
-- [怎么评价高三学生陈妤颉在近期访谈中提到的“最好不出省不出市”的高考目标？](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
-- [夫妻买2块劳力士不选不试戴 店员报警](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
-- [Roadster 发布后，特斯拉、SpaceX 仍在大跌，马斯克身家四天缩水5286亿元，如何解读？](http://www.daogukj.com/cszxbbqq/)
-- [我是人类](http://www.movie.hkepx.cn/movie/9183199.htm)
-- [如何看待洛阳博物馆回应闭馆一年，称新馆运行超 15 年需要升级，辟谣洛阳挖出「传国玉玺」？](http://www.daogukj.com/zmttmgkb/)
-- [【独家】《凡人修仙传之慕兰之战》第20集【总第196集】](http://www.movie.hkepx.cn/xiju/7610500.htm)
-- [猴子持鞭打饲养员 分不清谁是大小王](http://www.movie.hkepx.cn/xiju/6364739.htm)
-- [黄奇帆被查 中纪委网站发文](http://www.daogukj.com/5178801)
-- [库克：苹果折叠屏完全在中国制造](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
+- [【纪录片】威尔史密斯的极地纵横 03 厄瓜多尔搜寻水蚺](http://www.daogukj.com/epcjcrex/)
+- [曝离婚多年做直播的男明星有儿子](http://www.movie.hkepx.cn/xiju/7554306.htm)
+- [特斯拉新款Roadster能像火箭一样「起飞」，它能解决哪些实际问题？在现行法律下能上路吗？](http://www.daogukj.com/7098171)
+- [浪漫惊悚文字冒险《Rain98》第二支PV公开！Demo现已上线Steam！](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
+- [男子为女友母亲养老送终获500万遗产](http://www.daogukj.com/5595330)
+- [夫妻花67.3万买劳力士店员报警](http://www.movie.hkepx.cn/xiju/4881611.htm)
+- [女子生下龙凤胎起诉已婚董事长望其承担养育责任，男方质疑其通过人工试管受孕，有哪些疑点待厘清？](http://www.daogukj.com/2794428)
+- [女生小肚子微微凸起才正常](http://www.movie.hkepx.cn/movie/0220033.htm)
+- [德小蓝灰鲸鲨战车！这自带音响的小车谁不爱呢？可把玩可合体可扔出！4套检视也是没谁了吧？](http://www.daogukj.com/3787812)
+- [教师不愿当班主任困局怎么破](http://www.movie.hkepx.cn/movie/2410306.htm)
+- [“最强”厄尔尼诺意味什么](http://www.movie.hkepx.cn/movie/4961738.htm)
+- [教师真的是社会阅历最少的人吗？](http://www.movie.hkepx.cn/xiju/4077836.htm)
+- [为什么现在很多人宁可把钱放在银行账户上，也不愿意拿出来消费?再多的钱不拿出来消费，只是一个数字？](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
+- [iPhoneDuo官方壳用胶固定](http://www.daogukj.com/rrqdxtcv/)
+- [华中科技大学女篮与武汉盛帆女篮爆发大规模冲突，华科主帅追打对方球员，具体情况如何？将面临什么处罚？](http://www.daogukj.com/5407672)
+- [【篮球巨星】雷影艾全技能脑洞！Man！What can i say！](http://www.daogukj.com/9043091)
+- [电影院玩法持续“上新”](http://www.daogukj.com/9116005)
+- [徐艺洋怀孕下楼梯那英扶了她一把](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
+- [有人一口气买3部iPhone Duo准备卖掉](http://www.daogukj.com/eqgomafp/)
+- [用了54年的“闰秒”将退场](http://www.daogukj.com/7605991)
+- [国家出手 养老账单要变了](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
+- [糖葫芦进入瑜伽裤时代](http://www.movie.hkepx.cn/movie/4360714.htm)
+- [李晨郑恺看到王祖蓝回归的反应](http://www.daogukj.com/4727961)
+- [重庆一车辆从60米高架桥坠落系谣言](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
+- [事业编和公务员区别](http://www.movie.hkepx.cn/xiju/3457747.htm)
+- [“以善为饵，比恶更恶”](http://www.movie.hkepx.cn/movie/9116389.htm)
+- [如何看待洛阳博物馆回应闭馆一年，称新馆运行超 15 年需要升级，辟谣洛阳挖出「传国玉玺」？](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
+- [多家银行上调存款利率，五年期定存高至 2.1%，怎样看待这一变化？还会持续上调吗？](http://www.movie.hkepx.cn/movie/6275425.htm)
+- [如何看待《流浪地球3》首次票房预测为48亿？](http://www.daogukj.com/6962158)
+- [一小男孩被曝衣衫不整跟随母亲游荡，官方称孩子母亲多次拒绝救助，具体是什么情况？](http://www.movie.hkepx.cn/movie/3536173.htm)
+- [拿员工血汗钱给女儿铺星路](http://www.daogukj.com/5602314)
+- [如何看待宾川老人误喝白桃香氛洁厕慕斯事件？日化产品外形模仿食品饮料包装是否合适？](http://www.daogukj.com/rhzksqyv/)
+- [深圳一天内报名停驶私家车人数超12万](http://www.daogukj.com/ciddvmwp/)
+- [一口气看完故宫角楼建造全过程](http://www.movie.hkepx.cn/xiju/5158718.htm)
+- [张杰演唱会被三个女儿打断演唱节奏](http://www.movie.hkepx.cn/xiju/4192777.htm)
+- [沈月好友翁小雯离婚](http://www.movie.hkepx.cn/xiju/6976677.htm)
+- [张继科说刘丁硕得罪了不少人](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
+- [Roadster 发布后，特斯拉、SpaceX 仍在大跌，马斯克身家四天缩水5286亿元，如何解读？](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
+- [贾乃亮否认有儿子](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
+- [多少岁才算老人家](http://www.daogukj.com/3262256)
+- [嫉妒心太强刘丁硕这句话太不应该了](http://www.daogukj.com/2924239)
+- [成吉思汗第32代嫡孙女斯琴杭茹离世](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
+- [刘涛和蒋欣怎么了](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
+- [科学家们用物理智斗爱因斯坦？](http://www.daogukj.com/cszxbbqq/)
+- [会飞的特斯拉跑车有什么应用场景](http://www.movie.hkepx.cn/movie/9183199.htm)
+- [【独家】《凡人修仙传之慕兰之战》第20集【总第196集】](http://www.daogukj.com/zmttmgkb/)
+- [货轮起火沉没 大量iPhone漂浮海面](http://www.movie.hkepx.cn/xiju/7610500.htm)
+- [被问是否是特朗普替罪羊泽连斯基沉默](http://www.movie.hkepx.cn/xiju/6364739.htm)
+- [中国留学生披旭日旗被同胞怒斥](http://www.daogukj.com/5178801)
+- [朱棣：“我的侄子走丢了，有好心人能帮帮我吗？”](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
 
 </details>
 
 ## 原始来源
 
-- [教师真的是社会阅历最少的人吗？](https://www.zhihu.com/question/2072942795107705780)
+- [【毕导】不做诺奖科普的第一年，科普博主我还会做多久？](https://b23.tv/BV1cpJ86BEys)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d5a38d1a58a8f5018d1a -->
+<!-- content-fingerprint: 6958f68f78fe872f2c4f -->
