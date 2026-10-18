@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 普京：包围并消灭2000名乌军
+# 月薪5000存款30万
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7427424 · 更新：2026-10-18T08:59:23+08:00
+> 来源：微博热搜 · 排名：第 5 位 · 热度：356838 · 分类：财经 · 更新：2026-10-18T13:43:45+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“普京：包围并消灭2000名乌军”位列第 4 位，公开热度指标为 7427424。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“月薪5000存款30万”位列第 5 位，公开热度指标为 356838，榜单分类为“财经”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：据俄媒当地时间10月16日报道，俄总统普京表示，俄军在哈尔科夫州东北部包围并消灭了一支约2000人的乌军集群，该战绩“非比寻常”。乌克兰方面暂未对此作出回应，但乌军此前曾坚称“包围圈不存在”。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `财经`
 
 ## 相关热点
 
-- [2700元搞死一家店铺](wang-mei-zhi-ke.md)
-- [重阳节](wen-ji-qi-wu.md)
-- [有人说常光顾的一家店老板如果突然开始搭话，就再也不想去了，为啥会有这种心理？你有同感吗？](wo-xin-chang-dan.md)
-- [提示：本视频可以呼吸 《无呼吸义务》](po-fu-chen-zhou.md)
+- [邻居和民警托举头部被卡防盗网女童](wang-mei-zhi-ke.md)
+- [男子睡梦中蟑螂钻进耳道，拍打水冲后蟑螂死在里面，就医发现耳膜险穿孔，蟑螂等异物进入耳朵怎样处理最安全？](wen-ji-qi-wu.md)
+- [英国又想回到欧盟？不，是拯救欧盟！](wo-xin-chang-dan.md)
+- [司机将女子放进后备箱致其失温死亡](po-fu-chen-zhou.md)
 
 ## 站内推荐
 
-- [电影院玩法持续“上新”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [越来越多人不接陌生电话](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [徐艺洋弟弟发文](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [⚡1000只猫vs1000只狗⚡](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [今又重阳岁岁重阳](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [本周我国硬核成果密集上新](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [男子叫救援队吊车后坠落被砸身亡](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [Angelababy回应被说显老](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [越来越多人不接陌生电话](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [法国多地抗议引发骚乱](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [五部门提示：这类央国企招聘全是骗局](http://www.daogukj.com/srmtipfy/)
-- [今冬我国大部大概率是暖冬](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
-- [多地试点直升高中](http://www.daogukj.com/5764219)
-- [以小龙女的外貌，她有很多选择，为什么最后是杨过？](http://www.daogukj.com/5051205)
-- [友情提示：没点艺术细胞的人刷不到这条视频！](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
-- [班长的心脏有多大？卡壳处理真是这样吗？悬火哑火和卡壳有什么区别【鉴定网络军事言论】](http://www.movie.hkepx.cn/movie/3745200.htm)
-- [嫁金钗这是奔着破纪录去的](http://www.daogukj.com/eptgayul/)
-- [特斯拉飞行跑车遭遇踢馆](http://www.daogukj.com/zzzmzdnw/)
-- [国家出手 养老账单要变了](http://www.daogukj.com/2895651)
-- [演员招不到黄胖子了](http://www.daogukj.com/bmrafxkl/)
-- [特斯拉Roadster“能飞”是噱头吗](http://www.movie.hkepx.cn/movie/6678209.htm)
-- [当Up五年了，终于还是决定勇敢迈出这一步](http://www.daogukj.com/2230415)
-- [德小蓝灰鲸鲨战车！这自带音响的小车谁不爱呢？可把玩可合体可扔出！4套检视也是没谁了吧？](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
-- [亚马尔世界波破门](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
-- [社保新规11月1日起施行，明确自愿放弃社保无效，怎样解读？企业未足额缴纳社保，员工权益会受到哪些损害？](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
-- [女子生下龙凤胎起诉已婚董事长望其承担养育责任，男方质疑其通过人工试管受孕，有哪些疑点待厘清？](http://www.movie.hkepx.cn/xiju/6217864.htm)
-- [九月初九愿岁月久久](http://www.movie.hkepx.cn/movie/4778790.htm)
-- [曾辉新综艺官宣](http://www.movie.hkepx.cn/movie/7470449.htm)
-- [智界将获独立造车资质，内部人士确认公司计划上市，获独立造车资质意味着什么？对华为和奇瑞有怎样的影响？](http://www.movie.hkepx.cn/movie/6111499.htm)
-- [重阳节](http://www.movie.hkepx.cn/xiju/2348853.htm)
-- [多少岁才算老人家](http://www.daogukj.com/fygnbifa/)
-- [嫁金钗口碑发酵](http://www.daogukj.com/9070712)
-- [特斯拉飞行汽车被质疑是噱头](http://www.daogukj.com/hoflukum/)
-- [⚡1000只猫vs1000只狗⚡](http://www.daogukj.com/3336484)
-- [广西大学通报一学生校内死亡](http://www.movie.hkepx.cn/movie/3675931.htm)
-- [吴越发声AI诈骗太恶劣](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
-- [今又重阳岁岁重阳](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
-- [移动公司在我的名下给别人安装了个宽带，现在取不掉怎么办呢？](http://www.daogukj.com/xljzrgjc/)
-- [直击西安阿达西烤馕现场](http://www.daogukj.com/sfjdsknb/)
-- [人胖的时候感受不到自己胖](http://www.movie.hkepx.cn/xiju/0712256.htm)
-- [申真谞加冕个人第九冠超越柯洁，如何评价其历史地位？](http://www.daogukj.com/blhofduy/)
-- [“起兵yes削藩no，奉天靖难gogogo！”](http://www.daogukj.com/qdmxuvra/)
-- [徐艺洋弟弟发文](http://www.daogukj.com/3062862)
-- [【纪录片】中国救护2 05 家和万事兴](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
-- [亚马尔惊天弧线球破门首开纪录](http://www.daogukj.com/4819328)
+- [周末打虎！黄日波被查](http://www.daogukj.com/srmtipfy/)
+- [爸爸AB型妈妈A型生出O型血宝宝](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
+- [父母欠薪或严重影响aijing星途](http://www.daogukj.com/5764219)
+- [【使命召唤23：现代战争4】4K 最高画质 全战役 全剧情流程通关攻略 战役模式 COD23-Call of Duty：Modern Warfare 4【完结】](http://www.daogukj.com/5051205)
+- [爸妈带娃看世界 4年没走出河南](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
+- [地牢酒馆-29集 《最后一次飞行》](http://www.movie.hkepx.cn/movie/3745200.htm)
+- [法国市长在以遭棍棒殴打现场曝光](http://www.daogukj.com/eptgayul/)
+- [重阳节有哪些经典诗词值得一读？](http://www.daogukj.com/zzzmzdnw/)
+- [张雪机车冲年度前三](http://www.daogukj.com/2895651)
+- [马斯克极度浓缩的一生](http://www.daogukj.com/bmrafxkl/)
+- [社保新规11月1日起施行，明确自愿放弃社保无效，怎样解读？企业未足额缴纳社保，员工权益会受到哪些损害？](http://www.movie.hkepx.cn/movie/6678209.htm)
+- [法国多地奢侈品门店被洗劫一空](http://www.daogukj.com/2230415)
+- [中国60岁以上人口超3.23亿](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
+- [员工仅1人的空壳公司中标3000万项目](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
+- [手搓版迪迦奥特曼](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
+- [暴雪封山！7人被困山庄！杀手就潜藏在我们之中？！！「暴雪山庄」](http://www.movie.hkepx.cn/xiju/6217864.htm)
+- [马斯克承认在政治事务有些偏离正轨](http://www.movie.hkepx.cn/movie/4778790.htm)
+- [王心凌演唱会现场直拍](http://www.movie.hkepx.cn/movie/7470449.htm)
+- [冯远征苦恼话剧院招不到一米六几的女演员，现在演员同质化有多严重？艺术院校培养是否应倾向更多元的标准？](http://www.movie.hkepx.cn/movie/6111499.htm)
+- [男子睡梦中蟑螂钻进耳道，拍打水冲后蟑螂死在里面，就医发现耳膜险穿孔，蟑螂等异物进入耳朵怎样处理最安全？](http://www.movie.hkepx.cn/xiju/2348853.htm)
+- [银发族成消费市场增速较快人群](http://www.daogukj.com/fygnbifa/)
+- [张雪机车水上行驶如履平地](http://www.daogukj.com/9070712)
+- [中国人靠数羊入眠竟是翻译事故](http://www.daogukj.com/hoflukum/)
+- [越来越多人不接陌生电话](http://www.daogukj.com/3336484)
+- [日美将举行大规模联合军演，投入兵力近 6 万人，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/3675931.htm)
+- [徐艺洋弟弟发文](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
+- [法国多地抗议引发骚乱](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
+- [【独家】牧神记 第105集 屈山神殿](http://www.daogukj.com/xljzrgjc/)
+- [为什么越来越多的人不骑山地车了？](http://www.daogukj.com/sfjdsknb/)
+- [张家齐妈妈说没用女儿钱买房](http://www.movie.hkepx.cn/xiju/0712256.htm)
+- [移动公司在我的名下给别人安装了个宽带，现在取不掉怎么办呢？](http://www.daogukj.com/blhofduy/)
+- [父母欠薪345万捧出的爱豆令人烧心](http://www.daogukj.com/qdmxuvra/)
+- [Angelababy回应被说显老](http://www.daogukj.com/3062862)
+- [新人婚礼被奔跑吧站姐完整记录](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
+- [现在好多演员都开始演伟人的角色了，未来特型演员会消失吗？](http://www.daogukj.com/4819328)
 - [内部人员代缴采暖费能打折系谣言](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
-- [陪伴9年，绿宝石模组即将下线！零氪玩家没救了？](http://www.movie.hkepx.cn/xiju/6449274.htm)
-- [专家：今冬我国大部大概率是暖冬](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
-- [黄奇帆被查 中纪委官网重磅发文](http://www.movie.hkepx.cn/xiju/8624591.htm)
-- [曾辉被淘汰 流泪感谢孙楠小沈阳](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
-- [员工没来上班 老板1个电话救了两条命](http://www.daogukj.com/2518516)
-- [普京称赞包围消灭2000乌军战果](http://www.movie.hkepx.cn/movie/2625646.htm)
-- [有人说常光顾的一家店老板如果突然开始搭话，就再也不想去了，为啥会有这种心理？你有同感吗？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
-- [蒋依依方辟谣与郭麒麟结婚传闻](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
-- [公交转型：大车退场](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
-- [🛳️杀死伪人🛳️](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
-- [印度东部踩踏事故致17死25伤](http://www.movie.hkepx.cn/xiju/9162988.htm)
-- [如何评价DeepSeek V4.1 Flash 1017?](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
-- [网传世界杯一战封神的佛得角40岁门将沃齐尼亚被俱乐部弃用，疑似要提前退役，原因是什么？](http://www.daogukj.com/xfhybzga/)
-- [医生回应AB型爸和A型妈生出O型娃](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
+- [印度发生严重踩踏事故](http://www.movie.hkepx.cn/xiju/6449274.htm)
+- [我是人类](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
+- [法国一市长遭以定居者殴打](http://www.movie.hkepx.cn/xiju/8624591.htm)
+- [夜市高颜值摊主撞脸于适](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
+- [肖战演唱会业内人脉也拿不到票](http://www.daogukj.com/2518516)
+- [副部级黄日波被查](http://www.movie.hkepx.cn/movie/2625646.htm)
+- [英国又想回到欧盟？不，是拯救欧盟！](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
+- [爸爸AB型血妈妈A型血 女儿O型血](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
+- [余文乐发文道歉](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
+- [【微电影】星河外卖员：规则诡域](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
+- [总说不要饭桌上教育孩子，那到底什么时候，孩子才愿意好好跟我们聊？](http://www.movie.hkepx.cn/xiju/9162988.htm)
+- [《鸣潮》共鸣者战斗演示 | 锁暝](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
+- [申真谞加冕个人第九冠超越柯洁，如何评价其历史地位？](http://www.daogukj.com/xfhybzga/)
+- [终于知道有眼尾沟怎么画眼线了](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
 
 </details>
 
 ## 原始来源
 
-- [普京：包围并消灭2000名乌军](https://www.baidu.com/s?wd=%E6%99%AE%E4%BA%AC%EF%BC%9A%E5%8C%85%E5%9B%B4%E5%B9%B6%E6%B6%88%E7%81%AD2000%E5%90%8D%E4%B9%8C%E5%86%9B&sa=fyb_news&rsv_dl=fyb_news)
+- [月薪5000存款30万](https://s.weibo.com/weibo?q=%E6%9C%88%E8%96%AA5000%E5%AD%98%E6%AC%BE30%E4%B8%87)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 16b27216f8bd69b24e95 -->
+<!-- content-fingerprint: 857d5313beb2a7551e63 -->
