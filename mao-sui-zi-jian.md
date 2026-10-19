@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 姆巴佩“双响” 皇马重返积分榜前三
+# 金鸡奖提名
 
-> 来源：百度热搜 · 排名：第 6 位 · 热度：7233121 · 更新：2026-10-19T09:51:02+08:00
+> 来源：微博热搜 · 排名：第 7 位 · 热度：618930 · 分类：电影 · 更新：2026-10-19T15:05:45+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“姆巴佩“双响” 皇马重返积分榜前三”位列第 6 位，公开热度指标为 7233121。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“金鸡奖提名”位列第 7 位，公开热度指标为 618930，榜单分类为“电影”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月18日，2026-2027赛季西甲第九轮继续进行。皇家马德里主场4:1击败塞维利亚，重返积分榜前三。比赛中居莱尔率先破门，姆巴佩接贝林厄姆传球低射得手扩大比分。下半场，姆巴佩造点并亲自主罚命中完成“双响”。此役过后，皇马积21分升至第三，距榜首巴萨6分。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `电影`
 
 ## 相关热点
 
-- [刘雯第十次走维密秀](san-gu-mao-lu.md)
-- [意大利多地爆发抗议游行](cao-mu-jie-bing.md)
-- [如何看待S16瑞士轮首轮抽签结果，IG首战GEN，TES遭遇 HLE？](feng-sheng-he-li.md)
-- [熊出没最巅峰的一个系列，四季篇](ru-huo-ru-tu.md)
+- [没退休就意外离世交的社保怎么办](san-gu-mao-lu.md)
+- [如何看待代驾称喝酒顾客为赖50元等候费骂人，被其反手举报改装+酒驾+违停，车主最终一共被罚2200元？](cao-mu-jie-bing.md)
+- [也是当上外卖大法官了【第三集】](feng-sheng-he-li.md)
+- [刘雯的翅膀在腰上](ru-huo-ru-tu.md)
 
 ## 站内推荐
 
-- [被曝光后 江苏丹阳连夜通报](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [律师解读欠薪345万却送孩子韩国出道](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [雷佳音大变样](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [宋仲基听到路人说宋慧乔的反应](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [白宇 刘萌萌](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [大额存单重出江湖](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [大学生生活费到底一个月多少合适](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [辛芷蕾掉提金鸡](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [肖战演唱会官周价格](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [赵今麦到了颜值巅峰期](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [马克龙就法国抗议发声](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
-- [朝鲜队退出乒乓球亚锦赛全部比赛项目](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
-- [曝白宇疑似当爸](http://www.daogukj.com/hiiwohqb/)
-- [中超上海海港战胜成都蓉城，争冠形势愈发扑朔迷离，本赛季中超冠军最终将花落谁家？](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
-- [iPhoneDuo商家近百万元订单遭压价](http://www.daogukj.com/2806482)
-- [欧洲多国爆发示威 法国2000多人被捕](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
-- [刘雯、奚梦瑶、贺聪登上2026维密大秀](http://www.daogukj.com/9832220)
-- [殷若宁：高尔夫中国破圈需更多人努力](http://www.movie.hkepx.cn/xiju/4624070.htm)
-- [儿时追过的第一部电视剧！明明抄袭但却依然挥之不去？](http://www.movie.hkepx.cn/movie/0841033.htm)
-- [贺聪拿下维密小开](http://www.movie.hkepx.cn/movie/4609262.htm)
-- [江苏通报千元近视防控镜批发价仅30元](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
+- [王腾官宣今日宜休发布会](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
+- [奚梦瑶回应时隔8年回归维密大秀](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
+- [代露娃再发文回应争议](http://www.daogukj.com/hiiwohqb/)
+- [如何看待国家电影局、体育总局开展「跟着电影去运动」行动，鼓励利用电影院空闲时段开展重大体育赛事直播？](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
+- [韩团心连心印尼成员母亲疑支持屠华人士](http://www.daogukj.com/2806482)
+- [山姆品质暴跌？负责人回应](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
+- [维密史上最贵FantasyBra](http://www.daogukj.com/9832220)
+- [高市早苗3天内2次拜鬼](http://www.movie.hkepx.cn/xiju/4624070.htm)
+- [每一位认真谋生的人都值得被仰望](http://www.movie.hkepx.cn/movie/0841033.htm)
+- [女子离婚6天用AI救了前夫一命](http://www.movie.hkepx.cn/movie/4609262.htm)
+- [有人说砍掉科研圈95%的研究和论文，完全不影响科学发展，这话对吗？](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
 - [刘德华朱丽蒨酒店罕见被偶遇](http://www.daogukj.com/1127111)
-- [钧正平就中国留学生身披旭日旗发声](http://www.daogukj.com/pldvwggd/)
-- [多措并举推动银发经济提质升级](http://www.movie.hkepx.cn/xiju/1287269.htm)
-- [意大利多地爆发抗议游行](http://www.daogukj.com/unklghpc/)
-- [为什么要把社保缴费的尺子统一起来](http://www.daogukj.com/4404570)
-- [白宇 刘萌萌](http://www.daogukj.com/wfqplasc/)
-- [全宇宙最team的一把救世主模式！！！](http://www.daogukj.com/grgritvr/)
-- [曝白宇疑似当爸爸了](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
-- [长乐夜未央丨全新主题区域「未央城」即将上线](http://www.movie.hkepx.cn/movie/3539496.htm)
-- [人民日报评“钓鱼式举报”](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
-- [本西蒙斯跟腱撕裂](http://www.movie.hkepx.cn/xiju/3922759.htm)
-- [“这才是许愿池真正的意义，每一枚硬币都藏着人间善意”](http://www.daogukj.com/ynpujsgi/)
-- [枪手携2500发弹药血洗商场！警员孤身迎战，80米外击毙！](http://www.movie.hkepx.cn/movie/2603972.htm)
-- [Deepseek对百度搜索的冲击有多大？](http://www.daogukj.com/9238608)
-- [特朗普新任白宫发言人上任仅5天就被解雇，创下史上最短纪录，为什么会这样？](http://www.daogukj.com/xdtzeasn/)
-- [广交会见证中国制造硬核升级](http://www.daogukj.com/2229169)
-- [夫妻花67.3万元买劳力士手表，店员劝说2小时无果只好报警！](http://www.daogukj.com/pnnlzznp/)
-- [陈奕迅开启重录旧唱片「现场录音式演唱会」，要求封存手机且禁止跟唱鼓掌，如何看待这一观演规定？](http://www.movie.hkepx.cn/movie/1141317.htm)
+- [日本人被指蒙古大火后未向中国道歉](http://www.daogukj.com/pldvwggd/)
+- [中国经济呈现向新向优发展态势](http://www.movie.hkepx.cn/xiju/1287269.htm)
+- [如何看待代驾称喝酒顾客为赖50元等候费骂人，被其反手举报改装+酒驾+违停，车主最终一共被罚2200元？](http://www.daogukj.com/unklghpc/)
+- [网友高铁上偶遇114岁长寿老人](http://www.daogukj.com/4404570)
+- [赵今麦到了颜值巅峰期](http://www.daogukj.com/wfqplasc/)
+- [丈夫一个热情拥抱 妻子断了5根肋骨](http://www.daogukj.com/grgritvr/)
+- [梅艳芳骨灰被偷运至东南亚？不实](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
+- [【英雄联盟】K/DA官方MV - “FIRESTARTER（燃）”正式上线](http://www.movie.hkepx.cn/movie/3539496.htm)
+- [把房子降到150万 好卖多了](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
+- [乌军对俄发动罕见规模袭击有何意图](http://www.movie.hkepx.cn/xiju/3922759.htm)
+- [【盲人无障碍电影】冰雪奇缘第一部](http://www.daogukj.com/ynpujsgi/)
+- [这款游戏出现在21世纪还是太超前了](http://www.movie.hkepx.cn/movie/2603972.htm)
+- [同样大小的伤口，为什么有的几天就愈合，有的却一直好不了？](http://www.daogukj.com/9238608)
+- [《鸣潮》共鸣者战斗演示 | 锁暝](http://www.daogukj.com/xdtzeasn/)
+- [全年粮食有望再获丰收](http://www.daogukj.com/2229169)
+- [90年了，我们一直在找你们的名字](http://www.daogukj.com/pnnlzznp/)
+- [梁文锋和DeepSeek，为什么配得上"国运级"三个字？](http://www.movie.hkepx.cn/movie/1141317.htm)
 - [法国千所学校抗议演变成暴力骚乱，背后深层原因是什么？](http://www.daogukj.com/3669738)
-- [中国外贸风向标 创多项历史新高](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
-- [梅艳芳骨灰或流向东南亚](http://www.movie.hkepx.cn/xiju/8333303.htm)
-- [熊出没最巅峰的一个系列，四季篇](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
+- [何以中国当惊世界殊](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
+- [如何看待S16瑞士轮首轮抽签结果，IG首战GEN，TES遭遇 HLE？](http://www.movie.hkepx.cn/xiju/8333303.htm)
+- [刘雯的翅膀在腰上](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
 - [谷歌将 TPU AI芯片送入太空，每次执行约15分钟运算，之后必须暂停散热，太空算力中心前景如何？](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
-- [圆通回应快递员上门致女子先兆流产](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
-- [律师解读欠薪345万却送孩子韩国出道](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
-- [盛艾敬哭了](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
-- [郑州警方辟谣“一家五口烧炭自杀”](http://www.movie.hkepx.cn/movie/7218961.htm)
-- [【特摄吐槽】谁家漫画给贝利亚加吻戏？](http://www.movie.hkepx.cn/xiju/0034458.htm)
-- [“九国联军”真能锁住台海大门吗](http://www.movie.hkepx.cn/movie/1373526.htm)
-- [日本出现取消吃饭现象](http://www.movie.hkepx.cn/movie/8174344.htm)
-- [大麦回应“肖战演唱会首排门票25万”](http://www.movie.hkepx.cn/xiju/7049500.htm)
-- [知情人称身披旭日旗留学生是南京人](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
-- [中国留学生身披旭日旗 钧正平发声](http://www.daogukj.com/1670030)
-- [如何评价张雪机车德比斯获年度亚军，张雪机车夺制造商年度第 3 名？](http://www.daogukj.com/4917906)
-- [建议售价1980的眼镜片批发价30](http://www.daogukj.com/jjbeajdp/)
-- [建议售价1980元的眼镜片批发价30元](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
-- [中国留学生披旭日旗引众怒 细节曝光](http://www.daogukj.com/2644309)
-- [南大教授孙智伟自掏工资悬赏解题并提出上千个猜想，这对数学研究有何价值？](http://www.daogukj.com/2520362)
-- [前护士张水华破赛会纪录夺得西马冠军，如何评价她的表现？](http://www.daogukj.com/4354347)
+- [法国](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
+- [大学生生活费到底一个月多少合适](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
+- [震耳欲聋](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
+- [何猷君说奚梦瑶是家族骄傲](http://www.movie.hkepx.cn/movie/7218961.htm)
+- [“肖战演唱会前排门票25万”系谣言](http://www.movie.hkepx.cn/xiju/0034458.htm)
+- [刘雯第10次登上维密大秀](http://www.movie.hkepx.cn/movie/1373526.htm)
+- [曝披旭日旗留学生曾表达支持“台独”](http://www.movie.hkepx.cn/movie/8174344.htm)
+- [特朗普新任白宫发言人上任仅5天就被解雇，创下史上最短纪录，为什么会这样？](http://www.movie.hkepx.cn/xiju/7049500.htm)
+- [眼镜的暴利被谁赚走了](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
+- [披旭日旗中国留学生鞠躬道歉](http://www.daogukj.com/1670030)
+- [陈奕迅开启重录旧唱片「现场录音式演唱会」，要求封存手机且禁止跟唱鼓掌，如何看待这一观演规定？](http://www.daogukj.com/4917906)
+- [丰田将在中国生产新卡罗拉](http://www.daogukj.com/jjbeajdp/)
+- [手机充电时发热正常吗](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
+- [真人版“胡闹厨房” 还能火多久](http://www.daogukj.com/2644309)
+- [该如何评论中国南京籍留学生，在莫斯科国立大学历史系课堂，身披旭日旗、桌上摆放日军军帽的事件？](http://www.daogukj.com/2520362)
+- [同事保胎请假，我接手她的工作，回来后不但没感谢，还各种挑刺，这是为什么？](http://www.daogukj.com/4354347)
 
 </details>
 
 ## 原始来源
 
-- [姆巴佩“双响” 皇马重返积分榜前三](https://www.baidu.com/s?wd=%E5%A7%86%E5%B7%B4%E4%BD%A9%E2%80%9C%E5%8F%8C%E5%93%8D%E2%80%9D+%E7%9A%87%E9%A9%AC%E9%87%8D%E8%BF%94%E7%A7%AF%E5%88%86%E6%A6%9C%E5%89%8D%E4%B8%89&sa=fyb_news&rsv_dl=fyb_news)
+- [金鸡奖提名](https://s.weibo.com/weibo?q=%E9%87%91%E9%B8%A1%E5%A5%96%E6%8F%90%E5%90%8D)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3e667e7d13cbb19756aa -->
+<!-- content-fingerprint: 7d8cb4a72c5fa9ae0243 -->
