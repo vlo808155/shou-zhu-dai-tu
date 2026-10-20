@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何看待华为引望加入宁德时代巧克力换电？
+# 血糖高身体会抛出7个信号
 
-> 来源：知乎热榜 · 排名：第 8 位 · 热度：259 万热度 · 分类：问答 · 更新：2026-10-20T20:57:44+08:00
+> 来源：今日头条热榜 · 排名：第 8 位 · 热度：11836324 · 更新：2026-10-21T01:53:06+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待华为引望加入宁德时代巧克力换电？”位列第 8 位，公开热度指标为 259 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“血糖高身体会抛出7个信号”位列第 8 位，公开热度指标为 11836324。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：[图片]
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [里昂叔叔带你通关生化危机爆发夜](yi-fan-feng-shun.md)
-- [杨小伟一审被判12年](yi-ming-jing-ren.md)
-- [国家数据集团成立](yi-jian-shuang-diao.md)
-- [钟南山院士才是真正的薄肌90后](shou-zhu-dai-tu.md)
+- [怎么看DeepSeek官宣单集群日均吞吐达 155 万亿 Token，单卡每小时收入38 美金？](yi-fan-feng-shun.md)
+- [《三过车门而不入》](yi-ming-jing-ren.md)
+- [俞小平被开除党籍 中国人保表态](yi-jian-shuang-diao.md)
+- [香港名媛碎尸案曝关键新证词](shou-zhu-dai-tu.md)
 
 ## 站内推荐
 
-- [王腾说希望雷总放我们一条生路](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
-- [如何看待 9 月 BBA 旗下无一车型零售破万？这是否意味着消费者不再单纯认豪华车标？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
-- [2026《全球前 2％ 顶尖科学家榜单》出炉，你或者你熟识的人入选了么？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
-- [“攻 防 转 换” 叹息之墙](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
-- [《现在的小孩 vs bro小时候》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
+- [油车电车10年成本账怎么算](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [特朗普：中方在乌问题上立场很公允](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [石破茂批高市早苗对待历史“不诚实”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [蒙古国草原火灾疑因一企业日籍高管为钓鱼违规进入引燃，此次火灾造成损失有多大？该高管可能要承担哪些责任？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [女子打喷嚏震断肋骨，这和每天喝2杯以上咖啡的关系有多大？为什么现在骨质疏松年轻化了？可以如何预防？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [女子被流浪狗咬伤后不久狗死了](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
-- [《现在的小孩 vs bro小时候》](http://www.daogukj.com/cmyxzqtz/)
-- [“攻 防 转 换” 叹息之墙](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
-- [膨胀消费券](http://www.movie.hkepx.cn/movie/2501356.htm)
-- [男子抽关节积液抽出喷泉效果](http://www.daogukj.com/ojwknvji/)
-- [女子打喷嚏震断肋骨，这和每天喝2杯以上咖啡的关系有多大？为什么现在骨质疏松年轻化了？可以如何预防？](http://www.daogukj.com/2178083)
-- [周杰10年每天只吃一顿午饭 医生：别学](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
-- [特厨隋坡|排队超久的网红店？！今天我们来说实话！！](http://www.play.hengshemaoyi.cn/xiju/1338838.htm)
-- [董明珠：格力技工学校禁止谈恋爱](http://www.daogukj.com/1763072)
-- [陆毅鲍蕾女儿18岁生日试装](http://www.daogukj.com/8155971)
-- [钟南山院士才是真正的薄肌90后](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
-- [带着100万，我们见了成人网红...](http://www.daogukj.com/6164330)
-- [钟南山心梗后仍每周运动3次](http://www.movie.hkepx.cn/movie/1564233.htm)
-- [钟南山才是真正的薄肌“90后”](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
-- [电动车之王雅迪为啥卖不动了](http://www.daogukj.com/agvcmxmf/)
-- [曝湖南台力捧张雅琪原因](http://www.daogukj.com/qklffuer/)
-- [祖峰头发花白引热议](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
-- [里昂叔叔带你通关生化危机爆发夜](http://www.daogukj.com/0737886)
-- [如何评价DeepSeek V4.1 Flash 1017登顶「史上最差AI模型名称排行榜」?](http://www.movie.hkepx.cn/xiju/7431665.htm)
-- [现在 AI 短剧满天飞，怎么没见影视行业人员发声？](http://www.daogukj.com/igpatdfc/)
-- [闫桉骑行李箱摔了两次](http://www.daogukj.com/4475902)
-- [米粉店老板靠一句“泥嚎”意外走红](http://www.daogukj.com/6579509)
-- [杨小伟一审被判12年](http://www.movie.hkepx.cn/xiju/5461514.htm)
-- [到底谁把微信变成工作软件的](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
-- [如何看待 9 月 BBA 旗下无一车型零售破万？这是否意味着消费者不再单纯认豪华车标？](http://www.daogukj.com/2214905)
-- [法国55万人大游行！但马克龙和夫人在跳舞](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
-- [工信部提出「坚决防范不合理创新设计和未经充分研发测试验证的汽车产品进入市场」，这会给行业带来哪些转向？](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
-- [27岁爱心博主患罕见真菌感染离世](http://www.daogukj.com/4430972)
-- [李小冉官宣去年已经与徐佳宁离婚，他们的婚姻可能出现了什么问题？](http://www.movie.hkepx.cn/xiju/8019376.htm)
-- [工信部称确有部分车企产品验证不充分](http://www.movie.hkepx.cn/movie/0123120.htm)
-- [周芙已经认出了魏娆才是亲生女儿](http://www.movie.hkepx.cn/xiju/8033346.htm)
-- [邵永灵：美日军演解放军无人机侦察](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
-- [张雪杀入电动摩托车新战场](http://www.daogukj.com/8763764)
-- [宠物博主感染罕见真菌病逝 年仅27岁](http://www.daogukj.com/jqstllvn/)
-- [【萌黄一槽】萌到你了真是抱歉！风祭萌黄[古堡奇遇]全技能爆料](http://www.daogukj.com/1298524)
-- [瓶装饮料集体涨价](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
-- [《鸣潮》共鸣者「锁暝」PV | 契阔](http://www.daogukj.com/3314823)
-- [广东富二代，辞职卖烧猪？](http://www.play.hengshemaoyi.cn/kongbu/1318289.htm)
-- [27岁宠物爱心博主感染罕见真菌离世](http://www.movie.hkepx.cn/xiju/6376636.htm)
-- [工信部：禁止车辆行驶时用零重力座椅](http://www.play.hengshemaoyi.cn/kongbu/4440369.htm)
-- [肖战南京演唱会二开放票数](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
-- [iG出征单曲《仁川共鸣》](http://www.daogukj.com/pcyxvqcb/)
-- [法国影响力最大的八卦是什么？【神奇组织56】](http://www.daogukj.com/7344740)
-- [《是我嘴太小了吗》](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
-- [“医护无过错不致歉”](http://www.daogukj.com/okofdfns/)
-- [人民日报钟声：日本再次撕下和平伪装](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
-- [美人余大结局](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
+- [南海](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
+- [女子打喷嚏震断肋骨，这和每天喝2杯以上咖啡的关系有多大？为什么现在骨质疏松年轻化了？可以如何预防？](http://www.daogukj.com/cmyxzqtz/)
+- [蒙古国草原火灾疑因一企业日籍高管为钓鱼违规进入引燃，此次火灾造成损失有多大？该高管可能要承担哪些责任？](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
+- [学生机直逼5000元](http://www.movie.hkepx.cn/movie/2501356.htm)
+- [宠物博主感染罕见真菌病逝 年仅27岁](http://www.daogukj.com/ojwknvji/)
+- [美舰冲闯中国南沙群岛仙宾礁附近海域，南部战区依法依规跟踪监视，美方意欲何为？哪些信息值得关注？](http://www.daogukj.com/2178083)
+- [📈大梦想家？！📉](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
+- [iG出征单曲《仁川共鸣》](http://www.play.hengshemaoyi.cn/xiju/1338838.htm)
+- [梁淅沥首个官方直拍](http://www.daogukj.com/1763072)
+- [中年男子骑车载白发老人看哭网友](http://www.daogukj.com/8155971)
+- [香港名媛碎尸案曝关键新证词](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
+- [中文已死：为什么我们越来越不敢好好说话？](http://www.daogukj.com/6164330)
+- [连涨5年 中信银行成了香饽饽](http://www.movie.hkepx.cn/movie/1564233.htm)
+- [【萌黄一槽】萌到你了真是抱歉！风祭萌黄[古堡奇遇]全技能爆料](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
+- [最强厄尔尼诺：赤道太平洋由绿变蓝](http://www.daogukj.com/agvcmxmf/)
+- [“完美恋人”背后的陷阱](http://www.daogukj.com/qklffuer/)
+- ["早期的豺狼"](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
+- [怎么看DeepSeek官宣单集群日均吞吐达 155 万亿 Token，单卡每小时收入38 美金？](http://www.daogukj.com/0737886)
+- [媒体：孩子的友谊不该被一块手表绑架](http://www.movie.hkepx.cn/xiju/7431665.htm)
+- [工信部提出「坚决防范不合理创新设计和未经充分研发测试验证的汽车产品进入市场」，这会给行业带来哪些转向？](http://www.daogukj.com/igpatdfc/)
+- [张雪全网求助后网友堵门口送米](http://www.daogukj.com/4475902)
+- [法国影响力最大的八卦是什么？【神奇组织56】](http://www.daogukj.com/6579509)
+- [《三过车门而不入》](http://www.movie.hkepx.cn/xiju/5461514.htm)
+- [100家！最新央企名录公布](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
+- [特朗普：中方在乌问题上立场很公允](http://www.daogukj.com/2214905)
+- [如何看待 9 月 BBA 旗下无一车型零售破万？这是否意味着消费者不再单纯认豪华车标？](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
+- [菲媒警告：驱逐大使中方必然对等回应](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
+- [小英被指忘本](http://www.daogukj.com/4430972)
+- [缅甸公布昂山素季近照](http://www.movie.hkepx.cn/xiju/8019376.htm)
+- [法国乱成一锅粥了还有人威胁中国](http://www.movie.hkepx.cn/movie/0123120.htm)
+- [男子捡到38000元留了道题给失主](http://www.movie.hkepx.cn/xiju/8033346.htm)
+- [田曦薇 我望着你不肯后退的眼睛](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
+- [美人余大结局可太解气了](http://www.daogukj.com/8763764)
+- [社交媒体世界大战：泰韩法巴西已加入抗日全球统一战线](http://www.daogukj.com/jqstllvn/)
+- [我得到了，能看到表白率的超能力……](http://www.daogukj.com/1298524)
+- [【極·出征】iG 2026全球总决赛出征片](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
+- [独生女车祸去世 10 年后赔偿所剩不多，父母再次起诉获批5年生活费，如何从法律角度解读？](http://www.daogukj.com/3314823)
+- [爱上纯血世家女孩的混血男孩【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/1318289.htm)
+- [00后北漂患上“扔垃圾羞耻”](http://www.movie.hkepx.cn/xiju/6376636.htm)
+- [日美利剑演习是否为介入台海做准备](http://www.play.hengshemaoyi.cn/kongbu/4440369.htm)
+- [航班延误4小时 航司给旅客发过期泡面](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
+- [中国留学生俄罗斯课堂披旭日旗后道歉且已被遣返，如何评价？他在俄罗斯当地及回国后可能面临哪些实质追责？](http://www.daogukj.com/pcyxvqcb/)
+- [【Codex × Maya】AI辅助三维建模实测！从几何体搭建到材质渲染，完整实操链路演示。该教程同样适配Claude code、Workbuddy等其他智能体](http://www.daogukj.com/7344740)
+- [如何看待 00 后小伙自学机械手搓载人飞行滑板，成功飞越长江？这个飞行滑板的技术原理是什么？](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
+- [老一辈还在坚持手搓](http://www.daogukj.com/okofdfns/)
+- [唐禹哲获刑1年7个月缓刑3年](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
+- [宁德时代：前三季度净利润645.3亿元](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
 - [《绝区零》菲欧妮EP | 1% Battery Girl 低电量女孩](http://www.movie.hkepx.cn/movie/3905354.htm)
-- [《三过车门而不入》](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
-- [水杯闹钟等被改成学生的「藏手机神器」热销，这种产品为什么有市场？背后反映出哪些问题？](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
+- [香港盒饭比大陆贵那么多，那如果从大陆运很多盒饭到香港岂不是赚翻了？](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
+- [华为带火阔直板 安卓手机集体跟进](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待华为引望加入宁德时代巧克力换电？](https://www.zhihu.com/question/2095629465703523584)
+- [血糖高身体会抛出7个信号](https://www.toutiao.com/trending/7698577857047642121/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227698577857047642121%22%2C%22hot_board_impr_id%22%3A%22202610210153069CAB159CD04505C1D2A2%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: cefb8bb33fe46e64074b -->
+<!-- content-fingerprint: 77b5d6a98e183d9317a5 -->
