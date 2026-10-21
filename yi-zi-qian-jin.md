@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 欧冠：巴萨2-4客负巴黎
+# 喝完水总跑厕所和半天不去哪个更伤身
 
-> 来源：今日头条热榜 · 排名：第 8 位 · 热度：9613433 · 分类：热门事件 · 更新：2026-10-21T08:02:44+08:00
+> 来源：今日头条热榜 · 排名：第 8 位 · 热度：5535515 · 更新：2026-10-21T12:39:20+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“欧冠：巴萨2-4客负巴黎”位列第 8 位，公开热度指标为 9613433，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“喝完水总跑厕所和半天不去哪个更伤身”位列第 8 位，公开热度指标为 5535515。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [如何评价山东“仙人跳”犯罪团伙作案38起，其中3名受害者拒不付款被采取强制措施，有哪些细节值得关注？](yi-fan-feng-shun.md)
-- [法国影响力最大的八卦是什么？【神奇组织56】](yi-ming-jing-ren.md)
-- [NBA新赛季开幕 活塞大逆转凯尔特人](yi-jian-shuang-diao.md)
-- [法国乱成一锅粥了还有人威胁中国](shou-zhu-dai-tu.md)
+- [网友高铁偶遇自称114岁老人，能熟练使用智能手机，年龄真实性如何？横跨民国到AI时代的人生会是怎样的？](yi-fan-feng-shun.md)
+- [南京人披旭日旗挑衅，莫大校友透露朋友圈内容，发现事情并不简单](yi-ming-jing-ren.md)
+- [国台办回应张凌赫赴台交流被拒](yi-jian-shuang-diao.md)
+- [马刺雷霆爆发大面积冲突](shou-zhu-dai-tu.md)
 
 ## 站内推荐
 
-- [巴黎圣日耳曼4比2巴萨](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
-- [工信部：禁止车辆行驶时用零重力座椅](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
-- [退休时间是按生日当天还是当月算](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
-- [蒙古国草原火灾疑因一企业日籍高管为钓鱼违规进入引燃，此次火灾造成损失有多大？该高管可能要承担哪些责任？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
-- [《边缘行者》主创说第一季其实是圆满结局，因为「本来可能糟糕得多」，这说法你接受吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
+- [宝马员工争着离职挤崩系统](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [目前我国只批准两款L3车型](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [董明珠办技校为何让家长挤破头](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [女子迟到错过检票失控哀求工作人员](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [日本拉美国搞军演想走向何方](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [南海](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
-- [《边缘行者》主创说第一季其实是圆满结局，因为「本来可能糟糕得多」，这说法你接受吗？](http://www.daogukj.com/cmyxzqtz/)
-- [蒙古国草原火灾疑因一企业日籍高管为钓鱼违规进入引燃，此次火灾造成损失有多大？该高管可能要承担哪些责任？](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
-- [易梦玲在巴黎行李被偷](http://www.movie.hkepx.cn/movie/2501356.htm)
-- [华为带火阔直板 安卓手机集体抄作业](http://www.daogukj.com/ojwknvji/)
-- [生殖隔离解除24小时、氧气消失三秒、所有动物失明72小时和全球暴雨10年，上述哪个灾难危害最大？](http://www.daogukj.com/2178083)
-- [最后警告：人类历史上最大的泡沫，即将破裂](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
-- [绝对不能看的儿童节目！2026最新《逃出布迪秀》：坠入诡异老式儿童节目次元....](http://www.play.hengshemaoyi.cn/xiju/1338838.htm)
-- [到底谁把微信变成工作软件的](http://www.daogukj.com/1763072)
-- [龚宝冬被追记一等功](http://www.daogukj.com/8155971)
-- [法国乱成一锅粥了还有人威胁中国](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
-- [中文已死：为什么我们越来越不敢好好说话？](http://www.daogukj.com/6164330)
-- [队旗缝进百褶裙夹层](http://www.movie.hkepx.cn/movie/1564233.htm)
-- [拒之门外](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
-- [年轻人每月在养老院服务可减免房租](http://www.daogukj.com/agvcmxmf/)
-- [“完美恋人”背后的陷阱](http://www.daogukj.com/qklffuer/)
-- [南京人披旭日旗挑衅，莫大校友透露朋友圈内容，发现事情并不简单](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
-- [如何评价山东“仙人跳”犯罪团伙作案38起，其中3名受害者拒不付款被采取强制措施，有哪些细节值得关注？](http://www.daogukj.com/0737886)
-- [菲媒警告：驱逐大使中方必然对等回应](http://www.movie.hkepx.cn/xiju/7431665.htm)
-- [新能源车渗透率攀升至 67%创历史新高，燃油车为何加速萎缩？](http://www.daogukj.com/igpatdfc/)
-- [中年男子骑车载白发老人看哭网友](http://www.daogukj.com/4475902)
-- [爱上纯血世家女孩的混血男孩【AI全民制作人】](http://www.daogukj.com/6579509)
-- [法国影响力最大的八卦是什么？【神奇组织56】](http://www.movie.hkepx.cn/xiju/5461514.htm)
-- [美股大型科技股多数下跌](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
-- [工信部：禁止车辆行驶时用零重力座椅](http://www.daogukj.com/2214905)
-- [如何看待 00 后小伙自学机械手搓载人飞行滑板，成功飞越长江？这个飞行滑板的技术原理是什么？](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
-- [媒体：董明珠办技校先别急着叫好](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
-- [易梦玲巴黎被偷](http://www.daogukj.com/4430972)
-- [末节23-0 绿军揭幕战惨遭活塞逆转](http://www.movie.hkepx.cn/xiju/8019376.htm)
-- [曾辉回应和韩雨彤参加恋综](http://www.movie.hkepx.cn/movie/0123120.htm)
-- [男子捡到38000元留了道题给失主](http://www.movie.hkepx.cn/xiju/8033346.htm)
-- [刘雯维密回归太权威了](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
-- [活塞22分逆转凯尔特人](http://www.daogukj.com/8763764)
-- [法国55万人大游行！但马克龙和夫人在跳舞](http://www.daogukj.com/jqstllvn/)
-- [我得到了，能看到表白率的超能力……](http://www.daogukj.com/1298524)
-- [教妹妹开车，用我的声音，我成功了！](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
-- [独生女车祸去世 10 年后赔偿所剩不多，父母再次起诉获批5年生活费，如何从法律角度解读？](http://www.daogukj.com/3314823)
-- [超强台风来了：狂风暴雨将袭华东多省，大暴雪和寒潮逼近新疆](http://www.play.hengshemaoyi.cn/kongbu/1318289.htm)
-- [保罗乔治7记三分贡献38分5断](http://www.movie.hkepx.cn/xiju/6376636.htm)
-- [台退将：辽宁舰再赴西太是警告日本](http://www.play.hengshemaoyi.cn/kongbu/4440369.htm)
-- [法国将部署军队反恐力量应对示威活动](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
-- [美舰冲闯中国南沙群岛仙宾礁附近海域，南部战区依法依规跟踪监视，美方意欲何为？哪些信息值得关注？](http://www.daogukj.com/pcyxvqcb/)
-- [《绝区零》菲欧妮EP | 1% Battery Girl 低电量女孩](http://www.daogukj.com/7344740)
-- [智驾小蓝灯颜色进入新国标，车灯禁显示文字、禁用语音关灯，这样规定有哪些考虑？会怎样影响今后的设计？](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
-- [【萌黄一槽】萌到你了真是抱歉！风祭萌黄[古堡奇遇]全技能爆料](http://www.daogukj.com/okofdfns/)
-- [唐禹哲获刑1年7个月缓刑3年](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
-- [唐禹哲逃兵役案宣判](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
-- [PCL出事了？那MC下载和联机，我们先顶上了](http://www.movie.hkepx.cn/movie/3905354.htm)
-- [为什么目前 AI 的设备是用 Mac 为主，而不是熟知的 Windows？](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
-- [特朗普：中方在乌问题上立场很公允](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
+- [魏娆知道自己的身世了](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
+- [日本拉美国搞军演想走向何方](http://www.daogukj.com/cmyxzqtz/)
+- [女子迟到错过检票失控哀求工作人员](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
+- [被骗1249万，成功上岸！聊聊天顺便来一期Room tour！](http://www.movie.hkepx.cn/movie/2501356.htm)
+- [今天吃红糖糍粑](http://www.daogukj.com/ojwknvji/)
+- [高铁座椅是HPV感染来源？专家辟谣](http://www.daogukj.com/2178083)
+- [伊朗已有超3万名女性忍者，熟练使用弓、剑、飞镖等武器等训练画面走热，背后是怎样的社会文化环境？](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
+- [法国爆发大规模示威，距离 2027 法国总统大选仅剩半年，这次事件会对大选造成什么影响？](http://www.play.hengshemaoyi.cn/xiju/1338838.htm)
+- [世界乱成一锅粥 中国安心过日子](http://www.daogukj.com/1763072)
+- [未央何处丨燕云X张良仁教授的“考古之旅”](http://www.daogukj.com/8155971)
+- [马刺雷霆爆发大面积冲突](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
+- [医保个人账户跨省共济落地全国，意味着什么？将带来哪些利好？](http://www.daogukj.com/6164330)
+- [年轻人“旁听”遵义会议爆火](http://www.movie.hkepx.cn/movie/1564233.htm)
+- [星巴克中国称10月22日起将在全国开始施行消费入座，你支持吗？消费入座对门店业绩和顾客体验有哪些影响？](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
+- [我得到了，能看到表白率的超能力……](http://www.daogukj.com/agvcmxmf/)
+- [粉红豹现身法国骚乱现场系AI伪造](http://www.daogukj.com/qklffuer/)
+- [日本年轻人流行「取消吃饭」，背后折射出怎样的现实困境？](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
+- [网友高铁偶遇自称114岁老人，能熟练使用智能手机，年龄真实性如何？横跨民国到AI时代的人生会是怎样的？](http://www.daogukj.com/0737886)
+- [律师谈肖战二开不退票](http://www.movie.hkepx.cn/xiju/7431665.htm)
+- [多项惠民政策加速落地](http://www.daogukj.com/igpatdfc/)
+- [揭秘新兴赛博生意：谁在给机器人“卖命”？【晚点LatePost】](http://www.daogukj.com/4475902)
+- [绝对不能看的儿童节目！2026最新《逃出布迪秀》：坠入诡异老式儿童节目次元....](http://www.daogukj.com/6579509)
+- [南京人披旭日旗挑衅，莫大校友透露朋友圈内容，发现事情并不简单](http://www.movie.hkepx.cn/xiju/5461514.htm)
+- [法国影响力最大的八卦是什么？【神奇组织56】](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
+- [目前我国只批准两款L3车型](http://www.daogukj.com/2214905)
+- [菲议员连夸中国大使有学识绅士直率](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
+- [男子捡到38000元留了道题给失主](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
+- [又一地宣布：生物地理不计入中考总分](http://www.daogukj.com/4430972)
+- [陈瑜林子濠结婚](http://www.movie.hkepx.cn/xiju/8019376.htm)
+- [宝马员工争着离职](http://www.movie.hkepx.cn/movie/0123120.htm)
+- [拟出台的中国AI禁令震动全球](http://www.movie.hkepx.cn/xiju/8033346.htm)
+- [中东“榜一大哥”率团来华提飞行汽车](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
+- [女子刚退休就读研：瞒着丈夫备考](http://www.daogukj.com/8763764)
+- [2627 赛季 NBA 常规赛 76 人 106-100 尼克斯，如何评价这场比赛？](http://www.daogukj.com/jqstllvn/)
+- [《三角洲行动》新干员档案：维罗妮卡·卡尔多佐—代号野火](http://www.daogukj.com/1298524)
+- [为什么我玩单机游戏脾气很好，玩LOL就像变了个人一样？](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
+- [曹雪芹、吴承恩看到「圣黛CP」是一笑而过还是气活过来？](http://www.daogukj.com/3314823)
+- [胖东来式的高待遇，是好生意的结果，还是好生意的原因？](http://www.play.hengshemaoyi.cn/kongbu/1318289.htm)
+- [“喝大水”火了 疾控部门紧急提醒](http://www.movie.hkepx.cn/xiju/6376636.htm)
+- [国家癌症中心公布发病前五癌症](http://www.play.hengshemaoyi.cn/kongbu/4440369.htm)
+- [《三过车门而不入》](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
+- [美日“利剑”军演为何挺进与那国岛](http://www.daogukj.com/pcyxvqcb/)
+- [「红果短剧降智」引发广泛热议，为什么越是剧情粗糙的短剧越让人停不下来？](http://www.daogukj.com/7344740)
+- [国家数据集团成立，作为新央企以数据资源开发利用为主责主业，会如何重塑国内数据产业格局？](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
+- [如果一份工作，薪资满意但内耗严重，你会选择继续熬还是果断离职？判断边界是什么？](http://www.daogukj.com/okofdfns/)
+- [男孩因耐克鞋挑衅殴打同学致重伤](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
+- [特厨隋坡|排队超久的网红店？！今天我们来说实话！！](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
+- [【抢先看】《裁员裁到大动脉》｜我宣布这是2026最解气职场爽剧！当年全员抢我功劳压我晋升，我离职后，全公司集体翻车崩盘！](http://www.movie.hkepx.cn/movie/3905354.htm)
+- [国台办回应约六成台青认为不能依靠美](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
+- [扁鹊老婆](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
 
 </details>
 
 ## 原始来源
 
-- [欧冠：巴萨2-4客负巴黎](https://www.toutiao.com/trending/7698891105873432106/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%225%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227698891105873432106%22%2C%22hot_board_impr_id%22%3A%22202610210802416FE98DD20C9F2CD17FE5%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [喝完水总跑厕所和半天不去哪个更伤身](https://www.toutiao.com/trending/7698770142414831659/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227698770142414831659%22%2C%22hot_board_impr_id%22%3A%2220261021123919D488F0F99771B0988AEF%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1f88c128a794a53e01e3 -->
+<!-- content-fingerprint: e2cd7f2729957f78e46a -->
