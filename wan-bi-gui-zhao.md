@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 折1万次，会坏吗？iPhone Duo深度评测
+# iPhone Duo测评出炉，折叠3000次后，折痕明显加深，高负载下发热明显，还有哪些问题值得关注？
 
-> 来源：哔哩哔哩热门 · 排名：第 6 位 · 热度：4634601 · 分类：数码 · 更新：2026-10-22T23:38:24+08:00
+> 来源：知乎热榜 · 排名：第 6 位 · 热度：223 万热度 · 分类：问答 · 更新：2026-10-23T03:30:27+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“折1万次，会坏吗？iPhone Duo深度评测”位列第 6 位，公开热度指标为 4634601，榜单分类为“数码”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“iPhone Duo测评出炉，折叠3000次后，折痕明显加深，高负载下发热明显，还有哪些问题值得关注？”位列第 6 位，公开热度指标为 223 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：相信各位和我们一样，对苹果的第一台折叠屏手机充满了好奇，这次我们为iPhone Duo准备了一系列特别的测试，甚至专门准备了一台能够把它折叠10000次的设备…我们想和你一起看看，iPhone Duo用起来到底怎么样？如果你喜欢这期节目，请多多支持我们，并把视频分享给你的朋友们一起看看～ 制作人员 监督/SUPERVISOR Tim 益君 导演/DIRECTOR Tim 花甲鱼 大橙 Shawn 思凡 Michael 老江 毛毛 制片/PRODUCER 朵朵 益君 Oscar 土豆泥 前任 摄影/
+来源公开摘要显示：苹果首款折叠屏手机iPhone Duo将于10月23日正式发售。昨天，记者查询苹果中国官网获悉，每位顾客限购2台。 影视飓风测评iPhone Duo 硬件结构强度非常高，不用担心坐弯或者坐断 但屏幕容易沾指纹，污渍很难擦干净 10月21日晚，博主影视飓风发布iPhone Duo测评视频，对新机的屏幕、铰链耐用性、软件适配及影像表现等进行了介绍，其中铰链耐久性和机身结构强度尤为引人关注。 据影视飓风实测，iPhone Duo先后经历了10000次室温连续折叠，以及1000次零下20℃环境下的折叠测试。 测试结果显示，经过累计1.15万次折叠后，iPhone
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `数码`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [美股芯片、光通信股深夜跳水](fu-jing-qing-zui.md)
-- [人民日报评医学生盲猜病情](mao-sui-zi-jian.md)
-- [亚锦赛国乒女团决赛不敌日本](san-gu-mao-lu.md)
-- [中国古代人民为什么不用煤炭当燃料呢？](cao-mu-jie-bing.md)
+- [现实可比电影荒谬多了！这些看似鬼扯的桥段，一查资料全是真事！](fu-jing-qing-zui.md)
+- [超强台风蔷琵逼近中国](mao-sui-zi-jian.md)
+- [在星巴克开会1小时被提醒点单5次](san-gu-mao-lu.md)
+- [张本智和被打出0-11惨败](cao-mu-jie-bing.md)
 
 ## 站内推荐
 
-- [乒乓亚锦赛女团决赛，中国队 2-3 不敌日本获女团亚军，如何评价本场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [接班贾玲的重任落她身上了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [养一头牛至少赚2000多元](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [为防沉迷 红果短剧“自砍摇钱树”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [郭雪芙被曝在日遇害身亡 后援会辟谣](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [女子离婚后发现前夫婚内继承 400 多万房款，起诉要求分割这笔钱财，法院判决支持，如何从法律角度解读？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [S16应援曲《以风之名》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [《正常人谁去园区吃火锅啊》](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [穿越原始社会必备技能之——蛋黄法鞣制皮毛](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [FPS游戏必学两大焚诀，学会胜率直接飙升！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [北京市委就夏林茂被查表态](http://www.daogukj.com/3042716)
-- [台学者：大陆海警船你威胁得了吗](http://www.movie.hkepx.cn/movie/2061637.htm)
-- [美股芯片、光通信股深夜跳水](http://www.daogukj.com/whcykmxi/)
-- [人民日报评综艺里医学生盲猜病情](http://www.daogukj.com/8289578)
+- [人民日报评张凌赫申请赴台遭拒](http://www.daogukj.com/3042716)
+- [白鹿工作室注销](http://www.movie.hkepx.cn/movie/2061637.htm)
+- [现实可比电影荒谬多了！这些看似鬼扯的桥段，一查资料全是真事！](http://www.daogukj.com/whcykmxi/)
+- [孙俪邓超女儿小花跳舞总是撞上其他舞者](http://www.daogukj.com/8289578)
 - [留美在读女博士答辩失利，向实验室同门咖啡机投毒「丙烯酰胺」，如何看待这一事件？](http://www.movie.hkepx.cn/movie/6917669.htm)
-- [张萌后悔找马天宇上节目](http://www.daogukj.com/1323195)
-- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
-- [乌克兰外长会见中国大使：感谢中方](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
-- [拿捏家长 小天才闷声发大财](http://www.movie.hkepx.cn/xiju/7626363.htm)
-- [人民日报评星巴克“消费入座”](http://www.daogukj.com/zbetfxek/)
-- [人民日报评张凌赫申请赴台遭拒](http://www.daogukj.com/6022603)
-- [赵丽颖霍建华 剧播不好别怪妆造](http://www.movie.hkepx.cn/xiju/5313504.htm)
-- [腾讯股价跌破 400 港元创新低，市值较高点缩水近四成，问题出在哪？市场对腾讯的估值逻辑发生哪些转变？](http://www.daogukj.com/xdexhduz/)
-- [明代运粮为何不走海运？](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
-- [我国面向全球的自贸网络已经初步成型](http://www.movie.hkepx.cn/movie/6492359.htm)
+- [郭雪芙被曝在日遇害身亡 后援会辟谣](http://www.daogukj.com/1323195)
+- [韩国要收回美国权力指挥美军](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
+- [41岁女子存百万后去世](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
+- [这个视频到底加了什么看得我哈特软软](http://www.movie.hkepx.cn/xiju/7626363.htm)
+- [马天宇低谷期找杨幂谈心](http://www.daogukj.com/zbetfxek/)
+- [西藏那曲地震 居民跑到室外避险](http://www.daogukj.com/6022603)
+- [国乒女团2比3日本女团](http://www.movie.hkepx.cn/xiju/5313504.htm)
+- [演唱会黄牛一个月获利100万](http://www.daogukj.com/xdexhduz/)
+- [女子叫顺风车司机竟让她来开](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
+- [向着胜利再出发](http://www.movie.hkepx.cn/movie/6492359.htm)
 - [西藏那曲市7.0级地震](http://www.daogukj.com/6000133)
-- [A股 科技股](http://www.daogukj.com/ajsfeojq/)
-- [因为智商不够，从EXO到生子，被打脸的嘴硬的一生。【黄子韬徐艺洋官宣生子】](http://www.movie.hkepx.cn/xiju/4278075.htm)
-- [宁德时代董秘被打？知情人士回应](http://www.movie.hkepx.cn/movie/5534562.htm)
-- [高反去世男子家人辟谣想找免费直升机](http://www.daogukj.com/6871213)
-- [养一头牛至少赚2000多元](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
-- [泽连斯基为何借美媒平台释放和谈信号](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
+- [奥迪中国 首位中国籍总裁](http://www.daogukj.com/ajsfeojq/)
+- [你知道的最冷最冷的冷知识是啥？](http://www.movie.hkepx.cn/xiju/4278075.htm)
+- [凌晨三点，别和院子里那头鹿对视](http://www.movie.hkepx.cn/movie/5534562.htm)
+- [虞书欣怎么笑成这样](http://www.daogukj.com/6871213)
+- [《正常人谁去园区吃火锅啊》](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
+- [黄婷婷李艺彤闹掰谁在释怀谁在获利](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
 - [红军为何总能绝处逢生](http://www.movie.hkepx.cn/xiju/4051583.htm)
-- [国乒女团 桥本帆乃香](http://www.daogukj.com/4848168)
-- [《影之刃零》最终预告](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
-- [许超医生谈李子祺称参加过4级手术](http://www.movie.hkepx.cn/movie/2894342.htm)
-- [儿子逼父母贷款替其还债被拒，欲断绝父子关系被父亲打致轻伤二级，如何理解法院判父亲免予刑事处罚？](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
-- [国乒女团2比3日本女团](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
-- [为啥孙策传位给其弟孙权，而不是儿子？](http://www.movie.hkepx.cn/xiju/8848024.htm)
-- [日本人为了让你吃蛋包饭的时候也不要忘了吃碗拉面有多拼](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
-- [红军长征凭什么越走越强](http://www.movie.hkepx.cn/xiju/3438884.htm)
-- [荣耀Robot Phone上手体验：形态特别，用起来咋样？](http://www.daogukj.com/ieqapfew/)
-- [在星巴克开会1小时被提醒点单5次](http://www.daogukj.com/8044050)
-- [多地辟谣外地患者到高校传播艾滋病](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
-- [避障](http://www.movie.hkepx.cn/xiju/0303756.htm)
-- [这是“巫毒”陷阱！](http://www.daogukj.com/8598756)
-- [iPhone Duo测评出炉，折叠3000次后，折痕明显加深，高负载下发热明显，还有哪些问题值得关注？](http://www.movie.hkepx.cn/movie/4526722.htm)
-- [【长征颂歌】90位仪仗兵、90步铿锵正步、90面庄严旗帜，致敬伟大胜利！](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
-- [刘嘉玲谈与梁朝伟近40年相处](http://www.daogukj.com/0218050)
-- [一张快递单能扒出多少秘密](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
-- [张雪机车回应摩托冲浪被质疑不难](http://www.daogukj.com/3371192)
-- [捷达M6上市 售价7.98万起](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
-- [接班贾玲的重任落她身上了](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
-- [土耳其新教材虚构新疆历史](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
-- [张本智和被打出0-11惨败](http://www.movie.hkepx.cn/movie/1298994.htm)
-- [为什么我国的中学生大部分都不会做引体向上？](http://www.movie.hkepx.cn/movie/6188638.htm)
+- [为防沉迷 红果短剧“自砍摇钱树”](http://www.daogukj.com/4848168)
+- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
+- [赵丽颖霍建华 剧播不好别怪妆造](http://www.movie.hkepx.cn/movie/2894342.htm)
+- [女子称地铁站内看5小时书被扣15元](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
+- [后会友期 想请不敢请的都放观察室了](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
+- [人民日报评综艺里医学生盲猜病情](http://www.movie.hkepx.cn/xiju/8848024.htm)
+- [红果短剧日活超「爱优腾芒」四家总和，原因有哪些？](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
+- [张家齐和妈妈的关系触痛网友](http://www.movie.hkepx.cn/xiju/3438884.htm)
+- [女子地铁站内看书 5 个小时被扣 15 元，怎么看待地铁超时收费？其中读书空间等消费场景的设置合理吗？](http://www.daogukj.com/ieqapfew/)
+- [张本智和被打0-11惨败](http://www.daogukj.com/8044050)
+- [日本人为了让你吃蛋包饭的时候也不要忘了吃碗拉面有多拼](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
+- [医生说现在的鸡都是快速养殖，激素多，吃了对孩子身体不好，是这样吗？](http://www.movie.hkepx.cn/xiju/0303756.htm)
+- [乒乓球亚锦赛男团决赛，中国 3-0 韩国，队史第 26 次夺冠，如何评价本场比赛？](http://www.daogukj.com/8598756)
+- [亚锦赛国乒女团决赛不敌日本](http://www.movie.hkepx.cn/movie/4526722.htm)
+- [如何看待 HLE 以「未带多余队服婉拒 TES 交换队服请求」转头 iG 与 Guma 交换成功？](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
+- [小伙靠3D打印，硬刚义乌工厂？](http://www.daogukj.com/0218050)
+- [小狗如奶油般融化…](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
+- [人民日报评医学生盲猜病情](http://www.daogukj.com/3371192)
+- [再鉴定几个洛克王国的精灵](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
+- [S16应援曲《以风之名》](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
+- [伟大的发现: 曼的一半是man](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
+- [直击西藏那曲7.0级地震](http://www.movie.hkepx.cn/movie/1298994.htm)
+- [北京市委就夏林茂被查表态](http://www.movie.hkepx.cn/movie/6188638.htm)
 - [全球70%网站都危险了](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
-- [别点！点了就会变成白毛控！](http://www.daogukj.com/4541580)
-- [人民日报评医学生盲猜病情](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
+- [中国古代人民为什么不用煤炭当燃料呢？](http://www.daogukj.com/4541580)
+- [超强台风蔷琵逼近中国](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
 - [西藏那曲巴青县发生7.0级地震](http://www.daogukj.com/4450013)
 
 </details>
 
 ## 原始来源
 
-- [折1万次，会坏吗？iPhone Duo深度评测](https://b23.tv/BV1xrnz6gEVD)
+- [iPhone Duo测评出炉，折叠3000次后，折痕明显加深，高负载下发热明显，还有哪些问题值得关注？](https://www.zhihu.com/question/2096555342171563789)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 753258af5e9d9301f8ed -->
+<!-- content-fingerprint: 20b44dc22af7a7493a11 -->
