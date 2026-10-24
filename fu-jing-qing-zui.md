@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 为了妈妈，全校老师同学最团结的一集
+# 《原神》7.2版本PV：「坏灭肇始之时」
 
-> 来源：哔哩哔哩热门 · 排名：第 6 位 · 热度：2424498 · 分类：时尚潮流 · 更新：2026-10-24T06:57:31+08:00
+> 来源：哔哩哔哩热门 · 排名：第 6 位 · 热度：1449514 · 分类：手机游戏 · 更新：2026-10-24T09:27:57+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“为了妈妈，全校老师同学最团结的一集”位列第 6 位，公开热度指标为 2424498，榜单分类为“时尚潮流”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“《原神》7.2版本PV：「坏灭肇始之时」”位列第 6 位，公开热度指标为 1449514，榜单分类为“手机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：世界的坟墓我已看见，我将它指给无上的高天。 人若为毁灭而造下，倒不如燃烧那愤怒与生的火焰。 中文CV： 派蒙——多多 「光之镜」——多多 空——鹿喑 米提亚——苏尚卿 诺伊——三石 「丑角」皮耶罗——符冲 瓦列里——淦子齐 安娜丝塔夏·费奥多罗夫娜·雪奈茨娜娅——刘校妤 玛薇卡——李晔 那维莱特——桑毓泽 纳西妲——花玲 温迪——喵☆酱 钟离——彭博 八重神子——杜冥鸦 影——菊花花 日文CV： 派蒙——古贺葵 「光之镜」——古贺葵 空——堀江瞬 米提亚——小林裕介 诺伊——三木真一郎 「丑角」皮耶
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `时尚潮流`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `手机游戏`
 
 ## 相关热点
 
-- [与美国妻子离婚外卖员不知何为绿卡](mao-sui-zi-jian.md)
-- [祖海认领](san-gu-mao-lu.md)
-- [泽连斯基：真不想打仗了](cao-mu-jie-bing.md)
-- [s16瑞士轮AL0:1KC，如何评价LPL四连败？](feng-sheng-he-li.md)
+- [数十万辆新能源“孤儿车”谁负责修](mao-sui-zi-jian.md)
+- [宇树机器人侧空翻表演时甩断腿](san-gu-mao-lu.md)
+- [直击佛山禅城山姆火爆现场](cao-mu-jie-bing.md)
+- [领导让你去他车里拿茅台，但车里没有怎么办？](feng-sheng-he-li.md)
 
 ## 站内推荐
 
 - [【独家】时光代理人 第三季 PartOne 第12集 欢迎回家【8月国创】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [这个更新有亿点水——《伊莫》S1赛季「逐风启程・下」10月29日开启！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [不减136斤不结婚，减掉还赢25万美金](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [⚡魔 鬼 小 瞒 腰⚡](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [当男摄和女摄相遇……](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [我要这天 再也遮不住我的眼！！「谁是杀手」？？！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [我的手办还会动，这世道不会还有人没有会动的手办吧，不会吧不会吧](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [舒服了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [中医：老年人养生重在“护阳”](http://www.daogukj.com/eqgqhkqf/)
-- [人工耳蜗里的声音，到底是什么样的？](http://www.play.hengshemaoyi.cn/xiju/5995614.htm)
-- [LPL首轮全军覆没](http://www.play.hengshemaoyi.cn/kongbu/6334914.htm)
-- [如何评价 iPhone Duo 经拆机，纳米纹理表面并非玻璃而是纳米纹理膜（磨砂膜）？](http://www.daogukj.com/3536313)
-- [两女生投150万开无烟酒吧倒闭](http://www.movie.hkepx.cn/xiju/7959476.htm)
-- [刘亦菲第二套](http://www.movie.hkepx.cn/xiju/4071499.htm)
-- [Anthropic 科学家称「AGI 若三年内到来读博将失去意义」，如何看待这一观点？](http://www.movie.hkepx.cn/movie/8882644.htm)
+- [台风蔷琵将非常接近登陆我国](http://www.daogukj.com/eqgqhkqf/)
+- [警告！别跟海绵宝宝学做蟹黄堡！！](http://www.play.hengshemaoyi.cn/xiju/5995614.htm)
+- [“订单排到2031年” 重量级国货爆单](http://www.play.hengshemaoyi.cn/kongbu/6334914.htm)
+- [为什么4.8分网红餐厅更容易踩雷？大家现在都是怎么避开「高分刺客」的？](http://www.daogukj.com/3536313)
+- [辽宁舰再穿“第一岛链”驶向南海](http://www.movie.hkepx.cn/xiju/7959476.htm)
+- [lpl瑞士轮首轮全败](http://www.movie.hkepx.cn/xiju/4071499.htm)
+- [Kimi K3.1 Pro 正式发布，如何评价该新模型？有哪些值得关注的亮点？](http://www.movie.hkepx.cn/movie/8882644.htm)
 - [独生女继承2亿遗产1年后遭离婚分产](http://www.daogukj.com/fdgghkjr/)
-- [17岁男生确诊严重糖尿病 专家提醒](http://www.movie.hkepx.cn/xiju/3439203.htm)
-- [AL输给KC Canna武器四杀奠定胜局](http://www.play.hengshemaoyi.cn/xiju/4410256.htm)
-- [《原神》7.2版本PV：「坏灭肇始之时」](http://www.daogukj.com/zplxdklb/)
-- [BLG重量级爆冷](http://www.movie.hkepx.cn/movie/6001850.htm)
-- [如何评价Kimi K3.1？](http://www.play.hengshemaoyi.cn/kongbu/1262531.htm)
-- [许昌市委书记杨小菁当选河南省委常委](http://www.movie.hkepx.cn/movie/8339563.htm)
+- [评论员：胡塞武装学会了俄军的打法](http://www.movie.hkepx.cn/xiju/3439203.htm)
+- [国际油价飙涨](http://www.play.hengshemaoyi.cn/xiju/4410256.htm)
+- [《洛克王国：世界》S5赛季「圣龙宝藏」PV首曝，11月5日冒险启程！](http://www.daogukj.com/zplxdklb/)
+- [AI短剧公司几乎不需要基础岗](http://www.movie.hkepx.cn/movie/6001850.htm)
+- [S16 全球总决赛瑞士轮首日 LPL 战队四战全败创联赛最差开局成绩，如何评价首日他们的表现？](http://www.play.hengshemaoyi.cn/kongbu/1262531.htm)
+- [A股真正的拐点来了吗](http://www.movie.hkepx.cn/movie/8339563.htm)
 - [泽连斯基表态「愿以领土换和平协议」后，普京也确认愿恢复俄美乌三方谈判，为什么各方突然都松口了？](http://www.movie.hkepx.cn/xiju/2263179.htm)
-- [哈啰顺风车 涉黄](http://www.play.hengshemaoyi.cn/xiju/0991511.htm)
+- [猕猴桃“最团结的水果”](http://www.play.hengshemaoyi.cn/xiju/0991511.htm)
 - [【独家】时光代理人 第三季 PartOne 第12集 欢迎回家【8月国创】](http://www.daogukj.com/3405709)
-- [胡昌升：帐篷写上电话、哪个干部负责](http://www.play.hengshemaoyi.cn/xiju/7801003.htm)
-- [舒服了](http://www.daogukj.com/1405714)
-- [广州商学院涨租逼走快递网点，又要求老师每天投诉6单，倒逼快递返回学校，如何看待这一操作？暴露什么问题？](http://www.movie.hkepx.cn/xiju/5293066.htm)
-- [李雪健已无法说话 仅靠表情完成演出](http://www.daogukj.com/oabpcutg/)
-- [S16瑞士轮BLG 0:1 KOI，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/1350574.htm)
-- [以现代技术打造的冷兵器可以优秀到什么程度？](http://www.play.hengshemaoyi.cn/kongbu/5103106.htm)
-- [新人结婚 大鹏：这照片就是我随的份子](http://www.movie.hkepx.cn/xiju/9733554.htm)
-- [讲台上的刘欢：香烟粉笔与花体字](http://www.daogukj.com/9709824)
-- [三角梅路灯杆顶上开花被赞全网最努力](http://www.daogukj.com/1737486)
-- [传统口技表演《大闹天宫》](http://www.daogukj.com/jdlipgmx/)
-- [刘冲内场左边刘亦菲右边迪丽热巴](http://www.play.hengshemaoyi.cn/kongbu/6065966.htm)
-- [刘亦菲亮相红毯被称“凤凰神女”](http://www.play.hengshemaoyi.cn/kongbu/7701032.htm)
-- [广交会卖棺木展位人气爆棚](http://www.movie.hkepx.cn/xiju/7676153.htm)
-- [为什么阿里巴巴和腾讯估值低，股价却总是下跌？](http://www.play.hengshemaoyi.cn/kongbu/2964451.htm)
-- [祖海认领](http://www.daogukj.com/1537700)
-- [⚡魔 鬼 小 瞒 腰⚡](http://www.daogukj.com/rsfbmsap/)
-- [一个家里只能有一个女主人](http://www.movie.hkepx.cn/movie/7580112.htm)
-- [13岁女孩卖妈妈金项链 金店当面熔化](http://www.daogukj.com/0114710)
+- [只有369摸到过高地](http://www.play.hengshemaoyi.cn/xiju/7801003.htm)
+- [11天，我们干掉祸害20多年的传销头目！](http://www.daogukj.com/1405714)
+- [如何评价英国拟征收看剧税，观看 YouTube、Netflix 等网络流媒体需每年缴纳 180 英镑？](http://www.movie.hkepx.cn/xiju/5293066.htm)
+- [国际油价为何暴涨4%](http://www.daogukj.com/oabpcutg/)
+- [广州商学院涨租逼走快递网点，又要求老师每天投诉6单，倒逼快递返回学校，如何看待这一操作？暴露什么问题？](http://www.play.hengshemaoyi.cn/kongbu/1350574.htm)
+- [你怎么看毛不易在女性好友婚礼上的致辞，算越界吗？为什么「结婚越来越不意味着什么」引发热议？](http://www.play.hengshemaoyi.cn/kongbu/5103106.htm)
+- [避孕药 避孕只是它的用途之一](http://www.movie.hkepx.cn/xiju/9733554.htm)
+- [前厦门首富林秀成被批准逮捕](http://www.daogukj.com/9709824)
+- [木匠家庭托举00后少年的飞天梦想](http://www.daogukj.com/1737486)
+- [有用版新植物：野狗小喷菇](http://www.daogukj.com/jdlipgmx/)
+- [学校疑因女生隐私给男生宿舍贴膜](http://www.play.hengshemaoyi.cn/kongbu/6065966.htm)
+- [热巴娜扎刘亦菲 好权威的脸](http://www.play.hengshemaoyi.cn/kongbu/7701032.htm)
+- [“航母无用论”在中东战场被证明了吗](http://www.movie.hkepx.cn/xiju/7676153.htm)
+- [如何看待小鹏新车发布会「老登营销」翻车事件？](http://www.play.hengshemaoyi.cn/kongbu/2964451.htm)
+- [宇树机器人侧空翻表演时甩断腿](http://www.daogukj.com/1537700)
+- [我的手办还会动，这世道不会还有人没有会动的手办吧，不会吧不会吧](http://www.daogukj.com/rsfbmsap/)
+- [俄开始对美供应柴油](http://www.movie.hkepx.cn/movie/7580112.htm)
+- [BLG爆冷不敌MKOI](http://www.daogukj.com/0114710)
 - [红星照耀青春长征路](http://www.play.hengshemaoyi.cn/kongbu/9230233.htm)
-- [如何看待最高法通报牟某虐待案中曾高频次、长时间、持续性辱骂女友，让其通过人工流产等方式换取心理平衡？](http://www.play.hengshemaoyi.cn/kongbu/7120843.htm)
-- [曝波兰爆发大规模抗议活动，数百万人涌上街头，具体什么情况？为啥欧洲最近都在陆续爆发大规模的抗议活动？](http://www.play.hengshemaoyi.cn/xiju/9989486.htm)
-- [海底捞小便案细节：商家索赔2300万](http://www.play.hengshemaoyi.cn/xiju/6200267.htm)
-- [S16](http://www.daogukj.com/7981248)
-- [成都“龟速车”被AI锁定](http://www.play.hengshemaoyi.cn/kongbu/9855490.htm)
-- [当男摄和女摄相遇……](http://www.play.hengshemaoyi.cn/kongbu/7710563.htm)
-- [迪丽热巴第二套](http://www.daogukj.com/wiaxnumm/)
-- [这个更新有亿点水——《伊莫》S1赛季「逐风启程・下」10月29日开启！](http://www.play.hengshemaoyi.cn/xiju/6775596.htm)
-- [张小斐神之八秒 意气风发](http://www.play.hengshemaoyi.cn/kongbu/1979081.htm)
-- [牛弹琴：普京最新表态这五刀真够狠](http://www.play.hengshemaoyi.cn/kongbu/9092912.htm)
-- [如何看待土耳其计划推出两套新的历史教材，把中国新疆、青海、甘肃等地区，纳入所谓「突厥世界」的版图？](http://www.daogukj.com/tyfmekow/)
-- [黄多多正式进圈](http://www.movie.hkepx.cn/xiju/3281791.htm)
+- [S16 瑞士轮首日 BLG 0:1 不敌 KOI，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/7120843.htm)
+- [S16 全球总决赛首日 LPL 战队四连败，是什么方面问题？这样的联赛是不是第二赛区名头也要保不住了？](http://www.play.hengshemaoyi.cn/xiju/9989486.htm)
+- [李雪健已无法说话 仅靠表情完成演出](http://www.play.hengshemaoyi.cn/xiju/6200267.htm)
+- [西藏7.0级地震救援最新进展](http://www.daogukj.com/7981248)
+- [唐驳虎：日本7根“脊梁骨”被打断](http://www.play.hengshemaoyi.cn/kongbu/9855490.htm)
+- [我的手臂上长着4个按钮](http://www.play.hengshemaoyi.cn/kongbu/7710563.htm)
+- [祖海认领](http://www.daogukj.com/wiaxnumm/)
+- [当男摄和女摄相遇……](http://www.play.hengshemaoyi.cn/xiju/6775596.htm)
+- [刘冲内场左边刘亦菲右边迪丽热巴](http://www.play.hengshemaoyi.cn/kongbu/1979081.htm)
+- [西藏强震成因揭晓](http://www.play.hengshemaoyi.cn/kongbu/9092912.htm)
+- [为什么阿里巴巴和腾讯估值低，股价却总是下跌？](http://www.daogukj.com/tyfmekow/)
+- [大熊猫生了个耗子崽](http://www.movie.hkepx.cn/xiju/3281791.htm)
 - [警惕涉西藏巴青7.0级地震不实信息](http://www.daogukj.com/2886935)
-- [如何评价特朗普发文痛批詹姆斯在奏国歌时做「高尔夫挥杆动作」，并要求其道歉？](http://www.movie.hkepx.cn/xiju/7902460.htm)
+- [劳动争议开庭前夕，娃哈哈法定代表人许思敏突然辞职，从宗馥莉卸任到许思敏离职，娃哈哈内部管理发生了什么？](http://www.movie.hkepx.cn/xiju/7902460.htm)
 
 </details>
 
 ## 原始来源
 
-- [为了妈妈，全校老师同学最团结的一集](https://b23.tv/BV1yjnm68Eud)
+- [《原神》7.2版本PV：「坏灭肇始之时」](https://b23.tv/BV1z9nt6aE5H)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 412b414722a063d9aaa4 -->
+<!-- content-fingerprint: 58b972f3e311ac9fdfef -->
