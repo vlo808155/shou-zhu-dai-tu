@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 从人手一双到无人买单，曾经的「帆布鞋鼻祖」匡威为何卖不动了？年轻人到底想要什么？
+# 【2026全球总决赛】10月26日 IG vs HLE
 
-> 来源：知乎热榜 · 排名：第 7 位 · 热度：237 万热度 · 分类：问答 · 更新：2026-10-26T13:16:15+08:00
+> 来源：哔哩哔哩热门 · 排名：第 7 位 · 热度：3790323 · 分类：电子竞技 · 更新：2026-10-26T19:15:50+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“从人手一双到无人买单，曾经的「帆布鞋鼻祖」匡威为何卖不动了？年轻人到底想要什么？”位列第 7 位，公开热度指标为 237 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【2026全球总决赛】10月26日 IG vs HLE”位列第 7 位，公开热度指标为 3790323，榜单分类为“电子竞技”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：翻出一张2018年前后的大学宿舍合影，大概率能从中找出一双黑白配色的匡威（Converse）高帮。 那时它是学生、乐手、滑板少年鞋柜里的默认选项之一，配校服不违和，穿进Livehouse也成立。 而同样的街景放到今天，主角已经换成了厚底复古跑鞋、薄底德训鞋或其他户外风格的鞋款。 匡威似乎被很多年轻人悄悄地移出了购物车。映射到业绩，耐克集团2026财年（截至2026年5月31日）财报显示，匡威全年营收约11.7亿美元，同比下滑31%。近期，耐克公布截至8月31日的2027财年第一季度业绩，匡威当季收入2.63亿美元，同比下降28%。 为什么年轻人集体“抛弃
+来源公开摘要显示：【2026全球总决赛】10月26日 IG vs HLE
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `电子竞技`
 
 ## 相关热点
 
-- [【灰石剧场400杀】摆完挂机 简单好抄](ru-huo-ru-tu.md)
-- [比熬夜更可怕的坏习惯](yi-gu-zuo-qi.md)
-- [嫁金钗](yi-zi-qian-jin.md)
-- [俄罗斯油气收入为何收缩](yi-fan-feng-shun.md)
+- [身体出现这些症状 可能是“栓”住了](ru-huo-ru-tu.md)
+- [中国的卫星看中国台湾很正常](yi-gu-zuo-qi.md)
+- [外交部回应印方诬称中方破坏边境和平](yi-zi-qian-jin.md)
+- [一家三口食用炒鸡蛋后中毒，原因是水洗后储藏导致变质了，为什么这样保存有风险？放冰箱门格子影响有多大？](yi-fan-feng-shun.md)
 
 ## 站内推荐
 
-- [如何看待周星驰《功夫女足》在烂番茄开分 0 分？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [如何看待张雪机车成功挑战摩托车水上漂40公里吉尼斯世界纪录？这对硬件和技术有怎样的要求？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [北京人为什么不把北京烤鸭的秘方教给全国各地的人，好让全国的人都能吃到正宗的北京烤鸭？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [愚蠢鬼](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [网友让徐艺洋展示妊娠纹](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [县委书记拒绝张雪为家乡特产打广告，说插播广告会很烦，这番言论为何能出圈？麻阳红糖、冰糖橙产业现状如何？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [🔥最不烧心的一集！🔥](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [花4毛钱让1000个蓝色大肥鱼建造故宫](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [天津女排队员与德云社相声演员订婚](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [老干妈3年参保人数跌超63%](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [马尔芙小姐，我能请你共舞一曲吗？｜PV](http://www.play.hengshemaoyi.cn/xiju/6111090.htm)
-- [80岁卢拉再次当选巴西总统](http://www.daogukj.com/edzpadjo/)
-- [锐评S16瑞士轮 IG战胜HLE TES战胜G2：这就是IG！LPL全胜！](http://www.movie.hkepx.cn/xiju/6105250.htm)
-- [如何看待夫妻携 242 枚商周至民国时期钱币出国，想送给国外定居子女，被海关查扣？](http://www.play.hengshemaoyi.cn/kongbu/1070558.htm)
-- [媒体：让AI与骗子周旋值得借鉴](http://www.play.hengshemaoyi.cn/kongbu/7084010.htm)
-- [【真实锐评】IG战胜HLE TES战胜G2 还下雨吗小黑子 IG全员拉满干碎HLE 9哥起飞！](http://www.play.hengshemaoyi.cn/kongbu/6978620.htm)
-- [《明日方舟》特别映像[维多利亚：很久很久以前]](http://www.daogukj.com/ydopnvwq/)
-- [如何看待一位临终者把“亲眼看到《流浪地球3》”作为心愿这一新闻？该新闻为何引发关注？](http://www.daogukj.com/ikvvgoqn/)
-- [【中立】锐评LPL瑞士轮第三天战绩 2-0全胜 真正的奇迹战队](http://www.play.hengshemaoyi.cn/xiju/4780278.htm)
-- [爱马仕增速创阶段新低，CFO称中国市场「非常困难」，是它一家的问题还是全行业信号？](http://www.play.hengshemaoyi.cn/kongbu/1667187.htm)
-- [凌晨一点突袭大米庄园！竟然见证了TES创造奇迹...](http://www.daogukj.com/ruryuczo/)
-- [【灰石剧场400杀】摆完挂机 简单好抄](http://www.play.hengshemaoyi.cn/xiju/2905183.htm)
-- [S16瑞士轮G2 0:1 TES，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/5729760.htm)
-- [装X翻车全网群嘲？医学界有自己的翟天临！深扒李子祺事变](http://www.play.hengshemaoyi.cn/kongbu/8964859.htm)
-- [【IGN】10分，《影之刃零》评测： 武侠朋克传奇](http://www.movie.hkepx.cn/xiju/2546414.htm)
-- [日本前首相福田康夫去世](http://www.movie.hkepx.cn/movie/4824208.htm)
-- [多地幼儿园改为养老院](http://www.daogukj.com/9789170)
-- [杨议被观众喊“杨老五”后怒怼骂人](http://www.play.hengshemaoyi.cn/xiju/2235964.htm)
-- [北京人为什么不把北京烤鸭的秘方教给全国各地的人，好让全国的人都能吃到正宗的北京烤鸭？](http://www.play.hengshemaoyi.cn/kongbu/0944708.htm)
-- [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.daogukj.com/1702919)
-- [蜜雪冰城2小时赚够香飘飘3个月利润](http://www.movie.hkepx.cn/xiju/7626642.htm)
-- [网友偶遇刘强东父亲逛商场](http://www.play.hengshemaoyi.cn/xiju/6504158.htm)
-- [Kimi致歉](http://www.play.hengshemaoyi.cn/kongbu/0276729.htm)
-- [寿司郎被曝菜品传送带上有老鼠，当事人称门店未立刻闭店停止接客，门店会受到处罚吗？第一时间该如何处理？](http://www.play.hengshemaoyi.cn/xiju/8604336.htm)
-- [杨幂给林俊杰伴舞](http://www.play.hengshemaoyi.cn/xiju/9791973.htm)
-- [小区近300户玻璃自爆 物业：过质保期](http://www.movie.hkepx.cn/movie/0865243.htm)
-- [丈夫转情人2575万情人回转2258万](http://www.daogukj.com/2187991)
-- [如何看待小鹏副总裁称「老登」不指向用户，被喊「老登」的高管在内部反复表扬，该员工将继续站在发布会上？](http://www.daogukj.com/awimddvt/)
-- [和胡彦斌分手后状态反差](http://www.movie.hkepx.cn/xiju/8479317.htm)
-- [卢拉赢得连任，当选巴西新一任总统，怎样看待这一结果？](http://www.daogukj.com/8710264)
-- [武契奇称败选背后有欧美干预](http://www.movie.hkepx.cn/xiju/7852987.htm)
-- [《影之刃零》获IGN9/Mc88，媒体称之为最好的动作游戏之一，符合你的心理预期吗？](http://www.daogukj.com/9527639)
-- [气旋撞击喜马拉雅？中央气象台回应](http://www.movie.hkepx.cn/xiju/5317341.htm)
-- [詹姆斯真老了](http://www.daogukj.com/rfjzvnft/)
-- [别杀我我是浙江人](http://www.play.hengshemaoyi.cn/kongbu/0835531.htm)
-- [媒体：蒋万安“乖乖牌”遇“闪身步”](http://www.play.hengshemaoyi.cn/kongbu/5783653.htm)
-- [“娱乐至死”的医疗真人秀该叫停了](http://www.movie.hkepx.cn/movie/2541017.htm)
-- [人民日报评樊振东抵制偷拍乱象](http://www.daogukj.com/tdbkadsz/)
-- [31 省份去年平均工资出炉，全国城镇非私营单位平均工资 129441 元，还有哪些信息值得关注？](http://www.movie.hkepx.cn/movie/8640580.htm)
-- [县委书记拒绝张雪为家乡特产打广告，说插播广告会很烦，这番言论为何能出圈？麻阳红糖、冰糖橙产业现状如何？](http://www.daogukj.com/5453849)
-- [安踏卖不动了](http://www.play.hengshemaoyi.cn/xiju/3894345.htm)
-- [刘铮亮回吻](http://www.daogukj.com/hayaidza/)
-- [姆巴佩 亚马尔](http://www.daogukj.com/ppbihxts/)
-- [纪念红军长征胜利90周年主题长卷](http://www.play.hengshemaoyi.cn/kongbu/7747218.htm)
-- [小博索纳罗拒绝承认败选](http://www.daogukj.com/8988221)
-- [张家界景区播西游记硬控游客](http://www.play.hengshemaoyi.cn/xiju/0659400.htm)
-- [自驾1500km，我们去北疆的原始村落寻找秋天｜K-POP 秋日特辑](http://www.movie.hkepx.cn/xiju/3713545.htm)
-- [在新征程上持之以恒推进全面从严治党](http://www.play.hengshemaoyi.cn/xiju/1948140.htm)
-- [武契奇承认败选](http://www.movie.hkepx.cn/xiju/3130950.htm)
-- [为啥小孩子更喜欢奥特曼，而非孙悟空？](http://www.movie.hkepx.cn/movie/0216360.htm)
+- [台湾艺人阿雅公开表态“一个中国”](http://www.daogukj.com/edzpadjo/)
+- [赵露思把自己做成了5000万生意](http://www.movie.hkepx.cn/xiju/6105250.htm)
+- [菲尔兹奖得主邓煜批 OpenAI 双标「蒸馏」，如何看待该观点？](http://www.play.hengshemaoyi.cn/kongbu/1070558.htm)
+- [双人抬棺](http://www.play.hengshemaoyi.cn/kongbu/7084010.htm)
+- [万重山河皆侠骨！剑网3新50级版本MV《万重山》上线](http://www.play.hengshemaoyi.cn/kongbu/6978620.htm)
+- [从“种土豆”到“种Token”](http://www.daogukj.com/ydopnvwq/)
+- [装X翻车全网群嘲？医学界有自己的翟天临！深扒李子祺事变](http://www.daogukj.com/ikvvgoqn/)
+- [老干妈回应“用AI把600人裁到48人”](http://www.play.hengshemaoyi.cn/xiju/4780278.htm)
+- [家长在大群发问“孩子回家说位置调到最后一排，是哪里得罪您了吗”，班主任直接回应，大家怎么看待这件事？](http://www.play.hengshemaoyi.cn/kongbu/1667187.htm)
+- [这游戏给我恐高症治好了](http://www.daogukj.com/ruryuczo/)
+- [身体出现这些症状 可能是“栓”住了](http://www.play.hengshemaoyi.cn/xiju/2905183.htm)
+- [如何看待iPhone Duo才开卖一天，网上就很多内屏损坏的案例，而且在同一个位置？](http://www.play.hengshemaoyi.cn/xiju/5729760.htm)
+- [美俄乌又准备谈判了，但泽圣还在秀操作](http://www.play.hengshemaoyi.cn/kongbu/8964859.htm)
+- [张麻子《鹅城FUNK》](http://www.movie.hkepx.cn/xiju/2546414.htm)
+- [县委书记被扔下水舆论为何一片叫好](http://www.movie.hkepx.cn/movie/4824208.htm)
+- [国防部：中国卫星看看中国台湾很正常](http://www.daogukj.com/9789170)
+- [卢拉赢得连任，当选巴西新一任总统，怎样看待这一结果？](http://www.play.hengshemaoyi.cn/xiju/2235964.htm)
+- [花4毛钱让1000个蓝色大肥鱼建造故宫](http://www.play.hengshemaoyi.cn/kongbu/0944708.htm)
+- [美国客户一口气在广州买200套房](http://www.daogukj.com/1702919)
+- [超级电力市场来了 居民电价不受影响](http://www.movie.hkepx.cn/xiju/7626642.htm)
+- [“这家馅饼很普通 沈腾就是太饿了”](http://www.play.hengshemaoyi.cn/xiju/6504158.htm)
+- [外交部：中方尊重巴西人民的选择](http://www.play.hengshemaoyi.cn/kongbu/0276729.htm)
+- [既然国家允许重新高考，为什么不少经济条件尚可、没有巨大生存压力的成年人，依然不选择报考？](http://www.play.hengshemaoyi.cn/xiju/8604336.htm)
+- [汪峰唱《怒放的生命》被指全程躲高音](http://www.play.hengshemaoyi.cn/xiju/9791973.htm)
+- [39岁网红查出肝癌到离世只有9个月](http://www.movie.hkepx.cn/movie/0865243.htm)
+- [从三峡工程看国家水网建设](http://www.daogukj.com/2187991)
+- [《鸣潮》世界观PV | 超验TRANSCENDO](http://www.daogukj.com/awimddvt/)
+- [武契奇承认败选](http://www.movie.hkepx.cn/xiju/8479317.htm)
+- [【阴阳师同人动画】爱，创作和人类](http://www.daogukj.com/8710264)
+- [如何看待郑州马拉松一男子系绳带 9 岁儿童跑全马被禁赛三年？儿童跑马拉松有哪些健康风险？](http://www.movie.hkepx.cn/xiju/7852987.htm)
+- [如何看待周星驰《功夫女足》在烂番茄开分 0 分？](http://www.daogukj.com/9527639)
+- [气旋撞击喜马拉雅？不实](http://www.movie.hkepx.cn/xiju/5317341.htm)
+- [火箭军开展无预告战斗发射训练](http://www.daogukj.com/rfjzvnft/)
+- [皇马管理层送樊振东巴萨官方赠票](http://www.play.hengshemaoyi.cn/kongbu/0835531.htm)
+- [老干妈涉多起劳动争议纠纷](http://www.play.hengshemaoyi.cn/kongbu/5783653.htm)
+- [奥迪中国四环标和字母标正式分家](http://www.movie.hkepx.cn/movie/2541017.htm)
+- [北京人为什么不把北京烤鸭的秘方教给全国各地的人，好让全国的人都能吃到正宗的北京烤鸭？](http://www.daogukj.com/tdbkadsz/)
+- [爽！！！我们能赢LCK！仁川人2026年还在创造奇迹！IG掀翻银河战舰HLE！TES拿下G2！【1酱赛评世界赛瑞士轮day3 】](http://www.movie.hkepx.cn/movie/8640580.htm)
+- [樊振东「卧底」西班牙国家德比，被反复质疑盘查，因表现不狂热遭巴萨球迷投诉，对此你怎么看？](http://www.daogukj.com/5453849)
+- [长鑫拒绝苹果](http://www.play.hengshemaoyi.cn/xiju/3894345.htm)
+- [老干妈回应AI裁员传闻](http://www.daogukj.com/hayaidza/)
+- [内存价格出现倒挂](http://www.daogukj.com/ppbihxts/)
+- [震区3个场景照见生命至上](http://www.play.hengshemaoyi.cn/kongbu/7747218.htm)
+- [泽连斯基为何想与普京当面聊领土问题](http://www.daogukj.com/8988221)
+- [62岁女子坚持健身5年多](http://www.play.hengshemaoyi.cn/xiju/0659400.htm)
+- [如果早知道，阿伟可以手搓时光机](http://www.movie.hkepx.cn/xiju/3713545.htm)
+- [用党的创新理论凝心铸魂](http://www.play.hengshemaoyi.cn/xiju/1948140.htm)
+- [中国卫星看中国台湾的大好河山很正常](http://www.movie.hkepx.cn/xiju/3130950.htm)
+- [长期吃素能“排毒”系谣言](http://www.movie.hkepx.cn/movie/0216360.htm)
 
 </details>
 
 ## 原始来源
 
-- [从人手一双到无人买单，曾经的「帆布鞋鼻祖」匡威为何卖不动了？年轻人到底想要什么？](https://www.zhihu.com/question/2097314052036719765)
+- [【2026全球总决赛】10月26日 IG vs HLE](https://b23.tv/BV19wnQ6sExk)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 17513c14fcfd6461fd25 -->
+<!-- content-fingerprint: 623e3ac6f951c2a2f77d -->
