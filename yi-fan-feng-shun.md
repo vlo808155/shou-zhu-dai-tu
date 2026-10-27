@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 你是怎么突然发现同事很有钱的？
+# 蒋诗萌与贾玲的体型相近，都是以自黑出圈，贾玲转行当导演后，你认为她能顶替贾玲的生态位吗？
 
-> 来源：知乎热榜 · 排名：第 8 位 · 热度：115 万热度 · 分类：问答 · 更新：2026-10-27T08:54:21+08:00
+> 来源：知乎热榜 · 排名：第 8 位 · 热度：136 万热度 · 分类：问答 · 更新：2026-10-27T14:04:22+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“你是怎么突然发现同事很有钱的？”位列第 8 位，公开热度指标为 115 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“蒋诗萌与贾玲的体型相近，都是以自黑出圈，贾玲转行当导演后，你认为她能顶替贾玲的生态位吗？”位列第 8 位，公开热度指标为 136 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：自从贾玲转行当导演，马丽独撑半边天。“松弛有魅力的女喜剧演员”赛道，亟需有人补位。 最近打开视频网站，大概率会撞见同一张喜剧脸。观众一边觉得贼眼熟，一边得使劲挠头想她的名字。 《余红旧事》里装神弄鬼的万仙儿，《蒸蒸日上》里的财务小姐姐，《喜剧之王》里的经纪人，还有综艺《大哥小助理》里的蒋诗萌本人…从悬疑剧、律政剧到纯喜剧，她无缝衔接地“霸屏”。再往前倒，她让人印象深刻的角色还有《装腔启示录》里走丧葬风得罪大客户的律师“大王”。 提到蒋诗萌，绕不开一个标签：贾玲的同门师妹。作为女喜剧演员，她们确有相似之处。蒋诗萌和贾玲都是胖女孩，身上有一种天然的亲和力。但
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [万重山河皆侠骨！剑网3新50级版本MV《万重山》上线](yi-ming-jing-ren.md)
-- [“何以中国”的答案在哪里](yi-jian-shuang-diao.md)
-- [凯恩获金球奖](shou-zhu-dai-tu.md)
-- [金球奖排名](wang-mei-zhi-ke.md)
+- [一刀不剪！千言万语，无话可说，还我睡眠！](yi-ming-jing-ren.md)
+- [从29.1%的增速感受智能制造澎湃动能](yi-jian-shuang-diao.md)
+- [两家中国车企杀进欧洲销量前十](shou-zhu-dai-tu.md)
+- [参加婚礼吃了一桌子外卖](wang-mei-zhi-ke.md)
 
 ## 站内推荐
 
-- [拒让张雪打广告的县委书记为何出圈](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [如何看待老干妈回应「用AI把600名工人裁到48人」，称是不实信息？品牌能挽回消费者信任吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [年轻人流行起「重养父母」，教妈妈护肤、帮爸爸抢演唱会票，怎样看待这种反向哺育？其中的边界感该如何把控？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [《名侦探柯南》必然会以柯南永久性变回工藤新一为大结局吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [毛不易婚礼致辞事件会对他的事业造成影响吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [巴西大选卢拉因何实现逆风翻盘](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [「南北」奥迪正式分家，四环归一汽，AUDI 归上汽，背后出于怎样的商业考量？将带来哪些影响？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [“买东西”为什么不叫“买南北”？为什么汉语用“东西”代替物品？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [陕视评：判决未至，定论先入教材 武大图书馆事件反思：公共出版物不能越司法“断案” （策划：李彤 任超 评论员：刁坤 摄像：姬佩瑶）](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [百里守约绕后了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [AL止步十六强](http://www.daogukj.com/cohiigft/)
-- [iOS27.2禁止摇一摇跳转](http://www.daogukj.com/ugakwini/)
-- [数说中国外贸澎湃动能](http://www.movie.hkepx.cn/movie/1439223.htm)
-- [花4毛钱让1000个蓝色大肥鱼建造故宫](http://www.daogukj.com/7461995)
-- [凯恩发表获奖感言时亚马尔表情](http://www.daogukj.com/1580127)
-- [金球奖官方回应获奖页面提前泄露](http://www.movie.hkepx.cn/movie/5771230.htm)
-- [刚入职叫女领导一个月熊大](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
-- [如何看待老干妈回应「用AI把600名工人裁到48人」，称是不实信息？品牌能挽回消费者信任吗？](http://www.daogukj.com/0519981)
-- [《死神千年血战篇》第四季祸进谭大结局开播，如何评价第十集？](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
-- [150万开无烟酒吧倒闭 当事人回应](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
-- [张麻子《鹅城FUNK》](http://www.movie.hkepx.cn/movie/5740018.htm)
-- [为什么手机越卖越少越卖越贵](http://www.movie.hkepx.cn/movie/2758437.htm)
-- [如何评价呼和浩特盛乐国际机场将于 2026 年 11 月 26 日正式投入运营？](http://www.play.hengshemaoyi.cn/kongbu/7663093.htm)
-- [【抢先看】植物大战僵尸・超长番：从新手村到万物共生，一集封神！](http://www.daogukj.com/npdeovim/)
-- [如何评价OpenAI发布的GPT-6.1 Terra？](http://www.movie.hkepx.cn/movie/1182190.htm)
-- [创造奇迹：卢拉逆转胜选 小博索纳罗要求推翻选举结果](http://www.movie.hkepx.cn/movie/6854973.htm)
-- [侯明昊百妖谱客串](http://www.movie.hkepx.cn/movie/9974523.htm)
-- [Kimi致歉](http://www.play.hengshemaoyi.cn/kongbu/4772628.htm)
-- [人造古镇为啥集体哑火了](http://www.movie.hkepx.cn/movie/7480091.htm)
-- [被取消演出的大衣哥回家种地](http://www.daogukj.com/ljqtloli/)
-- [为什么大家都说圆形餐桌好，却给家里选了长桌？](http://www.movie.hkepx.cn/movie/1513585.htm)
-- [AL三连败出局](http://www.movie.hkepx.cn/xiju/5718367.htm)
-- [媒体评相声演员让观众滚一边去](http://www.movie.hkepx.cn/movie/6576281.htm)
-- [LPL连续两年一号种子止步16强](http://www.play.hengshemaoyi.cn/kongbu/7311837.htm)
-- [老公把我要走了换成出去玩儿啦](http://www.play.hengshemaoyi.cn/xiju/9290584.htm)
-- [马尔芙小姐，我能请你共舞一曲吗？｜PV](http://www.daogukj.com/7865447)
-- [AL史上最差成绩LPL队伍](http://www.daogukj.com/7312066)
-- [史上最大IPO 史上最亏AI公司](http://www.play.hengshemaoyi.cn/kongbu/1281085.htm)
-- [凯恩获金球奖](http://www.play.hengshemaoyi.cn/kongbu/1775013.htm)
-- [15个中央巡视组组长公布](http://www.daogukj.com/0276387)
-- [动态视频｜子弹时间再升级，70台iPhone造了个捕捉时空的球](http://www.movie.hkepx.cn/xiju/9277141.htm)
-- [S16瑞士轮第 3 轮低分淘汰赛，AL0:2TLAW，被称为LPL历史最差一号种子，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/9995911.htm)
-- [武契奇败选意味着什么](http://www.movie.hkepx.cn/xiju/4442165.htm)
-- [哈利波特发现自己继承了父母的巨额遗产后，为什么不分点给姨夫姨妈一家报答养育之恩？](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
-- [在毛毯上玩一会4399吧（纯手搓版） 超大工程！](http://www.daogukj.com/sowbdmby/)
-- [接招吧，由精锐弓床弩组成的密集火力网！【帝国时代4】](http://www.daogukj.com/cfqiduxu/)
-- [城管摇了摊主好了顾客笑了](http://www.movie.hkepx.cn/xiju/4880279.htm)
-- [江苏多所高校将用数字人民币发工资，数字人民币与银行卡发工资有啥区别？这一举措会带来哪些改变？](http://www.play.hengshemaoyi.cn/xiju/4009878.htm)
+- [张雪校招 年薪10万起买车就半价](http://www.daogukj.com/cohiigft/)
+- [懂球帝对姆巴佩不当发言不翻译不接受](http://www.daogukj.com/ugakwini/)
+- [数说中国交通运输动力澎湃](http://www.movie.hkepx.cn/movie/1439223.htm)
+- [东鹏饮料等品牌紧急切割姆巴佩，这种情况品牌用不用赔违约金？已付代言费、物料成本还能追回吗？](http://www.daogukj.com/7461995)
+- [媒体：娱乐至死的医疗真人秀该叫停了](http://www.daogukj.com/1580127)
+- [369 赛后采访称「本来做好了挨揍准备，结果发现大家好像也没差太多」是他天赋高还是本届上单地位有下滑？](http://www.movie.hkepx.cn/movie/5771230.htm)
+- [张一鸣刷新中国首富财富纪录](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
+- [「南北」奥迪正式分家，四环归一汽，AUDI 归上汽，背后出于怎样的商业考量？将带来哪些影响？](http://www.daogukj.com/0519981)
+- [普通女同事的职场纠纷和爱恨情仇【卡黄盘点】](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
+- [厉娜许飞 华妃端妃](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
+- [去亿年溶洞演奏千年前的声音，是什么体验？【杜比全景声】](http://www.movie.hkepx.cn/movie/5740018.htm)
+- [球迷抵制姆巴佩](http://www.movie.hkepx.cn/movie/2758437.htm)
+- [苹果称很多客户取消 iPhone Duo 订单，具体是什么原因？其他购买渠道靠谱吗？](http://www.play.hengshemaoyi.cn/kongbu/7663093.htm)
+- [被取消演出的大衣哥回家种地](http://www.daogukj.com/npdeovim/)
+- [offer8嘉宾称在澳洲已是实习医生，却不会握手术刀、缝合打结，为啥会这样？中外医学教育差异这么大吗？](http://www.movie.hkepx.cn/movie/1182190.htm)
+- [极危？这都快养泛滥了！！！！](http://www.movie.hkepx.cn/movie/6854973.htm)
+- [女孩跳桥瞬间被辅警一把拽回](http://www.movie.hkepx.cn/movie/9974523.htm)
+- [声生不息宝岛季2首发阵容](http://www.play.hengshemaoyi.cn/kongbu/4772628.htm)
+- [徽剑遭劫持被逼删文](http://www.movie.hkepx.cn/movie/7480091.htm)
+- [张一鸣6700亿刷新中国首富财富纪录](http://www.daogukj.com/ljqtloli/)
+- [一个“国误奇观”的故事](http://www.movie.hkepx.cn/movie/1513585.htm)
+- [物业设电子屏滚动播放业主欠缴费用，包含姓氏、楼栋等信息，这一行为合法吗？有没有更好的催收办法？](http://www.movie.hkepx.cn/xiju/5718367.htm)
+- [存储芯片龙头德明利前三季度归母净利润增长 323 倍，股价却跌去 64%，如何看待股价与业绩的背离？](http://www.movie.hkepx.cn/movie/6576281.htm)
+- [姆巴佩深知被羞辱的滋味却不懂尊重](http://www.play.hengshemaoyi.cn/kongbu/7311837.htm)
+- [许飞被曝加拿大隐婚生子](http://www.play.hengshemaoyi.cn/xiju/9290584.htm)
+- [匡威还在整活挽留 年轻人不买账了](http://www.daogukj.com/7865447)
+- [皇马大吧声明](http://www.daogukj.com/7312066)
+- [央视删除姆巴佩相关报道](http://www.play.hengshemaoyi.cn/kongbu/1281085.htm)
+- [两家中国车企杀进欧洲销量前十](http://www.play.hengshemaoyi.cn/kongbu/1775013.htm)
+- [苹果 iPad mini 8 发布，首搭 OLED 屏幕，起售价 5499 元，还有哪些亮点值得关注？](http://www.daogukj.com/0276387)
+- [在毛毯上玩一会4399吧（纯手搓版） 超大工程！](http://www.movie.hkepx.cn/xiju/9277141.htm)
+- [东鹏、蒙牛相继宣布终止与姆巴佩全部合作，称零容忍伤害民族感情行为，具体情况如何？将带来哪些影响？](http://www.movie.hkepx.cn/xiju/9995911.htm)
+- [乌克兰装甲部队靠什么防身](http://www.movie.hkepx.cn/xiju/4442165.htm)
+- [内存市场出现局部价格倒挂，渠道商面临库存压力选择降价清库存，普通消费者现在适合入手吗？](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
+- [花4毛钱让1000个蓝色大肥鱼建造故宫](http://www.daogukj.com/sowbdmby/)
+- [身上这4个部位软一点可能更长寿](http://www.daogukj.com/cfqiduxu/)
+- [新娘回应参加婚礼吃了一桌外卖](http://www.movie.hkepx.cn/xiju/4880279.htm)
+- [为什么中国人都执着于买房而不是租房？](http://www.play.hengshemaoyi.cn/xiju/4009878.htm)
 - [寒武纪辟谣明年出货100万颗芯片](http://www.play.hengshemaoyi.cn/kongbu/3318753.htm)
-- [被取消演出的大衣哥回家干农活了](http://www.movie.hkepx.cn/movie/5360276.htm)
-- [金球奖前十](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
-- [73名省部级及以上干部被立案](http://www.movie.hkepx.cn/movie/8146575.htm)
-- [《名侦探柯南》必然会以柯南永久性变回工藤新一为大结局吗？](http://www.movie.hkepx.cn/xiju/8000972.htm)
-- [我国风光累计装机容量突破20亿千瓦](http://www.movie.hkepx.cn/xiju/2505032.htm)
-- [iG抽签对阵LYON](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
-- [越造越大越卖越贵 纯电小车变味了吗](http://www.daogukj.com/maldgqjz/)
-- [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.daogukj.com/ulnghjws/)
-- [为什么广东那么潮湿却没养成吃辣椒祛湿的习惯？](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
-- [万重山河皆侠骨！剑网3新50级版本MV《万重山》上线](http://www.movie.hkepx.cn/movie/7753114.htm)
-- [租客不辞而别 留下字条和277块现金](http://www.play.hengshemaoyi.cn/xiju/2822041.htm)
+- [《名侦探柯南》必然会以柯南永久性变回工藤新一为大结局吗？](http://www.movie.hkepx.cn/movie/5360276.htm)
+- [城管摇了摊主好了顾客笑了](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
+- [姆巴佩的沉默比失言更说明问题](http://www.movie.hkepx.cn/movie/8146575.htm)
+- [陕视评：判决未至，定论先入教材 武大图书馆事件反思：公共出版物不能越司法“断案” （策划：李彤 任超 评论员：刁坤 摄像：姬佩瑶）](http://www.movie.hkepx.cn/xiju/8000972.htm)
+- [感受智能制造的澎湃动能](http://www.movie.hkepx.cn/xiju/2505032.htm)
+- [电诈头目刘忍被押解回国画面曝光](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
+- [东鹏饮料终止与姆巴佩合作](http://www.daogukj.com/maldgqjz/)
+- [财神窦占龙 第13集 杀狼【8月国创】](http://www.daogukj.com/ulnghjws/)
+- [如何看待ETH（指数时间猜想）猜想被OpenAI证伪？](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
+- [一刀不剪！千言万语，无话可说，还我睡眠！](http://www.movie.hkepx.cn/movie/7753114.htm)
+- [终于遇到真正实力相当的对手，变成回合制了](http://www.play.hengshemaoyi.cn/xiju/2822041.htm)
 
 </details>
 
 ## 原始来源
 
-- [你是怎么突然发现同事很有钱的？](https://www.zhihu.com/question/521349541)
+- [蒋诗萌与贾玲的体型相近，都是以自黑出圈，贾玲转行当导演后，你认为她能顶替贾玲的生态位吗？](https://www.zhihu.com/question/2096722156465775273)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2f10a987cb8bd44183fe -->
+<!-- content-fingerprint: d7d6397cf32aaf57ce6d -->

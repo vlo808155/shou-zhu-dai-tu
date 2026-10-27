@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 凯恩获金球奖
+# 两家中国车企杀进欧洲销量前十
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7424835 · 更新：2026-10-27T08:54:21+08:00
+> 来源：百度热搜 · 排名：第 4 位 · 热度：7426522 · 更新：2026-10-27T14:04:22+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“凯恩获金球奖”位列第 4 位，公开热度指标为 7424835。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“两家中国车企杀进欧洲销量前十”位列第 4 位，公开热度指标为 7426522。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：北京时间10月27日凌晨，2026年度金球奖颁奖盛典在伦敦进行。来自拜仁慕尼黑的英格兰球员哈里-凯恩，成功荣膺今年的金球奖，这是其职业生涯首次获得这一殊荣。
+来源公开摘要显示：近日，2026年前九个月欧洲乘用车市场销量榜单出炉。在前十梯队中，吉利集团、比亚迪两家中国企业成功入围，分列第八和第九位。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [金球奖排名](wang-mei-zhi-ke.md)
-- [国家为什么迟迟不肯挖掘秦始皇陵呢？](wen-ji-qi-wu.md)
-- [花4毛钱让1000个蓝色大肥鱼建造故宫](wo-xin-chang-dan.md)
-- [租客不辞而别 留下字条和277块现金](po-fu-chen-zhou.md)
+- [参加婚礼吃了一桌子外卖](wang-mei-zhi-ke.md)
+- [中国麻将在美爆火卖400美元还得抢](wen-ji-qi-wu.md)
+- [东鹏饮料等品牌紧急切割姆巴佩，这种情况品牌用不用赔违约金？已付代言费、物料成本还能追回吗？](wo-xin-chang-dan.md)
+- [终于遇到真正实力相当的对手，变成回合制了](po-fu-chen-zhou.md)
 
 ## 站内推荐
 
-- [“看不见的外贸”畅跑全球](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [iG抽签对阵LYON](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [AL史上最差成绩LPL队伍](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [AL官方赛后致歉](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [侯明昊百妖谱客串](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [外媒聚焦二十届五中全会](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [电诈头目刘忍被押解回国画面曝光](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [皇马大吧声明](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [特高压工程建设者“硬核吃午餐”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [女孩跳桥瞬间被辅警一把拽回](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [73名省部级及以上干部被立案](http://www.daogukj.com/srmtipfy/)
-- [捐日军罪证15岁少年遭网暴](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
-- [贝林厄姆今夏世界杯轰入7球](http://www.daogukj.com/5764219)
-- [AL一号种子16强](http://www.daogukj.com/5051205)
-- [ILLIT 'You're Under Arrest' Official MV](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
+- [姆巴佩的沉默比失言更说明问题](http://www.daogukj.com/srmtipfy/)
+- [巴西总统卢拉赢得连任，巴西主题 ETF 大跌，巴西 ETF 华夏、巴西 ETF 易方达跌停，如何解读？](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
+- [多国超低生育率另一个解释：谁带孩子](http://www.daogukj.com/5764219)
+- [网友捧红的大理论没人当真](http://www.daogukj.com/5051205)
+- [第9期（上）：收官高能局！阿瓦隆烧脑智斗对决【时差五小时3】](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
 - [渡鸦风云记](http://www.movie.hkepx.cn/movie/3745200.htm)
-- [金球奖](http://www.daogukj.com/eptgayul/)
-- [装X翻车全网群嘲？医学界有自己的翟天临！深扒李子祺事变](http://www.daogukj.com/zzzmzdnw/)
-- [邵永灵：卢拉阻击了“唐罗主义”](http://www.daogukj.com/2895651)
-- [金球奖官方回应获奖页面提前泄露](http://www.daogukj.com/bmrafxkl/)
-- [如何看待老干妈回应「用AI把600名工人裁到48人」，称是不实信息？品牌能挽回消费者信任吗？](http://www.movie.hkepx.cn/movie/6678209.htm)
-- [金球奖前十](http://www.daogukj.com/2230415)
-- [150万开无烟酒吧倒闭 当事人回应](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
-- [“何以中国”的答案在哪里](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
-- [中土互联网大战，有多爆笑？](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
-- [贵州真是旅游宝藏，贵州人嘴真严！](http://www.movie.hkepx.cn/xiju/6217864.htm)
-- [我国风光累计装机容量突破20亿千瓦](http://www.movie.hkepx.cn/movie/4778790.htm)
-- [王兴兴两次认错 宇树暴涨1100亿](http://www.movie.hkepx.cn/movie/7470449.htm)
-- [2026年第70届金球奖揭晓，凯恩获得最佳射手奖和金球奖，如何评价这一结果？](http://www.movie.hkepx.cn/movie/6111499.htm)
-- [国家为什么迟迟不肯挖掘秦始皇陵呢？](http://www.movie.hkepx.cn/xiju/2348853.htm)
-- [AL三连败出局](http://www.daogukj.com/fygnbifa/)
-- [iOS27.2禁止摇一摇跳转](http://www.daogukj.com/9070712)
-- [史上最大IPO 史上最亏AI公司](http://www.daogukj.com/hoflukum/)
-- [AL官方赛后致歉](http://www.daogukj.com/3336484)
-- [《死神千年血战篇》第四季祸进谭大结局开播，如何评价第十集？](http://www.movie.hkepx.cn/movie/3675931.htm)
-- [刚入职叫女领导一个月熊大](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
-- [侯明昊百妖谱客串](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
-- [「南北」奥迪正式分家，四环归一汽，AUDI 归上汽，背后出于怎样的商业考量？将带来哪些影响？](http://www.daogukj.com/xljzrgjc/)
-- [为什么大家都说圆形餐桌好，却给家里选了长桌？](http://www.daogukj.com/sfjdsknb/)
-- [LPL连续两年一号种子止步16强](http://www.movie.hkepx.cn/xiju/0712256.htm)
-- [你是怎么突然发现同事很有钱的？](http://www.daogukj.com/blhofduy/)
-- [Kimi致歉](http://www.daogukj.com/qdmxuvra/)
-- [AL史上最差成绩LPL队伍](http://www.daogukj.com/3062862)
-- [媒体评相声演员让观众滚一边去](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
-- [巴西大选卢拉因何实现逆风翻盘](http://www.daogukj.com/4819328)
-- [长期吃素能“排毒”系谣言](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
-- [百合网创始人慕岩在朋友圈化缘要饭](http://www.movie.hkepx.cn/xiju/6449274.htm)
-- [极危？这都快养泛滥了！！！！](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
-- [联合国：以色列犯战争罪及危害人类罪](http://www.movie.hkepx.cn/xiju/8624591.htm)
-- [62岁女子坚持健身5年多](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
-- [老公把我要走了换成出去玩儿啦](http://www.daogukj.com/2518516)
-- [拒让张雪打广告的县委书记为何出圈](http://www.movie.hkepx.cn/movie/2625646.htm)
-- [花4毛钱让1000个蓝色大肥鱼建造故宫](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
-- [被取消演出的大衣哥回家种地](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
-- [樊振东用荒诞形容首次诺坎普之旅](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
-- [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
-- [毛不易婚礼致辞事件会对他的事业造成影响吗？](http://www.movie.hkepx.cn/xiju/9162988.htm)
-- [江苏多所高校将用数字人民币发工资，数字人民币与银行卡发工资有啥区别？这一举措会带来哪些改变？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
-- [年轻人流行起「重养父母」，教妈妈护肤、帮爸爸抢演唱会票，怎样看待这种反向哺育？其中的边界感该如何把控？](http://www.daogukj.com/xfhybzga/)
-- [S16瑞士轮第四轮抽签](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
+- [藏族女孩给子弟兵当翻译](http://www.daogukj.com/eptgayul/)
+- [ILLIT 'You're Under Arrest' Official MV](http://www.daogukj.com/zzzmzdnw/)
+- [花生是血脂“杀手”吗](http://www.daogukj.com/2895651)
+- [369 赛后采访称「本来做好了挨揍准备，结果发现大家好像也没差太多」是他天赋高还是本届上单地位有下滑？](http://www.daogukj.com/bmrafxkl/)
+- [「南北」奥迪正式分家，四环归一汽，AUDI 归上汽，背后出于怎样的商业考量？将带来哪些影响？](http://www.movie.hkepx.cn/movie/6678209.htm)
+- [城管摇了摊主好了顾客笑了](http://www.daogukj.com/2230415)
+- [厉娜许飞 华妃端妃](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
+- [从29.1%的增速感受智能制造澎湃动能](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
+- [动态视频｜子弹时间再升级，70台iPhone造了个捕捉时空的球](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
+- [中国麻将在美国爆火](http://www.movie.hkepx.cn/xiju/6217864.htm)
+- [感受智能制造的澎湃动能](http://www.movie.hkepx.cn/movie/4778790.htm)
+- [毛不易婚礼致辞事件会对他的事业造成影响吗？](http://www.movie.hkepx.cn/movie/7470449.htm)
+- [江苏多所高校将用数字人民币发工资，数字人民币与银行卡发工资有啥区别？这一举措会带来哪些改变？](http://www.movie.hkepx.cn/movie/6111499.htm)
+- [中国麻将在美爆火卖400美元还得抢](http://www.movie.hkepx.cn/xiju/2348853.htm)
+- [物业设电子屏滚动播放业主欠缴费用，包含姓氏、楼栋等信息，这一行为合法吗？有没有更好的催收办法？](http://www.daogukj.com/fygnbifa/)
+- [懂球帝对姆巴佩不当发言不翻译不接受](http://www.daogukj.com/9070712)
+- [央视删除姆巴佩相关报道](http://www.daogukj.com/hoflukum/)
+- [特高压工程建设者“硬核吃午餐”](http://www.daogukj.com/3336484)
+- [普通女同事的职场纠纷和爱恨情仇【卡黄盘点】](http://www.movie.hkepx.cn/movie/3675931.htm)
+- [张一鸣刷新中国首富财富纪录](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
+- [女孩跳桥瞬间被辅警一把拽回](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
+- [张雪招聘食堂主管，工资加 20% 以上，称「如果同事的伙食都照顾不好，一定是烂公司」 ，如何看待此事？](http://www.daogukj.com/xljzrgjc/)
+- [一个“国误奇观”的故事](http://www.daogukj.com/sfjdsknb/)
+- [姆巴佩深知被羞辱的滋味却不懂尊重](http://www.movie.hkepx.cn/xiju/0712256.htm)
+- [蒋诗萌与贾玲的体型相近，都是以自黑出圈，贾玲转行当导演后，你认为她能顶替贾玲的生态位吗？](http://www.daogukj.com/blhofduy/)
+- [声生不息宝岛季2首发阵容](http://www.daogukj.com/qdmxuvra/)
+- [皇马大吧声明](http://www.daogukj.com/3062862)
+- [存储芯片龙头德明利前三季度归母净利润增长 323 倍，股价却跌去 64%，如何看待股价与业绩的背离？](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
+- [央视下架姆巴佩报道](http://www.daogukj.com/4819328)
+- [“早筛神器”能自测癌症？谣言](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
+- [A股 科技股](http://www.movie.hkepx.cn/xiju/6449274.htm)
+- [一斤开心果抵十斤猪肉](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
+- [小米首个住宅小区开售](http://www.movie.hkepx.cn/xiju/8624591.htm)
+- [吃中国饭砸中国锅 姆巴佩不配](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
+- [许飞被曝加拿大隐婚生子](http://www.daogukj.com/2518516)
+- [巴西大选卢拉因何实现逆风翻盘](http://www.movie.hkepx.cn/movie/2625646.htm)
+- [东鹏饮料等品牌紧急切割姆巴佩，这种情况品牌用不用赔违约金？已付代言费、物料成本还能追回吗？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
+- [张一鸣6700亿刷新中国首富财富纪录](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
+- [专家：财富储备是养老能力的基础](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
+- [财神窦占龙 第13集 杀狼【8月国创】](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
+- [百里守约绕后了](http://www.movie.hkepx.cn/xiju/9162988.htm)
+- [为什么中国人都执着于买房而不是租房？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
+- [“买东西”为什么不叫“买南北”？为什么汉语用“东西”代替物品？](http://www.daogukj.com/xfhybzga/)
+- [迪奥下架姆巴佩内容](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
 
 </details>
 
 ## 原始来源
 
-- [凯恩获金球奖](https://www.baidu.com/s?wd=%E5%87%AF%E6%81%A9%E8%8E%B7%E9%87%91%E7%90%83%E5%A5%96&sa=fyb_news&rsv_dl=fyb_news)
+- [两家中国车企杀进欧洲销量前十](https://www.baidu.com/s?wd=%E4%B8%A4%E5%AE%B6%E4%B8%AD%E5%9B%BD%E8%BD%A6%E4%BC%81%E6%9D%80%E8%BF%9B%E6%AC%A7%E6%B4%B2%E9%94%80%E9%87%8F%E5%89%8D%E5%8D%81&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7a43be0f6007757f1068 -->
+<!-- content-fingerprint: 9dc6f9d02b6355209233 -->

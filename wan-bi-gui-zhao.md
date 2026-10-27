@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 中土互联网大战，有多爆笑？
+# 动态视频｜子弹时间再升级，70台iPhone造了个捕捉时空的球
 
-> 来源：哔哩哔哩热门 · 排名：第 6 位 · 热度：460692 · 分类：人文历史 · 更新：2026-10-27T08:54:21+08:00
+> 来源：哔哩哔哩热门 · 排名：第 6 位 · 热度：1571139 · 分类：数码 · 更新：2026-10-27T14:04:22+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“中土互联网大战，有多爆笑？”位列第 6 位，公开热度指标为 460692，榜单分类为“人文历史”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“动态视频｜子弹时间再升级，70台iPhone造了个捕捉时空的球”位列第 6 位，公开热度指标为 1571139，榜单分类为“数码”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：制作：见闻工作室 编委会：云汉 郭歆 柿子 王景兴 饼干 监制：云汉 王景兴 总监：郭歆 主编：柿子 策划：云汉 郭歆 柿子 王景兴 文案：郭歆 柿子 配音：柿子 后期：毣板 无雨 星夜 编辑：饼干 参考资料： 网易：《中土网民骂战：土耳其网民先掏的课本，最后被一张派大星梗图干沉默了》，2026年10月22日 腾讯新闻：《海外社交平台爆发赛博世界大战场面相当魔幻，土耳其网友想恶心中国结果踢到铁板！》，2026年10月22日 网易 《扼喉俄罗斯，勒索中国，小国土耳其为什么能这么豪横？》，2022年12月2
+来源公开摘要显示：也许大家还记得去年VOGUE盛典上，我们用iPhone打造的子弹时间系统吗？今年，我们再度与VOGUE合作，用70台iPhone造了一个全新的VOGUE Ball。一起来看看这次有没有更高明一些？如果你喜欢这期视频，请多多支持我们，并把视频分享给你的朋友们！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `人文历史`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `数码`
 
 ## 相关热点
 
-- [金球奖前十](fu-jing-qing-zui.md)
-- [iG抽签对阵LYON](mao-sui-zi-jian.md)
-- [学者：中国如何面对更加分裂的巴西](san-gu-mao-lu.md)
-- [哈利波特发现自己继承了父母的巨额遗产后，为什么不分点给姨夫姨妈一家报答养育之恩？](cao-mu-jie-bing.md)
+- [城管摇了摊主好了顾客笑了](fu-jing-qing-zui.md)
+- [电诈头目刘忍被押解回国画面曝光](mao-sui-zi-jian.md)
+- [谁在菲律宾“围猎”中国人](san-gu-mao-lu.md)
+- [内存市场出现局部价格倒挂，渠道商面临库存压力选择降价清库存，普通消费者现在适合入手吗？](cao-mu-jie-bing.md)
 
 ## 站内推荐
 
-- [「南北」奥迪正式分家，四环归一汽，AUDI 归上汽，背后出于怎样的商业考量？将带来哪些影响？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [万重山河皆侠骨！剑网3新50级版本MV《万重山》上线](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [在毛毯上玩一会4399吧（纯手搓版） 超大工程！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [马尔芙小姐，我能请你共舞一曲吗？｜PV](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [AL一号种子16强](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [张雪招聘食堂主管，工资加 20% 以上，称「如果同事的伙食都照顾不好，一定是烂公司」 ，如何看待此事？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [一刀不剪！千言万语，无话可说，还我睡眠！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [花4毛钱让1000个蓝色大肥鱼建造故宫](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [匡威还在整活挽留 年轻人不买账了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [网友捧红的大理论没人当真](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [金球奖](http://www.daogukj.com/3042716)
-- [凯恩金球奖解三渴](http://www.movie.hkepx.cn/movie/2061637.htm)
-- [金球奖前十](http://www.daogukj.com/whcykmxi/)
-- [AL官方赛后致歉](http://www.daogukj.com/8289578)
-- [S16瑞士轮第 3 轮低分淘汰赛，AL0:2TLAW，被称为LPL历史最差一号种子，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/6917669.htm)
-- [苹果回应iPhone Duo折叠屏开裂](http://www.daogukj.com/1323195)
-- [动态视频｜子弹时间再升级，70台iPhone造了个捕捉时空的球](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
-- [刚入职叫女领导一个月熊大](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
-- [接招吧，由精锐弓床弩组成的密集火力网！【帝国时代4】](http://www.movie.hkepx.cn/xiju/7626363.htm)
-- [张雪校招称年薪10万起买车就半价](http://www.daogukj.com/zbetfxek/)
-- [TES又在瑞士轮打BLG](http://www.daogukj.com/6022603)
-- [金球奖排名](http://www.movie.hkepx.cn/xiju/5313504.htm)
-- [金球奖官方回应获奖页面提前泄露](http://www.daogukj.com/xdexhduz/)
-- [如何评价呼和浩特盛乐国际机场将于 2026 年 11 月 26 日正式投入运营？](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
-- [数说中国外贸澎湃动能](http://www.movie.hkepx.cn/movie/6492359.htm)
-- [73名省部级及以上干部被立案](http://www.daogukj.com/6000133)
-- [150万开无烟酒吧倒闭 当事人回应](http://www.daogukj.com/ajsfeojq/)
-- [《死神千年血战篇》第四季祸进谭大结局开播，如何评价第十集？](http://www.movie.hkepx.cn/xiju/4278075.htm)
-- [张麻子《鹅城FUNK》](http://www.movie.hkepx.cn/movie/5534562.htm)
-- [凯恩发表获奖感言时亚马尔表情](http://www.daogukj.com/6871213)
-- [在毛毯上玩一会4399吧（纯手搓版） 超大工程！](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
-- [侯明昊百妖谱客串](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
-- [“看不见的外贸”畅跑全球](http://www.movie.hkepx.cn/xiju/4051583.htm)
-- [AL止步十六强](http://www.daogukj.com/4848168)
+- [藏族女孩给子弟兵当翻译](http://www.daogukj.com/3042716)
+- [钓鱼者踩断大桥管道1人死亡](http://www.movie.hkepx.cn/movie/2061637.htm)
+- [城管摇了摊主好了顾客笑了](http://www.daogukj.com/whcykmxi/)
+- [特高压工程建设者“硬核吃午餐”](http://www.daogukj.com/8289578)
+- [东鹏、蒙牛相继宣布终止与姆巴佩全部合作，称零容忍伤害民族感情行为，具体情况如何？将带来哪些影响？](http://www.movie.hkepx.cn/movie/6917669.htm)
+- [张子萱一见面就扑进陈赫怀里](http://www.daogukj.com/1323195)
+- [在毛毯上玩一会4399吧（纯手搓版） 超大工程！](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
+- [张一鸣刷新中国首富财富纪录](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
+- [身上这4个部位软一点可能更长寿](http://www.movie.hkepx.cn/xiju/7626363.htm)
+- [国内油价或将再刷新高](http://www.daogukj.com/zbetfxek/)
+- [多家企业切割姆巴佩](http://www.daogukj.com/6022603)
+- [参加婚礼吃了一桌子外卖](http://www.movie.hkepx.cn/xiju/5313504.htm)
+- [369 赛后采访称「本来做好了挨揍准备，结果发现大家好像也没差太多」是他天赋高还是本届上单地位有下滑？](http://www.daogukj.com/xdexhduz/)
+- [苹果称很多客户取消 iPhone Duo 订单，具体是什么原因？其他购买渠道靠谱吗？](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
+- [数说中国交通运输动力澎湃](http://www.movie.hkepx.cn/movie/6492359.htm)
+- [姆巴佩的沉默比失言更说明问题](http://www.daogukj.com/6000133)
+- [厉娜许飞 华妃端妃](http://www.daogukj.com/ajsfeojq/)
+- [普通女同事的职场纠纷和爱恨情仇【卡黄盘点】](http://www.movie.hkepx.cn/xiju/4278075.htm)
+- [去亿年溶洞演奏千年前的声音，是什么体验？【杜比全景声】](http://www.movie.hkepx.cn/movie/5534562.htm)
+- [媒体：娱乐至死的医疗真人秀该叫停了](http://www.daogukj.com/6871213)
+- [花4毛钱让1000个蓝色大肥鱼建造故宫](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
+- [女孩跳桥瞬间被辅警一把拽回](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
+- [外媒聚焦二十届五中全会](http://www.movie.hkepx.cn/xiju/4051583.htm)
+- [张雪校招 年薪10万起买车就半价](http://www.daogukj.com/4848168)
 - [生命起源：四十亿年前，地球如何诞生第一个生命？](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
-- [S16瑞士轮第四轮抽签](http://www.movie.hkepx.cn/movie/2894342.htm)
+- [迪奥下架姆巴佩内容](http://www.movie.hkepx.cn/movie/2894342.htm)
 - [寒武纪辟谣明年出货100万颗芯片](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
-- [LPL连续两年一号种子止步16强](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
-- [15个中央巡视组组长公布](http://www.movie.hkepx.cn/xiju/8848024.htm)
-- [如何看待Anthropic提交IPO申请，将以「ANT」为代码登陆纳斯达克？会给AI行业带来哪些改变？](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
-- [老公把我要走了换成出去玩儿啦](http://www.movie.hkepx.cn/xiju/3438884.htm)
-- [蒋诗萌与贾玲的体型相近，都是以自黑出圈，贾玲转行当导演后，你认为她能顶替贾玲的生态位吗？](http://www.daogukj.com/ieqapfew/)
-- [“何以中国”的答案在哪里](http://www.daogukj.com/8044050)
-- [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
-- [装X翻车全网群嘲？医学界有自己的翟天临！深扒李子祺事变](http://www.movie.hkepx.cn/xiju/0303756.htm)
-- [菲尔兹奖得主邓煜评论 AI 公司「你不能只在你蒸馏全人类的知识时支持蒸馏」，如何看待模型厂的反蒸馏？](http://www.daogukj.com/8598756)
-- [邵永灵：卢拉阻击了“唐罗主义”](http://www.movie.hkepx.cn/movie/4526722.htm)
-- [为什么广东那么潮湿却没养成吃辣椒祛湿的习惯？](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
-- [⚡️老詹狂野单曲《LeBron Funk》乐邦放克⚡️【AI MV大赛】](http://www.daogukj.com/0218050)
-- [【抢先看】植物大战僵尸・超长番：从新手村到万物共生，一集封神！](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
-- [贝林厄姆今夏世界杯轰入7球](http://www.daogukj.com/3371192)
-- [创造奇迹：卢拉逆转胜选 小博索纳罗要求推翻选举结果](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
-- [万重山河皆侠骨！剑网3新50级版本MV《万重山》上线](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
-- [尼采：纵然上帝已死，我仍努力向生命举杯](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
-- [城管摇了摊主好了顾客笑了](http://www.movie.hkepx.cn/movie/1298994.htm)
-- [我国风光累计装机容量突破20亿千瓦](http://www.movie.hkepx.cn/movie/6188638.htm)
-- [史上最大IPO 史上最亏AI公司](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
+- [姆巴佩深知被羞辱的滋味却不懂尊重](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
+- [苹果 iPad mini 8 发布，首搭 OLED 屏幕，起售价 5499 元，还有哪些亮点值得关注？](http://www.movie.hkepx.cn/xiju/8848024.htm)
+- [IG战胜HLE后，Zeus找Bin诉苦](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
+- [许飞被曝加拿大隐婚生子](http://www.movie.hkepx.cn/xiju/3438884.htm)
+- [【暗区突围手游】版本更新介绍，全新篇章「战火重燃」10月29日上线！](http://www.daogukj.com/ieqapfew/)
+- [从29.1%的增速感受智能制造澎湃动能](http://www.daogukj.com/8044050)
+- [财神窦占龙 第13集 杀狼【8月国创】](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
+- [ILLIT 'You're Under Arrest' Official MV](http://www.movie.hkepx.cn/xiju/0303756.htm)
+- [为什么以前老师用钢笔批改作业时，不会只用红墨水，而是要在里面滴一两滴黑墨水呢?](http://www.daogukj.com/8598756)
+- [花生是血脂“杀手”吗](http://www.movie.hkepx.cn/movie/4526722.htm)
+- [如何看待ETH（指数时间猜想）猜想被OpenAI证伪？](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
+- [卢拉：从擦鞋童到九指总统](http://www.daogukj.com/0218050)
+- [被取消演出的大衣哥回家种地](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
+- [多国超低生育率另一个解释：谁带孩子](http://www.daogukj.com/3371192)
+- [极危？这都快养泛滥了！！！！](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
+- [一刀不剪！千言万语，无话可说，还我睡眠！](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
+- [新娘出阁宴请来一排小吃摊](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
+- [新娘回应参加婚礼吃了一桌外卖](http://www.movie.hkepx.cn/movie/1298994.htm)
+- [感受智能制造的澎湃动能](http://www.movie.hkepx.cn/movie/6188638.htm)
+- [央视删除姆巴佩相关报道](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
 - [渡鸦风云记](http://www.daogukj.com/4541580)
-- [iG抽签对阵LYON](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
-- [联合国：以色列犯战争罪及危害人类罪](http://www.daogukj.com/4450013)
+- [电诈头目刘忍被押解回国画面曝光](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
+- [小米首个住宅小区开售](http://www.daogukj.com/4450013)
 
 </details>
 
 ## 原始来源
 
-- [中土互联网大战，有多爆笑？](https://b23.tv/BV1jKnd6uE5d)
+- [动态视频｜子弹时间再升级，70台iPhone造了个捕捉时空的球](https://b23.tv/BV1aFno6wETM)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c0c40dab81c668046e1c -->
+<!-- content-fingerprint: ce9bfa8d3ff3a2be6eda -->
