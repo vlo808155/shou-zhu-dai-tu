@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 澳方向中方返还两件文物
+# 女子被蜱虫咬伤住ICU28天四肢瘫痪
 
-> 来源：今日头条热榜 · 排名：第 5 位 · 热度：83856590 · 分类：新事件上榜 · 更新：2026-10-28T14:54:27+08:00
+> 来源：微博热搜 · 排名：第 5 位 · 热度：469152 · 分类：民生新闻 · 更新：2026-10-28T21:53:45+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“澳方向中方返还两件文物”位列第 5 位，公开热度指标为 83856590，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“女子被蜱虫咬伤住ICU28天四肢瘫痪”位列第 5 位，公开热度指标为 469152，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [领导叫我走人不用来上班了，我录音了，然后我走了，领导这算违法辞退吗？](wen-ji-qi-wu.md)
-- [被人买凶杀死的自媒体人徽剑【热点详解01】](wo-xin-chang-dan.md)
-- [抖音副总裁反驳“字节时间”：胡扯](po-fu-chen-zhou.md)
-- [周群飞成中国女首富](bei-shui-yi-zhan.md)
+- [男子回应借助AI买彩票中508万](wen-ji-qi-wu.md)
+- [「酱油」一词为什么正在被「生抽」和「老抽」替代？](wo-xin-chang-dan.md)
+- [做了一个错误的决定： 信了贵州辣卤不辣！](po-fu-chen-zhou.md)
+- [刘延东遗像](bei-shui-yi-zhan.md)
 
 ## 站内推荐
 
-- [我国产业结构向新向优向好升级](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [金鸡影帝戈治均去世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [长期吃素能“排毒”？假的](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [东契奇复制粘贴式三分](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [中国有哪些奇葩的火车站？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [数说中国经济澎湃动能](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [剑来赢了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [现在就出发5 金晨](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [华为](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [如何评价李一桐、王佳佳主演的都市情感剧《美人余》？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [司宫令官宣丁禹兮宋祖儿](http://www.play.hengshemaoyi.cn/kongbu/8974730.htm)
-- [长征路上的半条被子](http://www.play.hengshemaoyi.cn/kongbu/4377320.htm)
-- [尚公主腾讯热度是在垒长城吗](http://www.daogukj.com/mhxkhqlr/)
-- [抖音回应中国互联网进入字节时间](http://www.daogukj.com/vttuxixa/)
-- [几百万粒芝麻拼出《清明上河图》](http://www.daogukj.com/cqpthmbw/)
-- [抖音副总裁反驳“字节时间”：胡扯](http://www.movie.hkepx.cn/xiju/9477503.htm)
-- [金鸡影帝戈治均去世](http://www.daogukj.com/7088546)
-- [AL十六强单曲《游过太平洋》](http://www.play.hengshemaoyi.cn/kongbu/2897383.htm)
-- [印度男子隔空吐口水触高压线身亡](http://www.daogukj.com/lcwjhtor/)
-- [中新网：别成为下一个姆巴佩](http://www.play.hengshemaoyi.cn/xiju/4203206.htm)
-- [周群飞成中国女首富](http://www.movie.hkepx.cn/xiju/2909346.htm)
-- [光明日报：不容侮辱中国已故伟大领袖](http://www.daogukj.com/7785768)
-- [年轻人开始流行「喝大水」，喝水越多越好吗？短时间大量喝水有什么危害？如何正确饮水？](http://www.daogukj.com/1079050)
-- [《🌞两小儿辩日🌞》](http://www.daogukj.com/cfcdbnes/)
-- [国台办：祖国终将统一也必将统一](http://www.movie.hkepx.cn/xiju/5548290.htm)
-- [假如眼镜王蛇和金环蛇互咬，它们会被对方的毒毒死吗？](http://www.movie.hkepx.cn/movie/6459598.htm)
-- [民调：内塔尼亚胡阵营未获过半议席](http://www.movie.hkepx.cn/movie/8145475.htm)
-- [杨洋陈都灵等风热吻你路透](http://www.movie.hkepx.cn/movie/6792790.htm)
-- [上海小区多名幼童裸体跑动 警方介入](http://www.movie.hkepx.cn/xiju/5785622.htm)
-- [铁证](http://www.play.hengshemaoyi.cn/xiju/0943328.htm)
-- [西游记，那个冒充乌鸡国王的妖怪，有何目的，不贪财也不图色？](http://www.daogukj.com/6160997)
-- [中国有哪些奇葩的火车站？](http://www.play.hengshemaoyi.cn/kongbu/9533347.htm)
-- [疯狂十六强，启动！](http://www.daogukj.com/6158458)
-- [悲伤逆流成河](http://www.daogukj.com/vgxpewvp/)
-- [旗舰手机芯片大横评：苹果高通发哥玄戒谁最强？](http://www.play.hengshemaoyi.cn/xiju/6603798.htm)
-- [对中国34个省的刻板印象](http://www.daogukj.com/3242581)
-- [红果短剧成立3年，2026年收入预测超过400亿，有望追上甚至超越全国电影院总票房，如何评价这股势头？](http://www.play.hengshemaoyi.cn/xiju/5213102.htm)
-- [毛林林：比起做母亲更想先做自己](http://www.play.hengshemaoyi.cn/xiju/3584736.htm)
-- [一组数据 看我国经济动能向新](http://www.daogukj.com/sqzoiroq/)
+- [《玉簟秋》尺度](http://www.play.hengshemaoyi.cn/kongbu/8974730.htm)
+- [中国“智造家”加速出海](http://www.play.hengshemaoyi.cn/kongbu/4377320.htm)
+- [中方：希望德方欧方保持客观理性](http://www.daogukj.com/mhxkhqlr/)
+- [张雨霏回应破全国纪录](http://www.daogukj.com/vttuxixa/)
+- [一瞬成刃【听伊莫不emo 02】](http://www.daogukj.com/cqpthmbw/)
+- [做了一个错误的决定： 信了贵州辣卤不辣！](http://www.movie.hkepx.cn/xiju/9477503.htm)
+- [剑来赢了](http://www.daogukj.com/7088546)
+- [近五年旋转小火锅新增门店超2万家，海底捞等巨头争相入局，为啥旋转小火锅又火了？这一次热潮能持续多久？](http://www.play.hengshemaoyi.cn/kongbu/2897383.htm)
+- [微信新功能来了：只用动嘴](http://www.daogukj.com/lcwjhtor/)
+- [王曼昱3比0胜高达](http://www.play.hengshemaoyi.cn/xiju/4203206.htm)
+- [刘延东遗像](http://www.movie.hkepx.cn/xiju/2909346.htm)
+- [中方强烈要求美国立即停止封锁古巴](http://www.daogukj.com/7785768)
+- [《影之刃零》的特别鸣谢名单占据游戏界的半壁江山，刘伟、女流、冯骥统统上榜，对此你怎么看？](http://www.daogukj.com/1079050)
+- [《异环》1.5版本前瞻特别节目回顾](http://www.daogukj.com/cfcdbnes/)
+- [皇马欠中国的不只是一句道歉](http://www.movie.hkepx.cn/xiju/5548290.htm)
+- [最新研究通过指纹推断兵马俑制作或有女性和少年参与，有哪些考古学意义？是如何用指纹推断出性别和年龄的?](http://www.movie.hkepx.cn/movie/6459598.htm)
+- [刘延东同志遗像](http://www.movie.hkepx.cn/movie/8145475.htm)
+- [篡改答案 150人参加考试149人通过](http://www.movie.hkepx.cn/movie/6792790.htm)
+- [今年双十一 电视遥控器爆火](http://www.movie.hkepx.cn/xiju/5785622.htm)
+- [2026款理想i6售价24.98万元](http://www.play.hengshemaoyi.cn/xiju/0943328.htm)
+- [交警现场喷字警示“老头乐”非法上路](http://www.daogukj.com/6160997)
+- [如何评价李一桐、王佳佳主演的都市情感剧《美人余》？](http://www.play.hengshemaoyi.cn/kongbu/9533347.htm)
+- [S16 全球总决赛 Faker 及 T1 达成第七冠的概率有多大？](http://www.daogukj.com/6158458)
+- [历史见证田头“割麦证”](http://www.daogukj.com/vgxpewvp/)
+- [安徽女子赴泰失联近 3 个月，家属称被拐至园区 50 万元遭转走，警方已立案，具体情况如何？](http://www.play.hengshemaoyi.cn/xiju/6603798.htm)
+- [大多数人的一生是什么样子的?](http://www.daogukj.com/3242581)
+- [西班牙高铁相撞事故已造成 64 人死亡，有中国公民受伤，初步调查显示事故系人为失误所致，具体情况如何？](http://www.play.hengshemaoyi.cn/xiju/5213102.htm)
+- [解放军舰艇在菲东海域集结有何深意](http://www.play.hengshemaoyi.cn/xiju/3584736.htm)
+- [永远和你在一起](http://www.daogukj.com/sqzoiroq/)
 - [爸爸去哪儿 x Counting Stars](http://www.daogukj.com/9537822)
-- [特朗普为了中期大选真拼了](http://www.movie.hkepx.cn/xiju/6723827.htm)
-- [苹果折叠机让黄牛亏到没裤子](http://www.daogukj.com/3855937)
-- [【2026王者荣耀共创之夜】晚会完整回放](http://www.play.hengshemaoyi.cn/kongbu/9163230.htm)
-- [反诈博主「徽剑」遇害家属称被逼签谅解书，还有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/5655654.htm)
-- [27岁女子赴泰国见网友失联](http://www.movie.hkepx.cn/movie/8750130.htm)
-- [黑龙江一婚宴设「外卖席」，每人 100 餐标吃奶茶炸鸡麻辣烫，你支持这种创新吗？是否需要更考虑场合？](http://www.movie.hkepx.cn/xiju/2707701.htm)
-- [湖人不敌开拓者](http://www.movie.hkepx.cn/movie/1592539.htm)
-- [央视：不认可皇马的表态](http://www.movie.hkepx.cn/movie/4182339.htm)
-- [《胡闹厨房》](http://www.movie.hkepx.cn/movie/9304746.htm)
-- [如何看待越来越多青年教师「付费上班」，有人完不成考核自费50万充横向经费，发论文自费找润色、报统计班？](http://www.movie.hkepx.cn/xiju/4345913.htm)
-- [如何评价Artificial Analysis智能指数更新v5，GPT模型屠榜？](http://www.daogukj.com/4645764)
-- [我国产业结构向新向优向好升级](http://www.play.hengshemaoyi.cn/kongbu/0822089.htm)
-- [《影之刃零》动捕录制时长超1000小时，甄子丹武术指导团队参与，这款游戏真的需要这么「奢侈」的制作吗？](http://www.movie.hkepx.cn/movie/5783118.htm)
-- [东北八大怪之大缸小缸腌酸菜](http://www.daogukj.com/lwnrprkt/)
-- [交旅融合绘就出行新图景](http://www.play.hengshemaoyi.cn/kongbu/5185531.htm)
-- [如何看待 Anthropic 将「封号」写进 IPO 招股书，表明违规用户贡献了 5%～7% 的营收？](http://www.movie.hkepx.cn/movie/2979840.htm)
-- [长期吃素能“排毒”？假的](http://www.play.hengshemaoyi.cn/xiju/1695379.htm)
-- [Shanks回应AL止步十六强](http://www.movie.hkepx.cn/movie/2967061.htm)
-- [《令人心动的offer8》停更](http://www.daogukj.com/bhbjtzul/)
-- [研究发现吃肉可能与长寿有关](http://www.movie.hkepx.cn/xiju/2010354.htm)
+- [奶奶的皱纹里，藏着我一生的甜与暖](http://www.movie.hkepx.cn/xiju/6723827.htm)
+- [皇马道歉完还须补课](http://www.daogukj.com/3855937)
+- [【究极佐菲格斗】第五集 危险的雄狮！佐菲机器人 雷欧 泰罗 超兽黑鸽子 黑暗星人巴巴尔 登场](http://www.play.hengshemaoyi.cn/kongbu/9163230.htm)
+- [中小学秋假安排需注意这些误区](http://www.movie.hkepx.cn/xiju/5655654.htm)
+- [皇马在1.8亿粉平台发布道歉](http://www.movie.hkepx.cn/movie/8750130.htm)
+- [南京一公园现成片“加拿大一枝黄花”](http://www.movie.hkepx.cn/xiju/2707701.htm)
+- [妈妈称男孩1米75没法见人](http://www.movie.hkepx.cn/movie/1592539.htm)
+- [东北八大怪之大缸小缸腌酸菜](http://www.movie.hkepx.cn/movie/4182339.htm)
+- [媒体呼吁「医疗真人秀叫停」，《offer 8》会被整改或停播吗？节目对医患信任的真实影响到底有多严重？](http://www.movie.hkepx.cn/movie/9304746.htm)
+- [算力网加速织就 八大枢纽各展所长](http://www.movie.hkepx.cn/xiju/4345913.htm)
+- [华为 PuraXView 销量超 60 万台且持续缺货，阔直屏形态会成为行业新趋势吗？](http://www.daogukj.com/4645764)
+- [数说中国经济澎湃动能](http://www.play.hengshemaoyi.cn/kongbu/0822089.htm)
+- [为什么我感觉时间过得越来越快？](http://www.movie.hkepx.cn/movie/5783118.htm)
+- [疯狂十六强，启动！](http://www.daogukj.com/lwnrprkt/)
+- [共产党员是最闪亮的名字](http://www.play.hengshemaoyi.cn/kongbu/5185531.htm)
+- [23岁网红夏夏抗癌5年去世](http://www.movie.hkepx.cn/movie/2979840.htm)
+- [现在就出发5 金晨](http://www.play.hengshemaoyi.cn/xiju/1695379.htm)
+- [张亮与张亮麻辣烫“世纪和解”](http://www.movie.hkepx.cn/movie/2967061.htm)
+- [对中国34个省的刻板印象](http://www.daogukj.com/bhbjtzul/)
+- [皇马称姆巴佩言论仅代表个人](http://www.movie.hkepx.cn/xiju/2010354.htm)
 
 </details>
 
 ## 原始来源
 
-- [澳方向中方返还两件文物](https://www.toutiao.com/trending/7701559491489219082/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2215%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227701559491489219082%22%2C%22hot_board_impr_id%22%3A%2220261028145422F850B81022F7BAD1B6F2%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
+- [女子被蜱虫咬伤住ICU28天四肢瘫痪](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%AD%90%E8%A2%AB%E8%9C%B1%E8%99%AB%E5%92%AC%E4%BC%A4%E4%BD%8FICU28%E5%A4%A9%E5%9B%9B%E8%82%A2%E7%98%AB%E7%97%AA)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6e025f5ec690275c3330 -->
+<!-- content-fingerprint: dc69ee8fa74c1f567454 -->
