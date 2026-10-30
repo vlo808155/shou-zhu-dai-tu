@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 小时候看仙剑，邪剑仙乃超出六界之外，为什么景天还能杀死邪剑仙？
+# 小伙因亲人少怕婚礼冷清邀网友喝喜酒，近 200 人从全国各地赴宴，有人送冰箱有人带整猪，如何看待此事？
 
-> 来源：知乎热榜 · 排名：第 5 位 · 热度：141 万热度 · 分类：问答 · 更新：2026-10-30T08:48:03+08:00
+> 来源：知乎热榜 · 排名：第 5 位 · 热度：299 万热度 · 分类：问答 · 更新：2026-10-30T14:32:15+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“小时候看仙剑，邪剑仙乃超出六界之外，为什么景天还能杀死邪剑仙？”位列第 5 位，公开热度指标为 141 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“小伙因亲人少怕婚礼冷清邀网友喝喜酒，近 200 人从全国各地赴宴，有人送冰箱有人带整猪，如何看待此事？”位列第 5 位，公开热度指标为 299 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，云南昭通一名男子的婚礼邀约引发关注。博主讲述：“在我3岁的时候，爸爸就因病逝世了，妈妈在我5岁时就改嫁了，剩下一个唯一的长辈奶奶就带着我和我哥，我哥大我3岁，可是两年后奶奶也因病去了和我爸同样的地方。”兄弟二人相依为命，初中辍学后务工打拼。小伙与女友定于10月31日举办婚礼，发帖邀请网友赴宴撑场面。 消息发出后，不少网友留言愿意到场，也有网友提醒大家量力而行，担心远道而来的朋友面临食宿、堵车等问题。博主表示已和村委会报备过，大家一定要注意安全。 10月27日，小小徐接受了九派新闻的采访，他说这两天自己接待了近200人，几乎没有时间回复信息接听电话，
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [《崩坏：星穹铁道》千星纪游PV：「有关星空的寓言集•其三」](po-fu-chen-zhou.md)
-- [高秀敏被印上祭品 何庆魁愤怒发声](bei-shui-yi-zhan.md)
-- [C罗时隔2年再上演帽子戏法](zhi-shang-tan-bing.md)
+- [做个八鲜捞饭！海鲜一锅端，黏糊糊太上头了！配葱油海肠，嘎吱脆啊](po-fu-chen-zhou.md)
+- [把电视开机第一秒还给观众](bei-shui-yi-zhan.md)
+- [4名缅甸工人杀中国老板后自首](zhi-shang-tan-bing.md)
 - [工资改发数字人民币了有啥变化](wei-wei-jiu-zhao.md)
 
 ## 站内推荐
 
-- [每天通勤50多公里，是买电动车还是摩托车比较好?](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [红果的日活跃用户达 1.68 亿人，超「爱优腾芒」四家总和，这构成垄断吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [HONG KONG](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [谷歌重夺大模型第一 华尔街却不买账](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [女高管隆胸死亡 7个月消费108万元](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [如何看待蒋方舟因论文抄袭被撤销学位后，时隔 107 天再发文《37岁才明白的事》？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [菜鸟驿站为什么那么多转让的？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [三阶段了 杀手一曲Golden Hour征服老哥](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [《三鞭抽散厌学魂》](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [《此弟不宜久留》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [中国第一个「三机场」城市来了，上海为啥要建第三机场？为何落在南通？将带来哪些影响？](http://www.daogukj.com/epcjcrex/)
-- [母亲因情绪失控将7岁女儿推下窗台](http://www.movie.hkepx.cn/xiju/7554306.htm)
-- [A股磨底阶段如何应对](http://www.daogukj.com/7098171)
-- [三丽鸥在日本官网用中日双语道歉，如何看待此回应？你还会为三丽鸥买单吗？](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
-- [吴站长&梅姐《Trouble Maker》【AI MV大赛】](http://www.daogukj.com/5595330)
-- [养猫后明白了辱追心理](http://www.movie.hkepx.cn/xiju/4881611.htm)
-- [以英语为母语的人，遇到不认识的单词的时候能像我们一样产生大概的感觉吗？](http://www.daogukj.com/2794428)
-- [《复联5》成X教授遗作](http://www.movie.hkepx.cn/movie/0220033.htm)
-- [《原神》米提亚角色PV——「小小伎俩」](http://www.daogukj.com/3787812)
-- [男子会所按摩睡着遭技师侵犯 已立案](http://www.movie.hkepx.cn/movie/2410306.htm)
-- [BLG对战TES](http://www.movie.hkepx.cn/movie/4961738.htm)
+- [五年不见！人生一串4重磅回归](http://www.daogukj.com/epcjcrex/)
+- [严重违纪违法 两院士被开除党籍](http://www.movie.hkepx.cn/xiju/7554306.htm)
+- [Viper和教练激烈讨论复盘](http://www.daogukj.com/7098171)
+- [如何看待中科大给学生提供每天一亿的token额度？](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
+- [【独家】《罗小黑战记》第41话 开始学习吧小黑同学【10月国创】](http://www.daogukj.com/5595330)
+- [王楚钦替孙颖莎把让分谈高了](http://www.movie.hkepx.cn/xiju/4881611.htm)
+- [科技巨头一夜蒸发3万亿美股要崩了吗](http://www.daogukj.com/2794428)
+- [小小徐明日办婚礼 媒体提前探访现场](http://www.movie.hkepx.cn/movie/0220033.htm)
+- [S5赛季「圣龙宝藏」精灵生态抢先看！](http://www.daogukj.com/3787812)
+- [直击小小徐婚礼现场](http://www.movie.hkepx.cn/movie/2410306.htm)
+- [两个人的婚礼变成一群人的狂欢](http://www.movie.hkepx.cn/movie/4961738.htm)
 - [72岁成龙展示一身紧实肌肉](http://www.movie.hkepx.cn/xiju/4077836.htm)
-- [理想i6“卸掉”宁德时代押上六成销量](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
-- [女高管隆胸死亡 7个月消费108万元](http://www.daogukj.com/rrqdxtcv/)
-- [五粮液 Q3 净利润 9.58 亿元，同比下降 48.25%，如何看待剔除「调节报表」后的业绩表现？](http://www.daogukj.com/5407672)
-- [【2026全球总决赛】10月29日 LYON vs IG](http://www.daogukj.com/9043091)
-- [重庆悬崖火锅自助 现实版饥饿站台？](http://www.daogukj.com/9116005)
-- [打破“茅台洗脚”污名谣言](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
-- [X教授演员去世](http://www.daogukj.com/eqgomafp/)
-- [感觉厉娜能活99岁](http://www.daogukj.com/7605991)
-- [存2500银行误输25000储户拒还](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
-- [王老菊教你影之刃01：破伤风刀法](http://www.movie.hkepx.cn/movie/4360714.htm)
-- [人民日报锐评年轻人养不起老人了](http://www.daogukj.com/4727961)
-- [五年不见！人生一串4重磅回归](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
-- [红果红了](http://www.movie.hkepx.cn/xiju/3457747.htm)
-- [村民为悬挂婚庆气球在水库大坝公路钻数十个孔，水务局责令拆除，这对大坝有多大危害？钻洞行为违法吗？](http://www.movie.hkepx.cn/movie/9116389.htm)
-- [C罗生涯第67次“戴帽”](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
-- [如何看到法国足协主席称姆巴佩无意冒犯中国人民，希望这件事到此为止？](http://www.movie.hkepx.cn/movie/6275425.htm)
-- [“三张桌子”看作风](http://www.daogukj.com/6962158)
-- [知名AI安全专家放弃养老储蓄引争议](http://www.movie.hkepx.cn/movie/3536173.htm)
-- [武林外传续集：第八十五回 白展堂偷懒遭算计 穿越人两世解死局【[AI全民制作人】](http://www.daogukj.com/5602314)
-- [跨越山海的开放活力](http://www.daogukj.com/rhzksqyv/)
-- [邀网友赴婚礼的小伙：女友是我的动力](http://www.daogukj.com/ciddvmwp/)
-- [中国麻将在美国爆火，套装卖到 400 美元仍排队抢购，这股风潮是怎么来的？麻将为什么有这样的出海潜力？](http://www.movie.hkepx.cn/xiju/5158718.htm)
-- [影之刃初见一次打赢甄子丹...我怀疑他是假子丹](http://www.movie.hkepx.cn/xiju/4192777.htm)
-- [三丽鸥](http://www.movie.hkepx.cn/xiju/6976677.htm)
-- [10元快剪正暴打全国的“设计总监”](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
-- [中国队首次晋级U17女足世界杯8强](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
-- [油价](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
-- [数说中国海洋经济动力澎湃](http://www.daogukj.com/3262256)
-- [法院认可微信聊天记录吗](http://www.daogukj.com/2924239)
-- [城市大富翁（番外篇）](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
-- [高秀敏被印上祭品 何庆魁愤怒发声](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
-- [每天通勤50多公里，是买电动车还是摩托车比较好?](http://www.daogukj.com/cszxbbqq/)
-- [强子刚来啊，等你二十年了【AI MV大赛】](http://www.movie.hkepx.cn/movie/9183199.htm)
-- [如何看待红果短剧跃升为国内第四大app，如何看待这一现象，其动了谁的蛋糕?](http://www.daogukj.com/zmttmgkb/)
-- [贴脸特写，是每个野生动物摄影师的必备技能！](http://www.movie.hkepx.cn/xiju/7610500.htm)
-- [给阿嬷的情书为何口碑反转](http://www.movie.hkepx.cn/xiju/6364739.htm)
-- [“X教授”扮演者去世](http://www.daogukj.com/5178801)
-- [【巫师】马云的资本博弈](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
+- [把大体老师遗骨当玩物配当医生吗](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
+- [《此弟不宜久留》](http://www.daogukj.com/rrqdxtcv/)
+- [女孩恳请学校取消周日返校，称其带来严重焦虑，甚至影响周六，学校应该取消吗？周日返校有什么意义？](http://www.daogukj.com/5407672)
+- [如何看待法国足协主席称姆巴佩无意冒犯中国人民，希望这件事到此为止？](http://www.daogukj.com/9043091)
+- [挑战点一份煎饼果子加料一只帝王蟹，老板会接单吗？](http://www.daogukj.com/9116005)
+- [厉娜说喜欢许飞](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
+- [李玉刚回忆全家曾被恶霸殴打住院](http://www.daogukj.com/eqgomafp/)
+- [车主锁好的电动车被“顺手牵羊”](http://www.daogukj.com/7605991)
+- [电动车充个电能不能别那么麻烦](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
+- [为何日式搬家这种标榜「极致体面」的高端服务，最终却让打工人陷入了「花钱买罪受」的狼狈？](http://www.movie.hkepx.cn/movie/4360714.htm)
+- [金价](http://www.daogukj.com/4727961)
+- [网民造谣干扰西藏地震救灾被罚](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
+- [A股“羊”字辈多股涨停](http://www.movie.hkepx.cn/xiju/3457747.htm)
+- [张雪回应称呼易军为“小易”](http://www.movie.hkepx.cn/movie/9116389.htm)
+- [官方介绍五中全会最重要成果](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
+- [《影之刃零》中没有任何死亡惩罚，杀死的敌人也不会复活，这对你来说是利还是弊？](http://www.movie.hkepx.cn/movie/6275425.htm)
+- [构筑产业发展新优势](http://www.daogukj.com/6962158)
+- [厉娜吃5个菜许飞吃1个菜](http://www.movie.hkepx.cn/movie/3536173.htm)
+- [如何看待币安遭黑客攻击，数十亿美元资产被盗，或成历史金额最大被盗事件？](http://www.daogukj.com/5602314)
+- [校方通报「学生摆拍大体老师头骨」一事，涉事学生被处分并取消年度评优资格，如何看待学校的处理？](http://www.daogukj.com/rhzksqyv/)
+- [Viper听到错误信息原因](http://www.daogukj.com/ciddvmwp/)
+- [张雪称已将母亲拉黑，曾警告母亲不要继续受访后仍无果，发生了什么？如何看待二人关系？](http://www.movie.hkepx.cn/xiju/5158718.htm)
+- [为什么作为国宴扛把子的淮扬菜，在民间的存在感不强？](http://www.movie.hkepx.cn/xiju/4192777.htm)
+- [小小徐结婚 主厨累懵了](http://www.movie.hkepx.cn/xiju/6976677.htm)
+- [“北冥有鱼”竟然是真的](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
+- [第一个15万亿经济大省要来了吗](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
+- [孙颖莎选择不让分0比0迎战勒布伦](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
+- [跨越山海的开放活力](http://www.daogukj.com/3262256)
+- [CPOPwave出海长红IP——《原神》让世界认识中国游戏](http://www.daogukj.com/2924239)
+- [10月新番](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
+- [把电视开机第一秒还给观众](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
+- [如何看待蒋方舟因论文抄袭被撤销学位后，时隔 107 天再发文《37岁才明白的事》？](http://www.daogukj.com/cszxbbqq/)
+- [锐评S16瑞士轮TES战胜BLG：命悬一线....](http://www.movie.hkepx.cn/movie/9183199.htm)
+- [如何看待红果短剧跃升为国内第四大app？它瓜分了谁的市场？](http://www.daogukj.com/zmttmgkb/)
+- [【2026全球总决赛】10月30日 BLG vs TES](http://www.movie.hkepx.cn/xiju/7610500.htm)
+- [王楚钦说勒布伦得让孙颖莎3到4分](http://www.movie.hkepx.cn/xiju/6364739.htm)
+- [明明没买什么大件 钱却总是不翼而飞](http://www.daogukj.com/5178801)
+- [2026年一季度21.3万家理发店注销，10元快剪却排长队，理发行业怎么了？为啥越来越多人选择快剪？](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
 
 </details>
 
 ## 原始来源
 
-- [小时候看仙剑，邪剑仙乃超出六界之外，为什么景天还能杀死邪剑仙？](https://www.zhihu.com/question/403837806)
+- [小伙因亲人少怕婚礼冷清邀网友喝喜酒，近 200 人从全国各地赴宴，有人送冰箱有人带整猪，如何看待此事？](https://www.zhihu.com/question/2099167053160760200)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 76851a46b4e89a9ec6ee -->
+<!-- content-fingerprint: ff5718edce6b7f7b2792 -->

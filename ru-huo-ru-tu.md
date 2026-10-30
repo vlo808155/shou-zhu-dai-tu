@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 令人愤怒的“卖1元火鸡面”视频，炸出了多少被毁掉的中国小孩
+# 吴站长&梅姐《Trouble Maker》【AI MV大赛】
 
-> 来源：哔哩哔哩热门 · 排名：第 7 位 · 热度：702579 · 分类：社科·法律·心理 · 更新：2026-10-30T08:48:03+08:00
+> 来源：哔哩哔哩热门 · 排名：第 7 位 · 热度：1284811 · 分类：鬼畜剧场 · 更新：2026-10-30T14:32:15+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“令人愤怒的“卖1元火鸡面”视频，炸出了多少被毁掉的中国小孩”位列第 7 位，公开热度指标为 702579，榜单分类为“社科·法律·心理”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“吴站长&梅姐《Trouble Maker》【AI MV大赛】”位列第 7 位，公开热度指标为 1284811，榜单分类为“鬼畜剧场”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：如果小伙伴有更多的看法，可以在评论区给我留言哦。 下期想看什么热点事件，也可以跟椰子说说呀。 感谢大家的一键三连，你们的鼓励是我做视频的动力～ 也可以看看椰子的课程《普通人逆袭必备的30个认知模型》，在椰子的主页就可以看到哦。
+来源公开摘要显示：AI生成视频，仅供娱乐
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `社科·法律·心理`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `鬼畜剧场`
 
 ## 相关热点
 
-- [“绕地球一圈”的香飘飘为啥卖不动了](yi-gu-zuo-qi.md)
-- [offer8 暂缓更新](yi-zi-qian-jin.md)
-- [英媒：“中国制造”全新时代已到来](yi-fan-feng-shun.md)
+- [外嫁女回娘家：莫让排场账算丢亲情账](yi-gu-zuo-qi.md)
+- [张雪90后专科生员工年薪五六十万](yi-zi-qian-jin.md)
+- [普京：俄支持与欧盟国家恢复关系](yi-fan-feng-shun.md)
 - [谷歌美股开盘大跌超13%，创历史最大单日跌幅，总市值蒸发5000亿美元，为啥会这样？还会持续下跌吗？](yi-ming-jing-ren.md)
 
 ## 站内推荐
 
-- [贴脸特写，是每个野生动物摄影师的必备技能！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [《崩坏：星穹铁道》千星纪游PV：「有关星空的寓言集•其三」](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [《明日方舟》EP - A Necessary Message](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [母亲因情绪失控将7岁女儿推下窗台](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [BLG对战TES](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [【2026全球总决赛】10月30日 BLG vs TES](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [做个八鲜捞饭！海鲜一锅端，黏糊糊太上头了！配葱油海肠，嘎吱脆啊](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [渔民捕获300多斤巨型翻车鱼](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [严重违纪违法 两院士被开除党籍](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [两个人的婚礼变成一群人的狂欢](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [“绕地球一圈”的香飘飘为啥卖不动了](http://www.play.hengshemaoyi.cn/kongbu/5269516.htm)
-- [HONG KONG](http://www.daogukj.com/pqasrvfj/)
-- [如何看到法国足协主席称姆巴佩无意冒犯中国人民，希望这件事到此为止？](http://www.play.hengshemaoyi.cn/kongbu/6953634.htm)
-- [谷歌重夺大模型第一 华尔街却不买账](http://www.play.hengshemaoyi.cn/xiju/4182468.htm)
-- [小时候看仙剑，邪剑仙乃超出六界之外，为什么景天还能杀死邪剑仙？](http://www.daogukj.com/1017431)
-- [一条牛仔裤20万 克罗心还能撑多久](http://www.movie.hkepx.cn/xiju/1919727.htm)
-- [德国欲加强与日本军备合作有何意味](http://www.play.hengshemaoyi.cn/kongbu/2389385.htm)
-- [大一新生将「大体老师」头骨当道具摆拍发朋友圈，如何看待此事？会带来哪些影响？](http://www.daogukj.com/eczaycvr/)
-- [法院认可微信聊天记录吗](http://www.daogukj.com/yesbcxgy/)
-- [别把易怒多疑当“怪脾气”](http://www.play.hengshemaoyi.cn/kongbu/2268821.htm)
+- [外嫁女回娘家：莫让排场账算丢亲情账](http://www.play.hengshemaoyi.cn/kongbu/5269516.htm)
+- [三阶段了 杀手一曲Golden Hour征服老哥](http://www.daogukj.com/pqasrvfj/)
+- [《影之刃零》中没有任何死亡惩罚，杀死的敌人也不会复活，这对你来说是利还是弊？](http://www.play.hengshemaoyi.cn/kongbu/6953634.htm)
+- [《三鞭抽散厌学魂》](http://www.play.hengshemaoyi.cn/xiju/4182468.htm)
+- [小伙因亲人少怕婚礼冷清邀网友喝喜酒，近 200 人从全国各地赴宴，有人送冰箱有人带整猪，如何看待此事？](http://www.daogukj.com/1017431)
+- [忙着跟生活对线的你，有多久没上号了？谨以此片，致和游戏一起长大的我们。【AI全民制作人】](http://www.movie.hkepx.cn/xiju/1919727.htm)
+- [高市早苗与默茨敲定三份文件](http://www.play.hengshemaoyi.cn/kongbu/2389385.htm)
+- [《嫁金钗》：有辨识度才是好表演](http://www.daogukj.com/eczaycvr/)
+- [CPOPwave出海长红IP——《原神》让世界认识中国游戏](http://www.daogukj.com/yesbcxgy/)
+- [小小徐婚宴食材按千斤算](http://www.play.hengshemaoyi.cn/kongbu/2268821.htm)
 - [工资改发数字人民币了有啥变化](http://www.daogukj.com/1514619)
-- [中国队首次晋级U17女足世界杯8强](http://www.daogukj.com/7229320)
-- [中国麻将在美国爆火，套装卖到 400 美元仍排队抢购，这股风潮是怎么来的？麻将为什么有这样的出海潜力？](http://www.daogukj.com/9862646)
-- [重庆悬崖火锅自助 现实版饥饿站台？](http://www.play.hengshemaoyi.cn/xiju/2879856.htm)
-- [男子会所按摩睡着遭技师侵犯 已立案](http://www.movie.hkepx.cn/xiju/0680178.htm)
-- [如何向非数学专业的朋友解释「泛函」的概念？](http://www.play.hengshemaoyi.cn/xiju/0371775.htm)
-- [全面从严治党是全党的共同责任](http://www.play.hengshemaoyi.cn/xiju/1127717.htm)
-- [养猫后明白了辱追心理](http://www.daogukj.com/xtnnkhps/)
-- [吴站长&梅姐《Trouble Maker》【AI MV大赛】](http://www.play.hengshemaoyi.cn/kongbu/7644899.htm)
-- [乌干达15年吃掉38人“食人魔”落网](http://www.play.hengshemaoyi.cn/xiju/5097167.htm)
-- [以英语为母语的人，遇到不认识的单词的时候能像我们一样产生大概的感觉吗？](http://www.movie.hkepx.cn/xiju/7245859.htm)
-- [“X教授”扮演者去世](http://www.movie.hkepx.cn/xiju/0748643.htm)
-- [茉莉奶白联名水杯爆裂致用户住院](http://www.daogukj.com/7402023)
-- [【4K】全网首发《影之刃零》 全支线 全收集 全流程实况解说](http://www.play.hengshemaoyi.cn/kongbu/5443100.htm)
+- [第一个15万亿经济大省要来了吗](http://www.daogukj.com/7229320)
+- [张雪称已将母亲拉黑，曾警告母亲不要继续受访后仍无果，发生了什么？如何看待二人关系？](http://www.daogukj.com/9862646)
+- [挑战点一份煎饼果子加料一只帝王蟹，老板会接单吗？](http://www.play.hengshemaoyi.cn/xiju/2879856.htm)
+- [直击小小徐婚礼现场](http://www.movie.hkepx.cn/xiju/0680178.htm)
+- [刘德华演唱会广州站审批通过](http://www.play.hengshemaoyi.cn/xiju/0371775.htm)
+- [绿色转型擦亮中国经济底色](http://www.play.hengshemaoyi.cn/xiju/1127717.htm)
+- [王楚钦替孙颖莎把让分谈高了](http://www.daogukj.com/xtnnkhps/)
+- [【独家】《罗小黑战记》第41话 开始学习吧小黑同学【10月国创】](http://www.play.hengshemaoyi.cn/kongbu/7644899.htm)
+- [369龙场悟道](http://www.play.hengshemaoyi.cn/xiju/5097167.htm)
+- [科技巨头一夜蒸发3万亿美股要崩了吗](http://www.movie.hkepx.cn/xiju/7245859.htm)
+- [明明没买什么大件 钱却总是不翼而飞](http://www.movie.hkepx.cn/xiju/0748643.htm)
+- [我是白小纯我也恨](http://www.daogukj.com/7402023)
+- [如何评价Tibo正式宣布所有GPT Pro订阅额度翻倍，撤回原定的Pro $200额度下降？](http://www.play.hengshemaoyi.cn/kongbu/5443100.htm)
 - [72岁成龙展示一身紧实肌肉](http://www.daogukj.com/aftpkacm/)
-- [姆巴佩曾代言的饮品单日销量为0](http://www.movie.hkepx.cn/movie/2312956.htm)
-- [影之刃初见一次打赢甄子丹...我怀疑他是假子丹](http://www.play.hengshemaoyi.cn/kongbu/4823974.htm)
-- [全面从严治党就在身边](http://www.daogukj.com/zoxyezyv/)
-- [日乒男单蒙彼利埃站全军覆没](http://www.daogukj.com/2322655)
-- [武林外传续集：第八十五回 白展堂偷懒遭算计 穿越人两世解死局【[AI全民制作人】](http://www.movie.hkepx.cn/movie/3668600.htm)
-- [《复联5》成X教授遗作](http://www.daogukj.com/6111077)
-- [《明日方舟》EP - A Necessary Message](http://www.movie.hkepx.cn/xiju/1768070.htm)
-- [打破“茅台洗脚”污名谣言](http://www.movie.hkepx.cn/xiju/4446306.htm)
-- [村民为悬挂婚庆气球在水库大坝公路钻数十个孔，水务局责令拆除，这对大坝有多大危害？钻洞行为违法吗？](http://www.movie.hkepx.cn/movie/3688649.htm)
-- [大体老师骨骼被写「死了骨头还要被我玩」等轻浮文字，反映出哪些教育缺失？遗体捐献后应有怎样的管理措施？](http://www.play.hengshemaoyi.cn/kongbu/4226971.htm)
-- [何洁直言05超女“前三我都不爽”](http://www.daogukj.com/8802551)
-- [每天通勤50多公里，是买电动车还是摩托车比较好?](http://www.play.hengshemaoyi.cn/xiju/6879576.htm)
-- [“三张桌子”看作风](http://www.movie.hkepx.cn/movie/3363630.htm)
-- [三丽鸥在日本官网用中日双语道歉，如何看待此回应？你还会为三丽鸥买单吗？](http://www.daogukj.com/gflssozy/)
-- [英特尔暴跌超20%](http://www.daogukj.com/qvclnbfi/)
-- [强子刚来啊，等你二十年了【AI MV大赛】](http://www.movie.hkepx.cn/movie/5025610.htm)
-- [当父母就不要怕被孩子恨](http://www.movie.hkepx.cn/movie/4923761.htm)
-- [给阿嬷的情书为何口碑反转](http://www.play.hengshemaoyi.cn/xiju/3290638.htm)
-- [油价](http://www.play.hengshemaoyi.cn/kongbu/3540195.htm)
-- [女高管隆胸死亡 7个月消费108万元](http://www.daogukj.com/heymhest/)
-- [国足回应U17女足首进世界杯八强](http://www.daogukj.com/4552622)
-- [星河外卖员：无限未来](http://www.play.hengshemaoyi.cn/kongbu/2437413.htm)
-- [《原神》米提亚角色PV——「小小伎俩」](http://www.daogukj.com/1018065)
-- [《崩坏：星穹铁道》千星纪游PV：「有关星空的寓言集•其三」](http://www.movie.hkepx.cn/xiju/1684044.htm)
-- [BLG对阵TES](http://www.movie.hkepx.cn/xiju/3549037.htm)
+- [车牌99999的迈巴赫为小小徐婚礼撑场](http://www.movie.hkepx.cn/movie/2312956.htm)
+- [为什么作为国宴扛把子的淮扬菜，在民间的存在感不强？](http://www.play.hengshemaoyi.cn/kongbu/4823974.htm)
+- [小米17亿元入股欣旺达动力](http://www.daogukj.com/zoxyezyv/)
+- [嫁金钗封神台词](http://www.daogukj.com/2322655)
+- [如何看待币安遭黑客攻击，数十亿美元资产被盗，或成历史金额最大被盗事件？](http://www.movie.hkepx.cn/movie/3668600.htm)
+- [小小徐明日办婚礼 媒体提前探访现场](http://www.daogukj.com/6111077)
+- [渔民捕获300多斤巨型翻车鱼](http://www.movie.hkepx.cn/xiju/1768070.htm)
+- [厉娜说喜欢许飞](http://www.movie.hkepx.cn/xiju/4446306.htm)
+- [张雪回应称呼易军为“小易”](http://www.movie.hkepx.cn/movie/3688649.htm)
+- [如何评价媒体锐评近期一些自媒体瞄准中青年群体，曲解社保制度，质疑养老金公平性？](http://www.play.hengshemaoyi.cn/kongbu/4226971.htm)
+- [华为高管反问干实验为何不是一天](http://www.daogukj.com/8802551)
+- [如何看待蒋方舟因论文抄袭被撤销学位后，时隔 107 天再发文《37岁才明白的事》？](http://www.play.hengshemaoyi.cn/xiju/6879576.htm)
+- [构筑产业发展新优势](http://www.movie.hkepx.cn/movie/3363630.htm)
+- [如何看待中科大给学生提供每天一亿的token额度？](http://www.daogukj.com/gflssozy/)
+- [长沙民政职业技术学院通报](http://www.daogukj.com/qvclnbfi/)
+- [锐评S16瑞士轮TES战胜BLG：命悬一线....](http://www.movie.hkepx.cn/movie/5025610.htm)
+- [张雪曾多次要求母亲不要接受采访](http://www.movie.hkepx.cn/movie/4923761.htm)
+- [王楚钦说勒布伦得让孙颖莎3到4分](http://www.play.hengshemaoyi.cn/xiju/3290638.htm)
+- [孙颖莎选择不让分0比0迎战勒布伦](http://www.play.hengshemaoyi.cn/kongbu/3540195.htm)
+- [《此弟不宜久留》](http://www.daogukj.com/heymhest/)
+- [为什么说23点后睡觉的人亏大了](http://www.daogukj.com/4552622)
+- [已故演员高秀敏、张少华形象被印上祭祀用品，这种做法涉嫌违法吗？](http://www.play.hengshemaoyi.cn/kongbu/2437413.htm)
+- [S5赛季「圣龙宝藏」精灵生态抢先看！](http://www.daogukj.com/1018065)
+- [做个八鲜捞饭！海鲜一锅端，黏糊糊太上头了！配葱油海肠，嘎吱脆啊](http://www.movie.hkepx.cn/xiju/1684044.htm)
+- [令人愤怒的“卖1元火鸡面”视频，炸出了多少被毁掉的中国小孩](http://www.movie.hkepx.cn/xiju/3549037.htm)
 
 </details>
 
 ## 原始来源
 
-- [令人愤怒的“卖1元火鸡面”视频，炸出了多少被毁掉的中国小孩](https://b23.tv/BV1frn96iEKG)
+- [吴站长&梅姐《Trouble Maker》【AI MV大赛】](https://b23.tv/BV1dEsX6TEGx)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bcf8f7533355919c5c8d -->
+<!-- content-fingerprint: 3202764e7b000527a480 -->
