@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 中国第一个「三机场」城市来了，上海为啥要建第三机场？为何落在南通？将带来哪些影响？
+# 小时候看仙剑，邪剑仙乃超出六界之外，为什么景天还能杀死邪剑仙？
 
-> 来源：知乎热榜 · 排名：第 5 位 · 热度：215 万热度 · 分类：问答 · 更新：2026-10-30T04:59:59+08:00
+> 来源：知乎热榜 · 排名：第 5 位 · 热度：141 万热度 · 分类：问答 · 更新：2026-10-30T08:48:03+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“中国第一个「三机场」城市来了，上海为啥要建第三机场？为何落在南通？将带来哪些影响？”位列第 5 位，公开热度指标为 215 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“小时候看仙剑，邪剑仙乃超出六界之外，为什么景天还能杀死邪剑仙？”位列第 5 位，公开热度指标为 141 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：一个城市，三座机场。 这是上海正完成的叙事。 日前，上海市政府和中国民航局共同发布的《新时代新征程上海国际航空枢纽战略规划》（后文简称“规划”）透露，南通新机场将于2035年全面建成。 这是一座跨过了两个城市的新机场。 南通提供物理空间和本地配套，上海负责运营。 建成后，上海国际航空枢纽将由目前的浦东、虹桥两场，向浦东、虹桥、南通新机场的“两地三场”格局演变。 我国第一个“三机场”城市来了，第五个“双机场”城市也来了。 机场的城市边界正被枢纽网络重新划定。这一次，谁将受益？ [1]第一座“三机场”城市 上海是最直接的受益者。 2025年，上海浦东国际机场
+知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [《原神》米提亚角色PV——「小小伎俩」](po-fu-chen-zhou.md)
-- [西媒：皇马因中国赞助被迫表态道歉](bei-shui-yi-zhan.md)
-- [BLG对阵TES胜者直通八强](zhi-shang-tan-bing.md)
-- [儿媳携孙女告公公要独享近190平房产](wei-wei-jiu-zhao.md)
+- [《崩坏：星穹铁道》千星纪游PV：「有关星空的寓言集•其三」](po-fu-chen-zhou.md)
+- [高秀敏被印上祭品 何庆魁愤怒发声](bei-shui-yi-zhan.md)
+- [C罗时隔2年再上演帽子戏法](zhi-shang-tan-bing.md)
+- [工资改发数字人民币了有啥变化](wei-wei-jiu-zhao.md)
 
 ## 站内推荐
 
-- [前巴西国脚奥斯卡发声称「为一些言论感到难过，希望更多外籍球员尊重中国」，这种认知差异该如何扭转？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [中国麻将在美国爆火，套装卖到 400 美元仍排队抢购，这股风潮是怎么来的？麻将为什么有这样的出海潜力？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [《明日方舟》限定干员「塔露拉」前瞻PV](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [IG战胜LYON晋级S16八强](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [德国总统现身颐和园](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [每天通勤50多公里，是买电动车还是摩托车比较好?](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [红果的日活跃用户达 1.68 亿人，超「爱优腾芒」四家总和，这构成垄断吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [HONG KONG](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [谷歌重夺大模型第一 华尔街却不买账](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [女高管隆胸死亡 7个月消费108万元](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [周杰伦曾经的一年一张专辑的速度到底是个什么概念？](http://www.daogukj.com/epcjcrex/)
-- [给阿嬷的情书为何口碑反转](http://www.movie.hkepx.cn/xiju/7554306.htm)
-- [钓友钓58斤大青鱼被拖入3米水中](http://www.daogukj.com/7098171)
+- [中国第一个「三机场」城市来了，上海为啥要建第三机场？为何落在南通？将带来哪些影响？](http://www.daogukj.com/epcjcrex/)
+- [母亲因情绪失控将7岁女儿推下窗台](http://www.movie.hkepx.cn/xiju/7554306.htm)
+- [A股磨底阶段如何应对](http://www.daogukj.com/7098171)
 - [三丽鸥在日本官网用中日双语道歉，如何看待此回应？你还会为三丽鸥买单吗？](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
-- [【4K】全网首发《影之刃零》 全支线 全收集 全流程实况解说](http://www.daogukj.com/5595330)
-- [红果红了](http://www.movie.hkepx.cn/xiju/4881611.htm)
-- [美媒称巴基斯坦已对中国台湾地区航空公司关闭领空，是全球首个采取该措施的国家，哪些信息值得关注？](http://www.daogukj.com/2794428)
-- [成都游客夜拍以为是云结果是大山](http://www.movie.hkepx.cn/movie/0220033.htm)
-- [张本智和爆冷出局](http://www.daogukj.com/3787812)
-- [如何看待奕境回应浙江台州X9起火事故，称车辆在刹停状态下被重载渣土车追尾，动力电池保持完好？](http://www.movie.hkepx.cn/movie/2410306.htm)
-- [女裤裆部太长做成吊裆裤](http://www.movie.hkepx.cn/movie/4961738.htm)
-- [大一新生将「大体老师」头骨当道具摆拍发朋友圈，如何看待此事？会带来哪些影响？](http://www.movie.hkepx.cn/xiju/4077836.htm)
-- [乌干达15年吃掉38人“食人魔”落网](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
-- [德国总统现身颐和园](http://www.daogukj.com/rrqdxtcv/)
-- [村民为悬挂婚庆气球在水库大坝公路钻数十个孔，水务局责令拆除，这对大坝有多大危害？钻洞行为违法吗？](http://www.daogukj.com/5407672)
-- [HONG KONG](http://www.daogukj.com/9043091)
+- [吴站长&梅姐《Trouble Maker》【AI MV大赛】](http://www.daogukj.com/5595330)
+- [养猫后明白了辱追心理](http://www.movie.hkepx.cn/xiju/4881611.htm)
+- [以英语为母语的人，遇到不认识的单词的时候能像我们一样产生大概的感觉吗？](http://www.daogukj.com/2794428)
+- [《复联5》成X教授遗作](http://www.movie.hkepx.cn/movie/0220033.htm)
+- [《原神》米提亚角色PV——「小小伎俩」](http://www.daogukj.com/3787812)
+- [男子会所按摩睡着遭技师侵犯 已立案](http://www.movie.hkepx.cn/movie/2410306.htm)
+- [BLG对战TES](http://www.movie.hkepx.cn/movie/4961738.htm)
+- [72岁成龙展示一身紧实肌肉](http://www.movie.hkepx.cn/xiju/4077836.htm)
+- [理想i6“卸掉”宁德时代押上六成销量](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
+- [女高管隆胸死亡 7个月消费108万元](http://www.daogukj.com/rrqdxtcv/)
+- [五粮液 Q3 净利润 9.58 亿元，同比下降 48.25%，如何看待剔除「调节报表」后的业绩表现？](http://www.daogukj.com/5407672)
+- [【2026全球总决赛】10月29日 LYON vs IG](http://www.daogukj.com/9043091)
 - [重庆悬崖火锅自助 现实版饥饿站台？](http://www.daogukj.com/9116005)
 - [打破“茅台洗脚”污名谣言](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
-- [李宇春翻查何洁婚礼短信到凌晨两点](http://www.daogukj.com/eqgomafp/)
-- [中国给姆巴佩皇马亮红牌](http://www.daogukj.com/7605991)
-- [养老金要崩盘？用三本账穿越认知迷雾](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
-- [忙着跟生活对线的你，有多久没上号了？谨以此片，致和游戏一起长大的我们。【AI全民制作人】](http://www.movie.hkepx.cn/movie/4360714.htm)
+- [X教授演员去世](http://www.daogukj.com/eqgomafp/)
+- [感觉厉娜能活99岁](http://www.daogukj.com/7605991)
+- [存2500银行误输25000储户拒还](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
+- [王老菊教你影之刃01：破伤风刀法](http://www.movie.hkepx.cn/movie/4360714.htm)
 - [人民日报锐评年轻人养不起老人了](http://www.daogukj.com/4727961)
 - [五年不见！人生一串4重磅回归](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
-- [肖战小城良方该不该被逐帧审判](http://www.movie.hkepx.cn/xiju/3457747.htm)
-- [如何评价苹果于10月29日发布售价22999起的触摸屏Macbook Pro？](http://www.movie.hkepx.cn/movie/9116389.htm)
-- [邀全网喝喜酒小伙打工3年攒了近17万](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
-- [武林外传续集：第八十五回 白展堂偷懒遭算计 穿越人两世解死局【[AI全民制作人】](http://www.movie.hkepx.cn/movie/6275425.htm)
+- [红果红了](http://www.movie.hkepx.cn/xiju/3457747.htm)
+- [村民为悬挂婚庆气球在水库大坝公路钻数十个孔，水务局责令拆除，这对大坝有多大危害？钻洞行为违法吗？](http://www.movie.hkepx.cn/movie/9116389.htm)
+- [C罗生涯第67次“戴帽”](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
+- [如何看到法国足协主席称姆巴佩无意冒犯中国人民，希望这件事到此为止？](http://www.movie.hkepx.cn/movie/6275425.htm)
 - [“三张桌子”看作风](http://www.daogukj.com/6962158)
-- [辽宁舰编队遭日方滋扰挑衅直面应对](http://www.movie.hkepx.cn/movie/3536173.htm)
-- [吴站长&梅姐《Trouble Maker》【AI MV大赛】](http://www.daogukj.com/5602314)
+- [知名AI安全专家放弃养老储蓄引争议](http://www.movie.hkepx.cn/movie/3536173.htm)
+- [武林外传续集：第八十五回 白展堂偷懒遭算计 穿越人两世解死局【[AI全民制作人】](http://www.daogukj.com/5602314)
 - [跨越山海的开放活力](http://www.daogukj.com/rhzksqyv/)
-- [39岁中国籍老板在泰遭袭身亡](http://www.daogukj.com/ciddvmwp/)
-- [大体老师骨骼被写「死了骨头还要被我玩」等轻浮文字，反映出哪些教育缺失？遗体捐献后应有怎样的管理措施？](http://www.movie.hkepx.cn/xiju/5158718.htm)
-- [三年之期已到，恭迎世一上归位！【第15集】](http://www.movie.hkepx.cn/xiju/4192777.htm)
-- [78名学生共用针头调查要给社会交代](http://www.movie.hkepx.cn/xiju/6976677.htm)
-- [这些地方将有大暴雪、特大暴雪](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
-- [中共中央30日上午举行新闻发布会](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
-- [何洁直言05超女“前三我都不爽”](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
+- [邀网友赴婚礼的小伙：女友是我的动力](http://www.daogukj.com/ciddvmwp/)
+- [中国麻将在美国爆火，套装卖到 400 美元仍排队抢购，这股风潮是怎么来的？麻将为什么有这样的出海潜力？](http://www.movie.hkepx.cn/xiju/5158718.htm)
+- [影之刃初见一次打赢甄子丹...我怀疑他是假子丹](http://www.movie.hkepx.cn/xiju/4192777.htm)
+- [三丽鸥](http://www.movie.hkepx.cn/xiju/6976677.htm)
+- [10元快剪正暴打全国的“设计总监”](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
+- [中国队首次晋级U17女足世界杯8强](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
+- [油价](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
 - [数说中国海洋经济动力澎湃](http://www.daogukj.com/3262256)
-- [谷歌暴跌13% 创其历史最大单日跌幅](http://www.daogukj.com/2924239)
-- [岳父回应女婿“小小徐”娶女儿走红](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
-- [西媒：皇马因中国赞助被迫表态道歉](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
-- [前巴西国脚奥斯卡发声称「为一些言论感到难过，希望更多外籍球员尊重中国」，这种认知差异该如何扭转？](http://www.daogukj.com/cszxbbqq/)
-- [《明日方舟》EP - A Necessary Message](http://www.movie.hkepx.cn/movie/9183199.htm)
-- [曝西甲主席正考虑前往中国，媒体称姆巴佩事件致西甲每赛季潜在损失1亿欧，他怎样做才能化解这巨额财务损失？](http://www.daogukj.com/zmttmgkb/)
-- [《崩坏：星穹铁道》千星纪游PV：「有关星空的寓言集•其三」](http://www.movie.hkepx.cn/xiju/7610500.htm)
-- [已故演员高秀敏被印上祭祀用品](http://www.movie.hkepx.cn/xiju/6364739.htm)
-- [10元快剪正暴打全国的“设计总监”](http://www.daogukj.com/5178801)
-- [露思闹笑话，刘冲斗娜娜，众星躲娜扎……【近期红毯爆笑盘点】](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
+- [法院认可微信聊天记录吗](http://www.daogukj.com/2924239)
+- [城市大富翁（番外篇）](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
+- [高秀敏被印上祭品 何庆魁愤怒发声](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
+- [每天通勤50多公里，是买电动车还是摩托车比较好?](http://www.daogukj.com/cszxbbqq/)
+- [强子刚来啊，等你二十年了【AI MV大赛】](http://www.movie.hkepx.cn/movie/9183199.htm)
+- [如何看待红果短剧跃升为国内第四大app，如何看待这一现象，其动了谁的蛋糕?](http://www.daogukj.com/zmttmgkb/)
+- [贴脸特写，是每个野生动物摄影师的必备技能！](http://www.movie.hkepx.cn/xiju/7610500.htm)
+- [给阿嬷的情书为何口碑反转](http://www.movie.hkepx.cn/xiju/6364739.htm)
+- [“X教授”扮演者去世](http://www.daogukj.com/5178801)
+- [【巫师】马云的资本博弈](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
 
 </details>
 
 ## 原始来源
 
-- [中国第一个「三机场」城市来了，上海为啥要建第三机场？为何落在南通？将带来哪些影响？](https://www.zhihu.com/question/2098784117227616160)
+- [小时候看仙剑，邪剑仙乃超出六界之外，为什么景天还能杀死邪剑仙？](https://www.zhihu.com/question/403837806)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 687873b5c9de60f063f9 -->
+<!-- content-fingerprint: 76851a46b4e89a9ec6ee -->
