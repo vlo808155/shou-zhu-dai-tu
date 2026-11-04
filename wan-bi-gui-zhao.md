@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 【文明与地图】12个大模型扮演君主谁能带领人类走向星际文明？
+# 清华毕业生UCL留学疑遭电诈，账户陆续转出数十万元，邮箱最新留言「我人平安，被诈骗了」，如何看待此事？
 
-> 来源：哔哩哔哩热门 · 排名：第 6 位 · 热度：512619 · 分类：单机游戏 · 更新：2026-11-04T05:47:01+08:00
+> 来源：知乎热榜 · 排名：第 6 位 · 热度：224 万热度 · 分类：问答 · 更新：2026-11-04T09:43:09+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【文明与地图】12个大模型扮演君主谁能带领人类走向星际文明？”位列第 6 位，公开热度指标为 512619，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“清华毕业生UCL留学疑遭电诈，账户陆续转出数十万元，邮箱最新留言「我人平安，被诈骗了」，如何看待此事？”位列第 6 位，公开热度指标为 224 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：项目仓库地址：https://github.com/guaner-334/civ-atlas 视频内容是基于上述项目提供的引擎制作，项目本身支持Agent SDK，但项目提供api但没有提供原生的MCP，想还原视频中的效果你需要做以下两个改造： 1、将api重新封装成mcp或其他可以被Harness调用的形式，然后将内置Agent SDK替换成需要的Harness 2、修改推演的规则（这部分在1.4.0版本已经和引擎层剥离开），降低推演的强度，提高DM模型修改的权重 上述这些改造会在后续以插件的形式在“创
+来源公开摘要显示：近日，一则“清华本科、UCL硕士在读学生疑遭电诈失联”的消息引发社会关注。 11月3日，红星新闻记者联系上失联学生家属，其表示，失联学生施某某，2026年清华大学化学系本科毕业，于今年9月前往英国入读UCL（伦敦大学学院）研究生。 家属称，10月20日，施某某跟家长说被抽到移民调查，要家长转不少于7万英镑到其银行卡内，他要做存款证明提供给移民局。 10月31日，施某某与家属视频通话吃了生日蛋糕，一切正常。北京时间11月1日下午5点半，国内民警上门说施某某遭遇电信诈骗，并告诉家属，施某某自10月25日以来陆续转出40多万元。民警上门后，施某某与家属打了视频
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `单机游戏`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [加200元油开了2公里发现没加上](fu-jing-qing-zui.md)
-- [许飞经纪人 去找厉娜](mao-sui-zi-jian.md)
-- [上班族每月花3600元住酒店代租房](san-gu-mao-lu.md)
-- [17 岁男生被人冒充警察骗出家殴打，被告三人均当庭认罪认罚，将择期宣判，三人可能承担哪些法律责任？](cao-mu-jie-bing.md)
+- [经常被问我的场景都是怎么弄的？今天直接带大家参观！](fu-jing-qing-zui.md)
+- [“向公安局索赔14万亿美元”二审判了](mao-sui-zi-jian.md)
+- [红果短剧到底有多离谱](san-gu-mao-lu.md)
+- [特朗普称美国暂无立即打击伊朗计划](cao-mu-jie-bing.md)
 
 ## 站内推荐
 
-- [【纪录片】蓝色星球 第三季 01 热带海域](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [【全网最全】DeepSeek Harness超详细教程！50分钟吃透DSH，让SuperAgent给你干活！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [英伟达涨3% 总市值重回5万亿美元](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [王楚钦战胜林德 晋级16强](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [雪豹凌小寒病亡](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [武汉一小区爆燃致 2 死 1 伤，调查、处置工作正在进行中，目前情况如何？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [为什么垂直鼠标没有流行起来？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [珠峰南坡海拔4410米酒店雪中被烧毁](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [网友自称是厉娜接私活告密当事人](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [TES对战IG](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [华为新机线上线下差价一千](http://www.daogukj.com/3042716)
-- [多地小学老师转岗教中学](http://www.movie.hkepx.cn/movie/2061637.htm)
-- [加200元油开了2公里发现没加上](http://www.daogukj.com/whcykmxi/)
-- [婚礼当天离世新郎父母筹钱办丧事](http://www.daogukj.com/8289578)
-- [武汉一小区爆燃致 2 死 1 伤，调查、处置工作正在进行中，目前情况如何？](http://www.movie.hkepx.cn/movie/6917669.htm)
-- [清华父亲211妻子孩子没考上高中](http://www.daogukj.com/1323195)
-- [王楚然！你怎么跟我想的完全不一样啊！！！](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
-- [十人国安4-7泰港亚冠首败](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
-- [老胡上午加仓下午重跌](http://www.movie.hkepx.cn/xiju/7626363.htm)
-- [媒体：美国中期选举进入终局时刻](http://www.daogukj.com/zbetfxek/)
-- [孙颖莎](http://www.daogukj.com/6022603)
-- [高颜值保洁大叔：年轻时相亲被嫌丑](http://www.movie.hkepx.cn/xiju/5313504.htm)
-- [大模型的理论基础中，有哪些令人惊叹的数学工具或关键研究？](http://www.daogukj.com/xdexhduz/)
-- [WTT 法兰克福冠军赛男单，王楚钦 3-0 林德，晋级 16 强，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
+- [脂肪肝是身体发出的预警信号](http://www.daogukj.com/3042716)
+- [特朗普民调支持率曾一度跌至 31%，创下历史最低纪录，问题出在哪里？该如何「翻盘」？](http://www.movie.hkepx.cn/movie/2061637.htm)
+- [经常被问我的场景都是怎么弄的？今天直接带大家参观！](http://www.daogukj.com/whcykmxi/)
+- [思科计划 2 年内用 AI 重写 98%遗留代码，这一目标在工程上可行吗？](http://www.daogukj.com/8289578)
+- [中国公务团组人员被瑞典警方拘押，中使馆再发提醒，具体情况如何？海外游玩需注意哪些标识？](http://www.movie.hkepx.cn/movie/6917669.htm)
+- [婚礼当天离世新郎父母筹钱办丧事](http://www.daogukj.com/1323195)
+- [《到底多绝望，才会走出这样的步伐》《绝妙舞步》《闪身步》](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
+- [46岁高圆圆红毛衣生图](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
+- [杨幂曾偷偷观察唐嫣](http://www.movie.hkepx.cn/xiju/7626363.htm)
+- [苹果客服回应天气离谱](http://www.daogukj.com/zbetfxek/)
+- [美国举行中期选举投票](http://www.daogukj.com/6022603)
+- [红果历史短剧有点出乎意料](http://www.movie.hkepx.cn/xiju/5313504.htm)
+- [入职鹰角成为卫戍协议策划的一天](http://www.daogukj.com/xdexhduz/)
+- [开破车挑战纽北！证明中国人比德国人更会玩车](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
 - [2026世界市长对话宁波](http://www.movie.hkepx.cn/movie/6492359.htm)
-- [10月新能源汽车销量榜：特斯拉跌至第8](http://www.daogukj.com/6000133)
-- [王玉雯工作室被气成啥样了](http://www.daogukj.com/ajsfeojq/)
+- [上汽奥迪“买一赠一”宣传已被立案](http://www.daogukj.com/6000133)
+- [车企“去宁化”真能实现吗](http://www.daogukj.com/ajsfeojq/)
 - [第1期：南山雪地徒步，邂逅新疆冬日浪漫【此生要去的100个地方 第二季】](http://www.movie.hkepx.cn/xiju/4278075.htm)
-- [经常被问我的场景都是怎么弄的？今天直接带大家参观！](http://www.movie.hkepx.cn/movie/5534562.htm)
-- [高圆圆在上班和上进间选择上山](http://www.daogukj.com/6871213)
-- [英伟达涨3% 总市值重回5万亿美元](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
-- [牛肉被猕猴桃腌制下锅碎成“肉渣”](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
+- [月薪2万但毫无意义的工作值得坚持吗？](http://www.movie.hkepx.cn/movie/5534562.htm)
+- [如何看待江苏家长反映孩子每天在校时间15小时，晚自习超22点，江苏省教育厅厅长回应「深感内疚」？](http://www.daogukj.com/6871213)
+- [珠峰南坡海拔4410米酒店雪中被烧毁](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
+- [为什么理工科行业没有类似《令人心动的offer》、《闪闪发光的你》这种职场综艺?](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
 - [6G来了 离我们还有多远](http://www.movie.hkepx.cn/xiju/4051583.htm)
-- [加湿器这么用 可能“喷射”细菌霉菌](http://www.daogukj.com/4848168)
-- [《原神》角色预告-「米提亚：井井有条」](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
-- [倪萍 医美](http://www.movie.hkepx.cn/movie/2894342.htm)
-- [保时捷女销冠再夺第一，所属公司却半年亏 2.7 亿，个人业绩拉满、公司疯狂失血，传统豪华车市场怎么了？](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
-- [女子每天玩手机10小时患手机痴呆症](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
-- [如何看待张雪机车在重庆大学宣讲开的薪资，92毕业研发人员年薪12-15万元？在当地和业内算什么水平？](http://www.movie.hkepx.cn/xiju/8848024.htm)
-- [开破车挑战纽北！证明中国人比德国人更会玩车](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
-- [俄女高官访华就日本军事化加速发声](http://www.movie.hkepx.cn/xiju/3438884.htm)
-- [无限流+大逃杀+规则怪谈！网飞又一部重磅神剧《末路兼职》60分钟完整解说](http://www.daogukj.com/ieqapfew/)
-- [德米格尔死亡事件肇事门将被立案](http://www.daogukj.com/8044050)
-- [入职鹰角成为卫戍协议策划的一天](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
-- [什么画居然能上央视视频？](http://www.movie.hkepx.cn/xiju/0303756.htm)
-- [BLG vs HLE小曲《狼的诱惑》](http://www.daogukj.com/8598756)
-- [学者：AI会导致出现越来越多“弃民”](http://www.movie.hkepx.cn/movie/4526722.htm)
-- [古代的苦水水质口感相当于现在的自来水吗？](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
-- [复古鞋翻红 匡威却掉队了](http://www.daogukj.com/0218050)
-- [亚足联官宣亚洲杯延期](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
-- [丈夫出轨生子 妻子起诉返还5483元](http://www.daogukj.com/3371192)
-- [王毅同菲律宾外长拉扎罗通电话](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
-- [【全网最全】DeepSeek Harness超详细教程！50分钟吃透DSH，让SuperAgent给你干活！](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
-- [美股开盘：苹果股价大跌近4%](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
-- [九寨沟打人事件调解收尾并非和稀泥](http://www.movie.hkepx.cn/movie/1298994.htm)
-- [黄金从暴涨到暴跌有哪些启示](http://www.movie.hkepx.cn/movie/6188638.htm)
-- [南京多所高中推迟上学时间](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
-- [谁是有史以来最能整活的超级天才！](http://www.daogukj.com/4541580)
-- [许飞经纪人 去找厉娜](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
-- [刘延东同志遗体在京火化](http://www.daogukj.com/4450013)
+- [韵律源点Arcaea：『Arcaea ✕ 明日方舟』联动歌曲预览](http://www.daogukj.com/4848168)
+- [网络热传生物鉴定 第65期](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
+- [女子在大厅等人 监控被直播调侃身材](http://www.movie.hkepx.cn/movie/2894342.htm)
+- [2026 年美国中期选举目前选情如何？共和党与民主党谁更占优势？](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
+- [女子凌晨被陌生人钻被窝贴脸窥探](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
+- [十五年前，我做了 《去月球》](http://www.movie.hkepx.cn/xiju/8848024.htm)
+- [老胡上午加仓下午重跌](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
+- [如何看待2027年国考中多省七八成名额来自税务局？](http://www.movie.hkepx.cn/xiju/3438884.htm)
+- [陈伟霆在新疆被雪困了11小时](http://www.daogukj.com/ieqapfew/)
+- [当你只能使用吃过的干员打方舟……](http://www.daogukj.com/8044050)
+- [延安大学副教授白保国去世，疑因未完成考核指标，如何理解他绝笔信中所述的问题？](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
+- [死磕电缆40年 这个县城干成了](http://www.movie.hkepx.cn/xiju/0303756.htm)
+- [两个集合间构成了诡异的映射](http://www.daogukj.com/8598756)
+- [Wei杰斯好强](http://www.movie.hkepx.cn/movie/4526722.htm)
+- [菲律宾经济还能自救吗](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
+- [杂交水稻专家邓国富被开除党籍](http://www.daogukj.com/0218050)
+- [李钟硕新剧尺度](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
+- [为何智谱有底气让套餐GLM-5.3 flash价格比肩GPT-6.1 Sol？](http://www.daogukj.com/3371192)
+- [《原神》角色预告-「米提亚：井井有条」](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
+- [为什么垂直鼠标没有流行起来？](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
+- [亚洲首富又换人](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
+- [王玉雯方回应：接受任何署名方式](http://www.movie.hkepx.cn/movie/1298994.htm)
+- [何炅 我画地为牢啊撒贝宁](http://www.movie.hkepx.cn/movie/6188638.htm)
+- [iPhone系统天气 下周五-32℃](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
+- [如何看待宇树机器人因过热退出登泰山大赛，被担架抬下山？人形机器人的发展目前还存在哪些技术瓶颈？](http://www.daogukj.com/4541580)
+- [“向公安局索赔14万亿美元”二审判了](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
+- [失联清华毕业留学生已安全回家](http://www.daogukj.com/4450013)
 
 </details>
 
 ## 原始来源
 
-- [【文明与地图】12个大模型扮演君主谁能带领人类走向星际文明？](https://b23.tv/BV1onxb6rEeE)
+- [清华毕业生UCL留学疑遭电诈，账户陆续转出数十万元，邮箱最新留言「我人平安，被诈骗了」，如何看待此事？](https://www.zhihu.com/question/2100715122348004198)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ea4f5d99ca5262d6fdb8 -->
+<!-- content-fingerprint: 604aa42d684fc6f48274 -->
