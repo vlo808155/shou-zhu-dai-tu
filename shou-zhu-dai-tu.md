@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 后会友期81.2%了
+# 王子璇手机是被收走的
 
-> 来源：微博热搜 · 排名：第 5 位 · 热度：192035 · 分类：综艺 · 更新：2026-11-06T01:38:31+08:00
+> 来源：微博热搜 · 排名：第 5 位 · 热度：253430 · 分类：综艺 · 更新：2026-11-06T06:52:04+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“后会友期81.2%了”位列第 5 位，公开热度指标为 192035，榜单分类为“综艺”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“王子璇手机是被收走的”位列第 5 位，公开热度指标为 253430，榜单分类为“综艺”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -18,18 +18,18 @@
 
 ## 相关热点
 
-- [C罗告别信全文](wang-mei-zhi-ke.md)
-- [如何看待北京交通大学官方表态，雄安校区已被明确为学校的唯一主校区？](wen-ji-qi-wu.md)
-- [我梭哈的内存就被用来干这种事吗？](wo-xin-chang-dan.md)
-- [只因“懒得下楼” 一对父女双双被抓](po-fu-chen-zhou.md)
+- [北京中小学将全部取消外送餐](wang-mei-zhi-ke.md)
+- [反中乱港分子黄之锋再判 10 年，哪些信息值得关注？带来哪些警示？](wen-ji-qi-wu.md)
+- [不是在拍热点就是在拍热点的路上！终于一次性拍完所有热点了，厉娜！](wo-xin-chang-dan.md)
+- [普京签令：俄方临时接管日本4座工厂](po-fu-chen-zhou.md)
 
 ## 站内推荐
 
-- [我国秋粮收获已过9成](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [王子璇走心发言疑似预制](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [你对禁止电动自行车加装挡风被怎么看？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [淘宝闪购上线「家宴」高端外卖项目，引进米其林品牌，高端外卖市场大吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [7点50，大肥鱼催你上早八](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [6G有啥不一样](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [独生子女不一定能继承父母全部遗产](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [OpenAI 推出 Images2.6，生成速度提升 50%且支持 GIF，体验如何？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [特朗普宣布将停止每年约 40 亿美元对以色列援助，背后原因是什么？将对美以关系和中东局势产生什么影响？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [亏了大钱之后，你最大的教训是什么？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [参保人数减少8300万？医保局回应](http://www.daogukj.com/srmtipfy/)
-- [美股开盘：高通绩后跌超12%](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
-- [【原神一条龙全收集】至冬7.2(成就数232/冰神瞳90/摩拉69/影生翼滴15)新基捷城+如翼之峰/宝箱/摩拉堆/玉帛/冰之印/原神7.2一条龙](http://www.daogukj.com/5764219)
-- [阻挠日本软银买机器人业务？中方回应](http://www.daogukj.com/5051205)
-- [警惕“到手刀”套路](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
-- [瞎说的什么玩意？](http://www.movie.hkepx.cn/movie/3745200.htm)
-- [「AI教父」辛顿警告，今明两年就有可能发生人工智能领域的切尔诺贝利事故，可能是什么情况？存在哪些隐患？](http://www.daogukj.com/eptgayul/)
-- [美股开盘纳指大跌728点](http://www.daogukj.com/zzzmzdnw/)
-- [不是在拍热点就是在拍热点的路上！终于一次性拍完所有热点了，厉娜！](http://www.daogukj.com/2895651)
-- [C罗宣布从葡萄牙国家队退役](http://www.daogukj.com/bmrafxkl/)
-- [商鞅为什么要用徙木立信来建立百姓对官府的信任，这对第一次变法顺利推行有什么作用？](http://www.movie.hkepx.cn/movie/6678209.htm)
-- [独生子女不一定能继承父母全部遗产](http://www.daogukj.com/2230415)
-- [德国籍中医专程来墓碑抄药方带回](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
-- [AI短剧为何几乎没有清宫戏](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
-- [真的需要摸吗？MacBook Pro PROLED XDR上手](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
-- [C罗退出葡萄牙国家队将带来哪些影响](http://www.movie.hkepx.cn/xiju/6217864.htm)
-- [【返场】乐高车过障碍物](http://www.movie.hkepx.cn/movie/4778790.htm)
-- [妹妹说要和我拍一张合照！](http://www.movie.hkepx.cn/movie/7470449.htm)
-- [《崩坏：因缘精灵》幸福PV：缘汽一下](http://www.movie.hkepx.cn/movie/6111499.htm)
-- [如何看待北京交通大学官方表态，雄安校区已被明确为学校的唯一主校区？](http://www.movie.hkepx.cn/xiju/2348853.htm)
-- [懒人不开火速成大餐，虾滑肥牛乌冬面！](http://www.daogukj.com/fygnbifa/)
-- [北京中小学将全部取消外送餐](http://www.daogukj.com/9070712)
+- [暴涨→大跌→倒闭 从行业周期看内存何时降价](http://www.play.hengshemaoyi.cn/kongbu/8420586.htm)
+- [《王从天降》](http://www.daogukj.com/5764219)
+- [马兴瑞被提起公诉](http://www.daogukj.com/5051205)
+- [特斯拉暴跌超10% SpaceX跌超7%](http://www.play.hengshemaoyi.cn/xiju/9941143.htm)
+- [美股存储板块大跌 闪迪跌超17%](http://www.movie.hkepx.cn/movie/3745200.htm)
+- [比亚迪第二代海豹07上市](http://www.daogukj.com/eptgayul/)
+- [北京旅游笑话经久不衰](http://www.daogukj.com/zzzmzdnw/)
+- [瞎说的什么玩意？](http://www.daogukj.com/2895651)
+- [中期选举两院全丢，万税爷连胜被终结](http://www.daogukj.com/bmrafxkl/)
+- [如何看待 TheShy 谈及回归原因「曾许诺 iG 老板有困难联系我，队伍掉入涅槃后我必须信守承诺」？](http://www.movie.hkepx.cn/movie/6678209.htm)
+- [朋友为八个被扔蛋黄讨公道](http://www.daogukj.com/2230415)
+- [52岁吴彦祖在公园和大伯大妈一起健身](http://www.play.hengshemaoyi.cn/kongbu/7057077.htm)
+- [袁成杰被列为失信被执行人](http://www.play.hengshemaoyi.cn/xiju/0207081.htm)
+- [Roblox 单色](http://www.play.hengshemaoyi.cn/kongbu/4747856.htm)
+- [金价站上4100美元 跌势反转了吗](http://www.movie.hkepx.cn/xiju/6217864.htm)
+- [广东拟规定电话手表、手机等智能终端不得入校，你支持这样的规定吗？实际落地可能会遇到哪些问题？](http://www.movie.hkepx.cn/movie/4778790.htm)
+- [参众两院全丢，民主党大翻盘，特朗普的中期大选自刎归天了](http://www.movie.hkepx.cn/movie/7470449.htm)
+- [如何看待北京交通大学官方表态，雄安校区已被明确为学校的唯一主校区？](http://www.movie.hkepx.cn/movie/6111499.htm)
+- [反中乱港分子黄之锋再判 10 年，哪些信息值得关注？带来哪些警示？](http://www.movie.hkepx.cn/xiju/2348853.htm)
+- [【2026全球总决赛】11月5日 GEN vs LYON](http://www.daogukj.com/fygnbifa/)
+- [官方回应居民医保参保人数下降](http://www.daogukj.com/9070712)
 - [德国籍中医想将墓碑药方抄录带回](http://www.daogukj.com/hoflukum/)
-- [淘宝闪购上线「家宴」高端外卖项目，引进米其林品牌，高端外卖市场大吗？](http://www.daogukj.com/3336484)
-- [美股存储板块大跌 闪迪跌超17%](http://www.movie.hkepx.cn/movie/3675931.htm)
-- [比利时等欧洲八国超市遭黑客攻击，冷柜升至 50℃，是谁发动的攻击？会成为新型网络战手段吗？该如何防范？](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
-- [7点50，大肥鱼催你上早八](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
+- [特朗普宣布将停止每年约 40 亿美元对以色列援助，背后原因是什么？将对美以关系和中东局势产生什么影响？](http://www.daogukj.com/3336484)
+- [全球首个仿生人形机器人新闻主播发布](http://www.movie.hkepx.cn/movie/3675931.htm)
+- [小伙200多万买14套房年收租21万，成功实现30岁退休，这是怎么做到的？会涉及交税问题吗？](http://www.play.hengshemaoyi.cn/kongbu/9401013.htm)
+- [亏了大钱之后，你最大的教训是什么？](http://www.play.hengshemaoyi.cn/xiju/2324917.htm)
 - [【纪录片】人生一串 第四季 01 同道中人](http://www.daogukj.com/xljzrgjc/)
-- [许飞全平台实名上网](http://www.daogukj.com/sfjdsknb/)
-- [曝白小纯天早期天霸工资](http://www.movie.hkepx.cn/xiju/0712256.htm)
-- [一句 “我画地为牢啊厉娜”！揭开埋藏十五年的超女意难平《后会友期》许飞厉娜线解说版](http://www.daogukj.com/blhofduy/)
-- [杭州骨灰撒钱塘江已有八百余户报名，符合条件的还能领两千元补贴，如何看待这一服务？会影响生态环境吗？](http://www.daogukj.com/qdmxuvra/)
-- [你对禁止电动自行车加装挡风被怎么看？](http://www.daogukj.com/3062862)
-- [《崩坏：星穹铁道》阿哈的抓马小曲](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
-- [2027 年放假安排出炉，9 天春节假期回归，成近年调休天数最少年份，你有哪些期待？假期准备做什么？](http://www.daogukj.com/4819328)
+- [C罗宣布从葡萄牙国家队退役](http://www.daogukj.com/sfjdsknb/)
+- [美股](http://www.movie.hkepx.cn/xiju/0712256.htm)
+- [Wei：我不是野核~](http://www.daogukj.com/blhofduy/)
+- [小学招跟岗教师 无薪资不包食宿](http://www.daogukj.com/qdmxuvra/)
+- [OpenAI 推出 Images2.6，生成速度提升 50%且支持 GIF，体验如何？](http://www.daogukj.com/3062862)
+- [7点50，大肥鱼催你上早八](http://www.play.hengshemaoyi.cn/xiju/1657238.htm)
+- [张雪自掏 30 万给公司首席发动机工程师买房，要求只能写员工自己名字，如何看待这一举措？](http://www.daogukj.com/4819328)
 - [青少年短视频成瘾9大真相](http://www.play.hengshemaoyi.cn/kongbu/6886534.htm)
-- [福建舰入列一周年，回顾一年的成长航迹，其战斗力到了哪一步？哪些节点让你印象深刻？](http://www.movie.hkepx.cn/xiju/6449274.htm)
-- [孟子义说张萌美颜参数有点大](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
+- [C罗告别信全文](http://www.movie.hkepx.cn/xiju/6449274.htm)
+- [电竞男这两位闹翻了](http://www.play.hengshemaoyi.cn/kongbu/2436843.htm)
 - [阔直板手机为什么火了](http://www.movie.hkepx.cn/xiju/8624591.htm)
-- [普京签令：俄方临时接管日本4座工厂](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
-- [冯远征认为 AI 短剧里的角色长相完美，却让人看完就忘，「因为角色没有呼吸」，你同意此观点吗？](http://www.daogukj.com/2518516)
-- [C罗官宣从葡萄牙国家队正式退役，如何评价此事，他为何会选择在此时退役？](http://www.movie.hkepx.cn/movie/2625646.htm)
-- [我梭哈的内存就被用来干这种事吗？](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
-- [黄之锋再获刑10年](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
-- [当你在过山车上紧急视频会议](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
-- [无薪招聘](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
-- [人社局回应小学无薪酬招跟岗教师](http://www.movie.hkepx.cn/xiju/9162988.htm)
-- [做一副像普通眼镜的智能眼镜，到底有多难？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
+- [曝白小纯天早期天霸工资](http://www.play.hengshemaoyi.cn/kongbu/4872427.htm)
+- [央行 11 月 15 日起上调外汇存款准备金率至 6%，释放怎样的调控信号？会影响人民币对美元走势吗？](http://www.daogukj.com/2518516)
+- [普京签令临时接管日本烟草在俄工厂](http://www.movie.hkepx.cn/movie/2625646.htm)
+- [不是在拍热点就是在拍热点的路上！终于一次性拍完所有热点了，厉娜！](http://www.play.hengshemaoyi.cn/kongbu/9044411.htm)
+- [女子称应聘医院岗位被要求上交丝袜](http://www.play.hengshemaoyi.cn/xiju/2745656.htm)
+- [比利时等欧洲八国超市遭黑客攻击，冷柜升至 50℃，是谁发动的攻击？会成为新型网络战手段吗？该如何防范？](http://www.play.hengshemaoyi.cn/xiju/7644509.htm)
+- [王子璇走心发言疑似预制](http://www.play.hengshemaoyi.cn/xiju/3494466.htm)
+- [沈阳保洁大叔：走红不耽误上班](http://www.movie.hkepx.cn/xiju/9162988.htm)
+- [C罗官宣从葡萄牙国家队正式退役，如何评价此事，他为何会选择在此时退役？](http://www.play.hengshemaoyi.cn/xiju/7333509.htm)
 - [多地禁用电动车挡风被系误读](http://www.daogukj.com/xfhybzga/)
-- [端午中秋各1天假](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
+- [黄之锋再获刑10年](http://www.play.hengshemaoyi.cn/xiju/1317427.htm)
 
 </details>
 
 ## 原始来源
 
-- [后会友期81.2%了](https://s.weibo.com/weibo?q=%E5%90%8E%E4%BC%9A%E5%8F%8B%E6%9C%9F81.2%25%E4%BA%86)
+- [王子璇手机是被收走的](https://s.weibo.com/weibo?q=%E7%8E%8B%E5%AD%90%E7%92%87%E6%89%8B%E6%9C%BA%E6%98%AF%E8%A2%AB%E6%94%B6%E8%B5%B0%E7%9A%84)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ac208ac4ec05969c649a -->
+<!-- content-fingerprint: 861a12dec66b2b4bd4a6 -->
