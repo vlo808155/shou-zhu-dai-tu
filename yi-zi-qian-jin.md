@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 杭州骨灰撒钱塘江已有八百余户报名，符合条件的还能领两千元补贴，如何看待这一服务？会影响生态环境吗？
+# 创业板指低开5% 沪指跌超2%
 
-> 来源：知乎热榜 · 排名：第 8 位 · 热度：107 万热度 · 分类：问答 · 更新：2026-11-06T06:52:04+08:00
+> 来源：今日头条热榜 · 排名：第 8 位 · 热度：5987375 · 更新：2026-11-06T11:17:28+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“杭州骨灰撒钱塘江已有八百余户报名，符合条件的还能领两千元补贴，如何看待这一服务？会影响生态环境吗？”位列第 8 位，公开热度指标为 107 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“创业板指低开5% 沪指跌超2%”位列第 8 位，公开热度指标为 5987375。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：报名家庭已达800余户！杭州生态江葬，符合条件能领到2000元补助，骨灰撒江使用可降解材料盒子，可以完全溶解于水_腾讯新闻“活着没能到处游，走了就能到处游”杭州大伯选择生态江葬送别兄长，杭州骨灰撒江由“一年一办”走向常态化，今年已有800余户家庭报名
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [Wei：我不是野核~](yi-fan-feng-shun.md)
-- [只因“懒得下楼” 一对父女双双被抓](yi-ming-jing-ren.md)
-- [袁成杰被列为失信被执行人](yi-jian-shuang-diao.md)
-- [王子璇手机是被收走的](shou-zhu-dai-tu.md)
+- [太原一小学招「跟岗教师」无薪资食宿、备用上岗，要求本科有教资，人社局回应肯定不对，为什么会有这种形式？](yi-fan-feng-shun.md)
+- [女人的身体为什么这么美妙 | Miniskirt-AOA｜短裙的权威我后知后觉](yi-ming-jing-ren.md)
+- [袁成杰回应成老赖：会努力工作还债](yi-jian-shuang-diao.md)
+- [BLG或与T1争决赛门票](shou-zhu-dai-tu.md)
 
 ## 站内推荐
 
-- [美股](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
-- [AI短剧为何几乎没有清宫戏](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
-- [瞎说的什么玩意？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
-- [【2026全球总决赛】11月5日 GEN vs LYON](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
-- [【张靓颖】本up抵达心湖（见过沐小葵版）](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
+- [2027放假 上二休一上二休二](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [独生子女不一定能继承父母全部遗产](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [南京“零元面馆”爆火](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [独居养猫后为什么感觉失去了自由？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [大学生身挂 11 部手机无偿代跑校园跑，被查后独自扛下处分不供出同学，这算真义气还是真违规？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [比亚迪第二代海豹07上市](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
-- [【张靓颖】本up抵达心湖（见过沐小葵版）](http://www.daogukj.com/cmyxzqtz/)
-- [【2026全球总决赛】11月5日 GEN vs LYON](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
-- [女子厕所当场抓住同事偷拍浑身发抖](http://www.movie.hkepx.cn/movie/2501356.htm)
-- [端午中秋各1天假](http://www.daogukj.com/ojwknvji/)
-- [特朗普危！中期选举两院全丢，弹劾、调查、政府关门哪项等着他？](http://www.daogukj.com/2178083)
-- [北京旅游笑话经久不衰](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
-- [英伟达总市值跌至4.5万亿美元](http://www.play.hengshemaoyi.cn/xiju/1338838.htm)
-- [52岁吴彦祖在公园和大伯大妈一起健身](http://www.daogukj.com/1763072)
-- [无薪招聘](http://www.daogukj.com/8155971)
-- [王子璇手机是被收走的](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
-- [不是在拍热点就是在拍热点的路上！终于一次性拍完所有热点了，厉娜！](http://www.daogukj.com/6164330)
-- [老婆怀胎5个月陪丈夫捡土豆](http://www.movie.hkepx.cn/movie/1564233.htm)
-- [S16淘汰赛：BLG对决DK](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
-- [物理意义上烫烫的一集](http://www.daogukj.com/agvcmxmf/)
-- [青少年短视频成瘾9大真相](http://www.daogukj.com/qklffuer/)
-- [C罗宣布从葡萄牙国家队退役](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
-- [Wei：我不是野核~](http://www.daogukj.com/0737886)
-- [比利时等欧洲八国超市遭黑客攻击，冷柜升至 50℃，是谁发动的攻击？会成为新型网络战手段吗？该如何防范？](http://www.movie.hkepx.cn/xiju/7431665.htm)
-- [世界互联网大会乌镇峰会今天闭幕](http://www.daogukj.com/igpatdfc/)
-- [人社局回应小学无薪酬招跟岗教师](http://www.daogukj.com/4475902)
-- [美股存储板块大跌 闪迪跌超17%](http://www.daogukj.com/6579509)
-- [只因“懒得下楼” 一对父女双双被抓](http://www.movie.hkepx.cn/xiju/5461514.htm)
-- [电竞男这两位闹翻了](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
-- [AI短剧为何几乎没有清宫戏](http://www.daogukj.com/2214905)
-- [中期选举两院全丢，万税爷连胜被终结](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
-- [冯远征认为 AI 短剧里的角色长相完美，却让人看完就忘，「因为角色没有呼吸」，你同意此观点吗？](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
-- [小学招跟岗教师 无薪资不包食宿](http://www.daogukj.com/4430972)
-- [央行 11 月 15 日起上调外汇存款准备金率至 6%，释放怎样的调控信号？会影响人民币对美元走势吗？](http://www.movie.hkepx.cn/xiju/8019376.htm)
-- [2027年假期安排出炉 春节连休9天](http://www.movie.hkepx.cn/movie/0123120.htm)
-- [温瑞博3比0王楚钦](http://www.movie.hkepx.cn/xiju/8033346.htm)
-- [春节连休9天](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
-- [C罗告别信全文](http://www.daogukj.com/8763764)
-- [大众中国发布声明](http://www.daogukj.com/jqstllvn/)
-- [《崩坏：因缘精灵》幸福PV：缘汽一下](http://www.daogukj.com/1298524)
-- [两座smart正式上市](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
-- [一句 “我画地为牢啊厉娜”！揭开埋藏十五年的超女意难平《后会友期》许飞厉娜线解说版](http://www.daogukj.com/3314823)
+- [4岁女童患罕见病皮肤一碰就破](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
+- [大学生身挂 11 部手机无偿代跑校园跑，被查后独自扛下处分不供出同学，这算真义气还是真违规？](http://www.daogukj.com/cmyxzqtz/)
+- [独居养猫后为什么感觉失去了自由？](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
+- [中国科学家造出人造最冷物质](http://www.movie.hkepx.cn/movie/2501356.htm)
+- [200万买14套房年收租21万 当事人发声](http://www.daogukj.com/ojwknvji/)
+- [不放秋假就是违规？存在误区](http://www.daogukj.com/2178083)
+- [【S16 TES战败单曲】这不是天，这就是‘二’！](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
+- [美国多州州长拟暂停审批 AI 数据中心，将对算力基建产生哪些连锁反应？](http://www.play.hengshemaoyi.cn/xiju/1338838.htm)
+- [张凌赫从查无此人到顶流只用了半年](http://www.daogukj.com/1763072)
+- [一句 “我画地为牢啊厉娜”！揭开埋藏十五年的超女意难平《后会友期》许飞厉娜线解说版](http://www.daogukj.com/8155971)
+- [BLG或与T1争决赛门票](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
+- [物理意义上烫烫的一集](http://www.daogukj.com/6164330)
+- [“厉娜体”刷屏全网 跟风模仿侵权吗](http://www.movie.hkepx.cn/movie/1564233.htm)
+- [你恢复一下，我还是喜欢你刚刚桀骜不驯的样子！](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
+- [《崩坏：因缘精灵》幸福PV：缘汽一下](http://www.daogukj.com/agvcmxmf/)
+- [为什么你越安慰 孩子越有压力](http://www.daogukj.com/qklffuer/)
+- [Roblox 单色](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
+- [太原一小学招「跟岗教师」无薪资食宿、备用上岗，要求本科有教资，人社局回应肯定不对，为什么会有这种形式？](http://www.daogukj.com/0737886)
+- [韩国股市跌至熔断](http://www.movie.hkepx.cn/xiju/7431665.htm)
+- [在第九届进博会和未来相遇](http://www.daogukj.com/igpatdfc/)
+- [陕西商南重大刑案：500余人进山搜捕](http://www.daogukj.com/4475902)
+- [【张靓颖】本up抵达心湖（见过沐小葵版）](http://www.daogukj.com/6579509)
+- [女人的身体为什么这么美妙 | Miniskirt-AOA｜短裙的权威我后知后觉](http://www.movie.hkepx.cn/xiju/5461514.htm)
+- [东风-61已列装火箭军](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
+- [独生子女不一定能继承父母全部遗产](http://www.daogukj.com/2214905)
+- [美股史诗级暴跌，单日蒸发约 2.8 万亿美元，AI 产业链集体崩盘，是单纯监管预期利空还是大行情拐点？](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
+- [美第一夫人写信给普京与泽连斯基](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
+- [剧本杀散场后DM向女玩家索要戒指](http://www.daogukj.com/4430972)
+- [北京中小学将全部取消外送餐](http://www.movie.hkepx.cn/xiju/8019376.htm)
+- [54岁大哥靠AI短剧还清负债](http://www.movie.hkepx.cn/movie/0123120.htm)
+- [DK输BLG后台镜头曝光](http://www.movie.hkepx.cn/xiju/8033346.htm)
+- [外卖大战三家少了上千亿](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
+- [教师招聘考试一视同仁](http://www.daogukj.com/8763764)
+- [7点50，大肥鱼催你上早八](http://www.daogukj.com/jqstllvn/)
+- [【2026全球总决赛】11月6日 DK vs BLG](http://www.daogukj.com/1298524)
+- [梁圣：克劳德，你的纯度太低了](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
+- [中国有没有那种中国人不怎么去，但是外国人却很喜欢去的古迹?](http://www.daogukj.com/3314823)
 - [【纪录片】人生一串 第四季 01 同道中人](http://www.play.hengshemaoyi.cn/kongbu/1318289.htm)
-- [曝白小纯天早期天霸工资](http://www.movie.hkepx.cn/xiju/6376636.htm)
-- [阔直板手机为什么火了](http://www.play.hengshemaoyi.cn/kongbu/4440369.htm)
-- [孟子义说张萌美颜参数有点大](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
-- [真的需要摸吗？MacBook Pro PROLED XDR上手](http://www.daogukj.com/pcyxvqcb/)
-- [C罗官宣从葡萄牙国家队正式退役，如何评价此事，他为何会选择在此时退役？](http://www.daogukj.com/7344740)
-- [不看电视不接电话的中国人](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
-- [沈阳保洁大叔：走红不耽误上班](http://www.daogukj.com/okofdfns/)
-- [马斯克豪掷4.45亿美元押注共和党却失利，特斯拉、SpaceX应声下挫，接下来会面临怎样的监管压力？](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
-- [金价站上4100美元 跌势反转了吗](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
-- [《崩坏：星穹铁道》阿哈的抓马小曲](http://www.movie.hkepx.cn/movie/3905354.htm)
-- [7点50，大肥鱼催你上早八](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
-- [特朗普宣布将停止每年约 40 亿美元对以色列援助，背后原因是什么？将对美以关系和中东局势产生什么影响？](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
+- [温瑞博回应零封王楚钦：没想到能赢](http://www.movie.hkepx.cn/xiju/6376636.htm)
+- [三岁半男孩给电视里的红军递饼干](http://www.play.hengshemaoyi.cn/kongbu/4440369.htm)
+- [2027年9天春节长假引爆出行预期](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
+- [怎么看待张萌称马天宇越过她找她老公道歉，成了十年心结？找异性朋友的对象沟通，为什么会让对方感到不尊重？](http://www.daogukj.com/pcyxvqcb/)
+- [研究称穿袜子睡觉可缩短入睡时间 7.5 分钟，是真的吗？背后的原理是啥？](http://www.daogukj.com/7344740)
+- [月薪8000，同事天天点星巴克下午茶，我却连奶茶都舍不得喝，这种消费观差距正常吗？该怎么调整心态？](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
+- [“恐怖片”](http://www.daogukj.com/okofdfns/)
+- [男子拔罐被泼酒精面部严重烧伤](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
+- [BLG3比0横扫DK晋级半决赛](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
+- [【短片大芬】以后](http://www.movie.hkepx.cn/movie/3905354.htm)
+- [广东拟规定电话手表、手机等智能终端不得入校，你支持这样的规定吗？实际落地可能会遇到哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
+- [郑丽文质疑郑朝方家人介入市政](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
 
 </details>
 
 ## 原始来源
 
-- [杭州骨灰撒钱塘江已有八百余户报名，符合条件的还能领两千元补贴，如何看待这一服务？会影响生态环境吗？](https://www.zhihu.com/question/2101418619233989030)
+- [创业板指低开5% 沪指跌超2%](https://www.toutiao.com/trending/7704864276510428714/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%225%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227704864276510428714%22%2C%22hot_board_impr_id%22%3A%22202611061117278655B503E71062E44F3C%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c02ed5304ac37c6c301f -->
+<!-- content-fingerprint: b7a4ff315d53b640f77b -->
