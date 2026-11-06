@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《三角洲行动》全新【微光】赛季故事短片
+# 如何看待贵州13岁女孩失联半个月一直藏在同学家玩手机？为什么「玩手机」常常成为亲子关系的一道坎？
 
-> 来源：哔哩哔哩热门 · 排名：第 6 位 · 热度：1969507 · 分类：GMV · 更新：2026-11-06T11:17:28+08:00
+> 来源：知乎热榜 · 排名：第 6 位 · 热度：355 万热度 · 分类：问答 · 更新：2026-11-06T19:09:59+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《三角洲行动》全新【微光】赛季故事短片”位列第 6 位，公开热度指标为 1969507，榜单分类为“GMV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待贵州13岁女孩失联半个月一直藏在同学家玩手机？为什么「玩手机」常常成为亲子关系的一道坎？”位列第 6 位，公开热度指标为 355 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：一位孩童，一次脑机崩坏，一场跨越阵营的掩护与救赎，让两个本该厮杀的敌人，在寂静的夜色中倾吐心声。 但当战火吞没巴别塔，阵营的红线再次将他们推向对立面......
+来源公开摘要显示：近日，贵州凯里13岁女孩小邹凌晨赴约外出，失联超过半个月，引发网友关注。11月3日凌晨，小邹母亲向红星新闻记者表示，女儿小邹已经找到了。 3日凌晨，小邹母亲向红星新闻记者发来消息确认，女儿已经找到了。原来，这段时间小邹一直躲藏在其他班女同学家里，该同学家长都在外地上班，她家有手机可以玩游戏。 不少网友在留言中为孩子平安感到庆幸，也呼吁对青春期孩子多沟通引导、注意教育方式。小邹母亲表示，感谢大家关心，是家长管教不好，导致孩子跑去同学家玩过头不知回家，后续会好好和孩子沟通并加强管教。 此前报道 截至11月2日，贵州凯里13岁女孩小邹外出失联已超15天。据小邹
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `GMV`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [参保人数减少8300万？医保局回应](fu-jing-qing-zui.md)
-- [温瑞博3比0王楚钦](mao-sui-zi-jian.md)
-- [美第一夫人写信给普京与泽连斯基](san-gu-mao-lu.md)
-- [月薪8000，同事天天点星巴克下午茶，我却连奶茶都舍不得喝，这种消费观差距正常吗？该怎么调整心态？](cao-mu-jie-bing.md)
+- [大肥鱼：自 由 美 利 鲸](fu-jing-qing-zui.md)
+- [女子带娃仅点6元豆芽连吃7碗米饭](mao-sui-zi-jian.md)
+- [ZmjjKK XLG](san-gu-mao-lu.md)
+- [仰望U9X创造503.17km/h极速纪录](cao-mu-jie-bing.md)
 
 ## 站内推荐
 
-- [【纪录片】人生一串 第四季 01 同道中人](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [女人的身体为什么这么美妙 | Miniskirt-AOA｜短裙的权威我后知后觉](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [只因“懒得下楼” 一对父女双双被抓](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [陕西商南重大刑案：500余人进山搜捕](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [美股暴跌 遭遇历史性抛售](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [陕西商南重大刑案嫌疑人因情感纠纷持刀行凶，经两天搜捕在深山被找到，系自杀身亡，哪些关键点值得注意？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [美国多州州长拟暂停审批 AI 数据中心，将对算力基建产生哪些连锁反应？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [11月7日，全新干员研究外观【银翼-雷霆之息】登场！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [TES·369单曲《莫问归期》——“若临别眼眶莫湿，只需一句明年一起至。挥挥手莫藏心事，少年辞。”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [钟汉良 隐婚](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [4岁女童患罕见病皮肤一碰就破](http://www.daogukj.com/3042716)
-- [《谷雨》爆火打脸多少流水线悬疑剧](http://www.movie.hkepx.cn/movie/2061637.htm)
-- [参保人数减少8300万？医保局回应](http://www.daogukj.com/whcykmxi/)
-- [郑丽文质疑郑朝方家人介入市政](http://www.daogukj.com/8289578)
+- [《谷雨》首播口碑爆了](http://www.daogukj.com/3042716)
+- [男子称妙瓦底男孩被活埋](http://www.movie.hkepx.cn/movie/2061637.htm)
+- [大肥鱼：自 由 美 利 鲸](http://www.daogukj.com/whcykmxi/)
+- [王子璇把文吉儿的两头退路都堵死了](http://www.daogukj.com/8289578)
 - [美股创 19 个月来最大单日跌幅、纳指暴跌5.52%，科技股遭遇抛售潮，引发市场恐慌的核心原因是什么？](http://www.movie.hkepx.cn/movie/6917669.htm)
-- [男子拔罐被泼酒精面部严重烧伤](http://www.daogukj.com/1323195)
-- [《崩坏：因缘精灵》幸福PV：缘汽一下](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
-- [王子璇走心发言疑似预制](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
-- [200万买14套房年收租21万 当事人发声](http://www.movie.hkepx.cn/xiju/7626363.htm)
-- [独生子女不一定能继承父母全部遗产](http://www.daogukj.com/zbetfxek/)
-- [马天宇连何老师都回避那张萌算很特殊](http://www.daogukj.com/6022603)
-- [美国AI建设真要踩急刹车了吗](http://www.movie.hkepx.cn/xiju/5313504.htm)
-- [美股史诗级暴跌，单日蒸发约 2.8 万亿美元，AI 产业链集体崩盘，是单纯监管预期利空还是大行情拐点？](http://www.daogukj.com/xdexhduz/)
-- [《大明王朝1566》提出的改稻为桑，如果好好经营，是不是个好国策呢？](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
-- [中国是超级卖家也是超级买家](http://www.movie.hkepx.cn/movie/6492359.htm)
-- [余艳红被查](http://www.daogukj.com/6000133)
-- [张凌赫从查无此人到顶流只用了半年](http://www.daogukj.com/ajsfeojq/)
-- [从德国金马克到世界八大金币，关于黄金的七点总结](http://www.movie.hkepx.cn/xiju/4278075.htm)
-- [不是在拍热点就是在拍热点的路上！终于一次性拍完所有热点了，厉娜！](http://www.movie.hkepx.cn/movie/5534562.htm)
-- [温瑞博回应胜王楚钦：没想到能赢](http://www.daogukj.com/6871213)
-- [只因“懒得下楼” 一对父女双双被抓](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
-- [歌手袁成杰回应成老赖](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
-- [进博会如何让养老更舒适](http://www.movie.hkepx.cn/xiju/4051583.htm)
-- [“厉娜体”刷屏全网 跟风模仿侵权吗](http://www.daogukj.com/4848168)
-- [【短片大芬】以后](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
-- [哈工大研究生回长沙卖气球](http://www.movie.hkepx.cn/movie/2894342.htm)
-- [怎么看待张萌称马天宇越过她找她老公道歉，成了十年心结？找异性朋友的对象沟通，为什么会让对方感到不尊重？](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
-- [2027放假 上二休一上二休二](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
-- [大学生身挂 11 部手机无偿代跑校园跑，被查后独自扛下处分不供出同学，这算真义气还是真违规？](http://www.movie.hkepx.cn/xiju/8848024.htm)
-- [Wei：我不是野核~](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
-- [北京中小学将全部取消外送餐](http://www.movie.hkepx.cn/xiju/3438884.htm)
-- [真的需要摸吗？MacBook Pro PROLED XDR上手](http://www.daogukj.com/ieqapfew/)
-- [袁成杰回应成老赖：会努力工作还债](http://www.daogukj.com/8044050)
-- [TES·369单曲《莫问归期》——“若临别眼眶莫湿，只需一句明年一起至。挥挥手莫藏心事，少年辞。”](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
-- [【S16 TES战败单曲】这不是天，这就是‘二’！](http://www.movie.hkepx.cn/xiju/0303756.htm)
-- [7点50，大肥鱼催你上早八](http://www.daogukj.com/8598756)
-- [南京“零元面馆”爆火](http://www.movie.hkepx.cn/movie/4526722.htm)
-- [中国有没有那种中国人不怎么去，但是外国人却很喜欢去的古迹?](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
-- [中国科学家造出人造最冷物质](http://www.daogukj.com/0218050)
-- [黄渤因阿尔兹海默遗传风险恐惧多年](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
-- [C罗告别信全文](http://www.daogukj.com/3371192)
-- [一句 “我画地为牢啊厉娜”！揭开埋藏十五年的超女意难平《后会友期》许飞厉娜线解说版](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
-- [女人的身体为什么这么美妙 | Miniskirt-AOA｜短裙的权威我后知后觉](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
-- [2027年9天春节长假引爆出行预期](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
-- [尚公主居然拍了156天](http://www.movie.hkepx.cn/movie/1298994.htm)
-- [得州候任州长：必须叫停数据中心项目](http://www.movie.hkepx.cn/movie/6188638.htm)
-- [手机越来越卷 凭什么阔直板火了](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
-- [【张靓颖】本up抵达心湖（见过沐小葵版）](http://www.daogukj.com/4541580)
-- [温瑞博3比0王楚钦](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
-- [三岁半男孩给电视里的红军递饼干](http://www.daogukj.com/4450013)
+- [清华留英硕士遭电诈被控制社交圈](http://www.daogukj.com/1323195)
+- [《崩坏：星穹铁道》公益第三卷：「抵达彩色的彼方」](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
+- [张萌说的是哪个大IP](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
+- [《异环》特别剧情短片丨X+Y=10KB世界](http://www.movie.hkepx.cn/xiju/7626363.htm)
+- [中国AI短剧被韩配搬运](http://www.daogukj.com/zbetfxek/)
+- [吴越打假后续来了](http://www.daogukj.com/6022603)
+- [皮肤一碰就破女孩父母称不生二胎](http://www.movie.hkepx.cn/xiju/5313504.htm)
+- [男子心梗前给豆包打电话救了自己](http://www.daogukj.com/xdexhduz/)
+- [曝 DeepSeek V5 将采用华为昇腾 950 芯片作为核心训练算力，这意味着什么？](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
+- [万千气象看广东](http://www.movie.hkepx.cn/movie/6492359.htm)
+- [暴雪大暴雪 周六强度达巅峰](http://www.daogukj.com/6000133)
+- [英伟达价值7605万元芯片被劫](http://www.daogukj.com/ajsfeojq/)
+- [太原一小学招「跟岗教师」无薪资食宿、备用上岗，要求本科有教资，人社局回应肯定不对，为什么会有这种形式？](http://www.movie.hkepx.cn/xiju/4278075.htm)
+- [中国有没有那种中国人不怎么去，但是外国人却很喜欢去的古迹?](http://www.movie.hkepx.cn/movie/5534562.htm)
+- [曝乔欣有孩子了](http://www.daogukj.com/6871213)
+- [11月7日，全新干员研究外观【银翼-雷霆之息】登场！](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
+- [金鸡奖](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
+- [养老心愿 进博“接单”](http://www.movie.hkepx.cn/xiju/4051583.htm)
+- [爽！君子报仇！3月不晚！BLG3-0横扫DK挺进4强！舆论压不垮的战士！加油去跟IG内战！【1酱赛评 S16八强篇】](http://www.daogukj.com/4848168)
+- [【英雄联盟】我就说追K/DA准没错—“最强同担”希林娜依高 来了！](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
+- [“黑色星期五”席卷亚太市场](http://www.movie.hkepx.cn/movie/2894342.htm)
+- [普京签令接管日本在俄企业释放何信号](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
+- [公司辞退用AI的员工被判赔4.6万元](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
+- [A股“东方字辈”批量涨停](http://www.movie.hkepx.cn/xiju/8848024.htm)
+- [广电新规要求电视「开机即看全屏直播」不得播开机广告，能否吸引年轻人重回客厅？](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
+- [要求新娘借婚房酒店已致歉拒绝退款](http://www.movie.hkepx.cn/xiju/3438884.htm)
+- [Roblox 单色](http://www.daogukj.com/ieqapfew/)
+- [当你在过山车上紧急视频会议](http://www.daogukj.com/8044050)
+- [为什么说住宅楼的空调机位是“反人类”设计？](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
+- [俺不中嘞 雕翻车嘞](http://www.movie.hkepx.cn/xiju/0303756.htm)
+- [全国 3.35 万座寺院、 9000 座道观同步启动财务大检查，到底意味着什么？](http://www.daogukj.com/8598756)
+- [商南命案嫌犯尸体废弃房屋中被发现](http://www.movie.hkepx.cn/movie/4526722.htm)
+- [刻100个药方墓碑每天三四百人祭拜](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
+- [我是奸商](http://www.daogukj.com/0218050)
+- [波兰之春](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
+- [仰望U9X极速挑战全过程记录视频发布](http://www.daogukj.com/3371192)
+- [当我在《影之刃零》中拍了个爽......【沐小葵篇】](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
+- [美国多州州长拟暂停审批 AI 数据中心，将对算力基建产生哪些连锁反应？](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
+- [谁是金币王（上集）](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
+- [若失守1.5℃升温红线将酿成巨灾](http://www.movie.hkepx.cn/movie/1298994.htm)
+- [武大回应网传学生诱骗同学去缅甸](http://www.movie.hkepx.cn/movie/6188638.htm)
+- [“缅北最严厉的父亲”来了](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
+- [月薪8000，同事天天点星巴克下午茶，我却连奶茶都舍不得喝，这种消费观差距正常吗？该怎么调整心态？](http://www.daogukj.com/4541580)
+- [女子带娃仅点6元豆芽连吃7碗米饭](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
+- [鹤岗一60多平方米房屋以11元拍出](http://www.daogukj.com/4450013)
 
 </details>
 
 ## 原始来源
 
-- [《三角洲行动》全新【微光】赛季故事短片](https://b23.tv/BV1sKxQ6nEiL)
+- [如何看待贵州13岁女孩失联半个月一直藏在同学家玩手机？为什么「玩手机」常常成为亲子关系的一道坎？](https://www.zhihu.com/question/2100973901962536138)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ce33da5824215b93995d -->
+<!-- content-fingerprint: b7de7e59d04d032d319e -->
