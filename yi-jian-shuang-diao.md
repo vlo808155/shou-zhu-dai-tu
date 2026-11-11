@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《给阿嬷的情书》斩获金鸡两项大奖
+# 如何评价学院命名冗余的现象？比如“数学学院”“化学学院”，以前都是简单的“数学院”“化学院”？
 
-> 来源：百度热搜 · 排名：第 8 位 · 热度：7047376 · 更新：2026-11-11T05:27:25+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：172 万热度 · 分类：问答 · 更新：2026-11-11T09:25:03+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“《给阿嬷的情书》斩获金鸡两项大奖”位列第 8 位，公开热度指标为 7047376。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何评价学院命名冗余的现象？比如“数学学院”“化学学院”，以前都是简单的“数学院”“化学院”？”位列第 9 位，公开热度指标为 172 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：11月10日晚，金鸡奖颁奖现场，粤产电影《给阿嬷的情书》斩获金鸡奖评委会特别奖与最佳编剧奖。导演发表感言，感谢阿嬷的启蒙、恩师的鼓励、编剧伙伴十年间的陪伴打磨，并致谢家乡潮汕赐予的动人故事与创作灵感。
+知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [梁家辉：不坐高铁准备走路回去](shou-zhu-dai-tu.md)
-- [5个上门维修师傅2个说了实话](wang-mei-zhi-ke.md)
-- [女子买7元早餐发现卡里近26万没了](wen-ji-qi-wu.md)
-- [中方对美关税调整，两月内继续暂停实施 24% 的加征关税税率，保留 10% 的加征关税税率，如何解读？](wo-xin-chang-dan.md)
+- [足金耳钉少了0.1克 消费者要三倍赔偿](shou-zhu-dai-tu.md)
+- [金鸡奖获奖名单](wang-mei-zhi-ke.md)
+- [张雪冠军车拍卖款不再捐给韩红基金会](wen-ji-qi-wu.md)
+- [S16 决赛 BLG vs GEN，你觉得 BLG 能夺冠吗？](wo-xin-chang-dan.md)
 
 ## 站内推荐
 
-- [THANK YOU Smoggy](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [Anthropic正式启动募资计划](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [湖南株洲物流仓库突发大火系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [梁家辉 影帝获奖感言](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [Anthropic IPO拟发行8.25亿股](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [地牢酒馆-33《日常招待与地下湖》](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [青稚 白小纯](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [一名校毕业生为泄私愤向境外机构匿名举报，诬陷同事是「间谍」，会造成多大不良影响？诬告人将付出什么代价？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [史书写作中的'春秋笔法'是如何隐晦表达褒贬的？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [传奇历史人物志——麦克斯韦](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [茅台16款产品将采用全天动态补货模式](http://www.daogukj.com/ppaxnzva/)
-- [动物都知道躲避天敌，而为什么几千年了，昆虫还是不知道躲着人类？](http://www.movie.hkepx.cn/xiju/7569728.htm)
+- [路虎为何要在荷兰起诉比亚迪](http://www.daogukj.com/ppaxnzva/)
+- [周杰伦老歌又爆火 《发如雪》热度飙升](http://www.movie.hkepx.cn/xiju/7569728.htm)
 - [长征故事蕴含的制胜之道](http://www.play.hengshemaoyi.cn/kongbu/1600467.htm)
-- [售价 2499 元平衡指环号称戴上就「推不倒」遭质疑，企业称将请院士级科学家说明，这背后有科学依据吗？](http://www.daogukj.com/4975917)
-- [黄仁勋带她吃的饭店，我带你们去看看](http://www.movie.hkepx.cn/movie/7031044.htm)
-- [女子买7元早餐发现卡里近26万没了](http://www.play.hengshemaoyi.cn/kongbu/8076427.htm)
+- [轰6K齐射4枚高超弹有何意味](http://www.daogukj.com/4975917)
+- [湖南株洲一物流仓库突发大火不实](http://www.movie.hkepx.cn/movie/7031044.htm)
+- [张雪冠军车拍卖款不再捐给韩红基金会](http://www.play.hengshemaoyi.cn/kongbu/8076427.htm)
 - [梁家辉、高叶分别拿下影帝、影后，如何评价第 39 届中国电影金鸡奖获奖名单？](http://www.daogukj.com/zennunfs/)
-- [⚡️黄仁勋 | Trouble Maker × 回家的诱惑⚡️英伟达年会现场双黄演绎崩老头【AI MV大赛】](http://www.movie.hkepx.cn/xiju/9775845.htm)
-- [一碗免费面咋把隔壁小店逼到想搬家](http://www.movie.hkepx.cn/movie/9071546.htm)
-- [【爱你】王力宏&王心凌「最好的地方Ⅱ」官摄 | 限定 “双王组合”首次同台，甜度加倍！](http://www.play.hengshemaoyi.cn/xiju/4489901.htm)
-- [十元小贴纸 硬控年轻人](http://www.daogukj.com/yhtegkzz/)
-- [山姆现20元一包泡面，含肉量60克以上，只能下锅煮不能开水泡，被吐槽太贵不方便，你怎么看？觉得值吗？](http://www.daogukj.com/fyfonhkf/)
-- [地牢酒馆-33《日常招待与地下湖》](http://www.play.hengshemaoyi.cn/xiju/6169629.htm)
-- [梁家辉 三金大满贯](http://www.movie.hkepx.cn/xiju/0387228.htm)
-- [我国幼小初学龄人口已达峰](http://www.daogukj.com/qkavfdvz/)
-- [《人皇步》](http://www.play.hengshemaoyi.cn/xiju/0627493.htm)
-- [中方对美关税调整，两月内继续暂停实施 24% 的加征关税税率，保留 10% 的加征关税税率，如何解读？](http://www.movie.hkepx.cn/movie/2449915.htm)
-- [我国外储规模再超3.4万亿美元，单月贸易顺差超1335亿美元，为何人民币升值下外贸数据却持续超预期？](http://www.play.hengshemaoyi.cn/kongbu/8489134.htm)
-- [吴京穿着那件熟悉的西装亮相金鸡奖](http://www.play.hengshemaoyi.cn/xiju/2205602.htm)
-- [两男子靠守号喜获3000万](http://www.play.hengshemaoyi.cn/kongbu/3633411.htm)
-- [高叶金鸡影后](http://www.play.hengshemaoyi.cn/xiju/1772992.htm)
-- [央视曝光专坑老年人的保健品骗局](http://www.daogukj.com/4780737)
-- [Anthropic正式启动募资计划](http://www.movie.hkepx.cn/xiju/5267459.htm)
+- [媒体人称杨瀚森与林葳为留洋球员打样，二人何时能在国家队正式合体？](http://www.movie.hkepx.cn/xiju/9775845.htm)
+- [清华教授：中国向世界输出几十个霸总](http://www.movie.hkepx.cn/movie/9071546.htm)
+- [《求是》发文「当前我国经济运行中供强需弱矛盾的症结所在」，释放了哪些信号？](http://www.play.hengshemaoyi.cn/xiju/4489901.htm)
+- [10 月 20 万元以上新能源车销量榜出炉，前三名全是小米，哪些数据值得关注？当前市场格局如何？](http://www.daogukj.com/yhtegkzz/)
+- [如何看待网友晒「上海和平饭店6人餐花费51万元的天价小票」，饭店辟谣称小票系伪造，警方目前已介入 ？](http://www.daogukj.com/fyfonhkf/)
+- [⚡️黄仁勋 | Trouble Maker × 回家的诱惑⚡️英伟达年会现场双黄演绎崩老头【AI MV大赛】](http://www.play.hengshemaoyi.cn/xiju/6169629.htm)
+- [怎么看路透社表示 Anthropic IPO 估值下调到1万亿美元，目标募集 643.5 亿美元？](http://www.movie.hkepx.cn/xiju/0387228.htm)
+- [湖南株洲物流仓库突发大火系谣言](http://www.daogukj.com/qkavfdvz/)
+- [梁家辉举奖杯高喊咱们开工了](http://www.play.hengshemaoyi.cn/xiju/0627493.htm)
+- [S16 决赛 BLG vs GEN，你觉得 BLG 能夺冠吗？](http://www.movie.hkepx.cn/movie/2449915.htm)
+- [为什么说《九州》注定会失败？](http://www.play.hengshemaoyi.cn/kongbu/8489134.htm)
+- [日本女子给前男友账号连续点赞获刑](http://www.play.hengshemaoyi.cn/xiju/2205602.htm)
+- [金子涵妹妹回复网友](http://www.play.hengshemaoyi.cn/kongbu/3633411.htm)
+- [梁家辉凭《捕风追影》傅隆生一角拿下金鸡影帝，成为三金大满贯得主，他在片中的表现如何？](http://www.play.hengshemaoyi.cn/xiju/1772992.htm)
+- [一车主自助洗车7小时38分洗到凌晨](http://www.daogukj.com/4780737)
+- [青稚 白小纯](http://www.movie.hkepx.cn/xiju/5267459.htm)
 - [【纪录片】蓝色星球 第三季 02 辽阔远洋](http://www.play.hengshemaoyi.cn/kongbu/8508013.htm)
-- [梁家辉获金鸡奖最佳男主角](http://www.movie.hkepx.cn/movie/8646163.htm)
-- [梁家辉拒绝工作人员帮拿金鸡奖杯](http://www.daogukj.com/ideyvojn/)
-- [给孩子做了一个半飞行的玩具车](http://www.daogukj.com/wbplfych/)
-- [男子靠「鸭形拳」获武术比赛冠军遭调侃动作像舞蹈，这类象形拳实战效果如何？](http://www.play.hengshemaoyi.cn/xiju/1691587.htm)
-- [湖南株洲一物流仓库突发大火不实](http://www.movie.hkepx.cn/movie/0156354.htm)
-- [Anthropic IPO拟发行8.25亿股](http://www.movie.hkepx.cn/movie/8759533.htm)
-- [南京「零元面馆」无门槛免费吃面，周边面馆「日营业额下降2000元」，有商户想退租，善意是不是该有边界？](http://www.daogukj.com/goeesqox/)
-- [如何盗走《蒙娜丽莎》？【硬核狠人92】](http://www.play.hengshemaoyi.cn/kongbu/1605719.htm)
-- [梅根父亲涉性虐待影像内容曝光](http://www.play.hengshemaoyi.cn/xiju/0951200.htm)
-- [高叶获奖感言](http://www.play.hengshemaoyi.cn/kongbu/8124430.htm)
-- [七巨头260亿美元“押注”Anthropic](http://www.play.hengshemaoyi.cn/kongbu/2758868.htm)
-- [灭霸宿舍卫生不合格，被叫回去重新值日](http://www.daogukj.com/3916003)
-- [美股低开 英伟达开盘跌近3%](http://www.movie.hkepx.cn/movie/6479348.htm)
-- [兰西雅获金鸡奖最佳女配角](http://www.movie.hkepx.cn/xiju/4609156.htm)
-- [RTX5080暴跌4000元](http://www.play.hengshemaoyi.cn/kongbu/1182405.htm)
-- [真正的手法大帝！最弱的数值凭什么打出最强的战绩？](http://www.daogukj.com/uobqircq/)
-- [拼多多送货上门新规11月13日生效](http://www.play.hengshemaoyi.cn/kongbu/0355633.htm)
-- [潮汕狮头鹅头为什么售价上千？](http://www.play.hengshemaoyi.cn/kongbu/3845867.htm)
-- [《给阿嬷的情书》金鸡奖评委会特别奖](http://www.play.hengshemaoyi.cn/xiju/5922119.htm)
-- [花坛藏尸案凶手审讯画面首度公开](http://www.daogukj.com/7623786)
-- [如何评价2026年11月米哈游《原神》7.2版本【长峡深处的晶石城】系列任务？](http://www.play.hengshemaoyi.cn/kongbu/9393809.htm)
-- [金鸡最佳导演 爆冷](http://www.daogukj.com/9177301)
-- [茅台主动放弃稀缺性了吗](http://www.daogukj.com/pxvagscl/)
-- [女子称住酒店发现被子上有干结粪便](http://www.play.hengshemaoyi.cn/kongbu/6726990.htm)
-- [曝平头哥估值200亿至300亿美元](http://www.daogukj.com/5743277)
-- [老人趴在炕上突然炕炸了](http://www.movie.hkepx.cn/xiju/7321735.htm)
+- [罗大佑怒批赖清德：不要脸到家了](http://www.movie.hkepx.cn/movie/8646163.htm)
+- [英伟达官方商城重新上架RTX5090和RTX5080｜显卡日报11月11日](http://www.daogukj.com/ideyvojn/)
+- [我国外储规模再超3.4万亿美元，单月贸易顺差超1335亿美元，为何人民币升值下外贸数据却持续超预期？](http://www.daogukj.com/wbplfych/)
+- [白小纯对着摄像头撒谎](http://www.play.hengshemaoyi.cn/xiju/1691587.htm)
+- [扬州地震 网友：躺床上直接被摇醒](http://www.movie.hkepx.cn/movie/0156354.htm)
+- [传奇历史人物志——麦克斯韦](http://www.movie.hkepx.cn/movie/8759533.htm)
+- [母亲劝女儿辞职照顾瘫痪父亲](http://www.daogukj.com/goeesqox/)
+- [【1酱赛评四强篇·上】BLG突破LPL对S赛T1不胜历史！几代人的夙愿！14年的等待！终于在S赛战胜T1！爽爽爽爽爽！！！！](http://www.play.hengshemaoyi.cn/kongbu/1605719.htm)
+- [女子为备婚瘦50斤婚礼惊艳全场](http://www.play.hengshemaoyi.cn/xiju/0951200.htm)
+- [【S16】GOAT的荣光依旧，但这次BLG要剑指纽约！也许有一天的那一天终于到来了](http://www.play.hengshemaoyi.cn/kongbu/8124430.htm)
+- [如何评价比亚迪大唐被曝存在轮毂出厂前后装反问题，比亚迪售后称确有部分批次发生该情况？](http://www.play.hengshemaoyi.cn/kongbu/2758868.htm)
+- [ZipRecruiter美股收盘涨53.61%](http://www.daogukj.com/3916003)
+- [如何评价《魔兽世界》无限服？](http://www.movie.hkepx.cn/movie/6479348.htm)
+- [这是我等待了一生的巨浪](http://www.movie.hkepx.cn/xiju/4609156.htm)
+- [拉宏徒步 小尼父母家真实到没剧本](http://www.play.hengshemaoyi.cn/kongbu/1182405.htm)
+- [黄仁勋带她吃的饭店，我带你们去看看](http://www.daogukj.com/uobqircq/)
+- [【手残联萌】12周年特别节目](http://www.play.hengshemaoyi.cn/kongbu/0355633.htm)
+- [Ming 青稚](http://www.play.hengshemaoyi.cn/kongbu/3845867.htm)
+- [金鸡最佳导演 爆冷](http://www.play.hengshemaoyi.cn/xiju/5922119.htm)
+- [我在北京，和 4.5 万人围观了一场大型“反恐行动”](http://www.daogukj.com/7623786)
+- [梁家辉金鸡影帝](http://www.play.hengshemaoyi.cn/kongbu/9393809.htm)
+- [男子与第三者发生关系后猝死](http://www.daogukj.com/9177301)
+- [晋妈希望李勒优留面馆](http://www.daogukj.com/pxvagscl/)
+- [这种“平价鱼”长期被低估](http://www.play.hengshemaoyi.cn/kongbu/6726990.htm)
+- [灭霸宿舍卫生不合格，被叫回去重新值日](http://www.daogukj.com/5743277)
+- [张雪改口 不捐给韩红基金会了](http://www.movie.hkepx.cn/xiju/7321735.htm)
 
 </details>
 
 ## 原始来源
 
-- [《给阿嬷的情书》斩获金鸡两项大奖](https://www.baidu.com/s?wd=%E3%80%8A%E7%BB%99%E9%98%BF%E5%AC%B7%E7%9A%84%E6%83%85%E4%B9%A6%E3%80%8B%E6%96%A9%E8%8E%B7%E9%87%91%E9%B8%A1%E4%B8%A4%E9%A1%B9%E5%A4%A7%E5%A5%96&sa=fyb_news&rsv_dl=fyb_news)
+- [如何评价学院命名冗余的现象？比如“数学学院”“化学学院”，以前都是简单的“数学院”“化学院”？](https://www.zhihu.com/question/2093992462004102216)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 960ed47fdd5ccaa89bbf -->
+<!-- content-fingerprint: d9bba695c2127d25e453 -->
