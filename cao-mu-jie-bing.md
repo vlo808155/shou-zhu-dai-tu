@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 刘欢安葬于北京 曾与膀胱癌斗争多年
+# 喝酒后出现这3个信号说明不适合喝酒
 
-> 来源：今日头条热榜 · 排名：第 7 位 · 热度：8467265 · 分类：热门事件 · 更新：2026-11-13T08:33:37+08:00
+> 来源：今日头条热榜 · 排名：第 7 位 · 热度：19334224 · 更新：2026-11-13T15:16:44+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“刘欢安葬于北京 曾与膀胱癌斗争多年”位列第 7 位，公开热度指标为 8467265，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“喝酒后出现这3个信号说明不适合喝酒”位列第 7 位，公开热度指标为 19334224。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [成都成中国唯一入选美国《国家地理》全球最佳旅行地城市，凭什么吸引世界目光？](feng-sheng-he-li.md)
-- [拿什么打手游最过瘾？游戏平板采销推荐](ru-huo-ru-tu.md)
-- [3D打印6小时造一双鞋](yi-gu-zuo-qi.md)
-- [英伟达大跌13%](yi-zi-qian-jin.md)
+- [《密档》口碑、票房均不如《给阿嬷的情书》《南京照相馆》，其导演却拿下最佳导演，金鸡奖的评审逻辑是什么？](feng-sheng-he-li.md)
+- [为什么是最后一期？影视飓风1800万粉丝Q&A！](ru-huo-ru-tu.md)
+- [睡前有这5种表现可能是脑梗](yi-gu-zuo-qi.md)
+- [阿姨照料患癌男同事14年开销AA制](yi-zi-qian-jin.md)
 
 ## 站内推荐
 
-- [美国民主党酝酿史上最严AI管制](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [齐达内：对手领先后我们有些散乱](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [蓉城球迷目睹丢冠后泣不成声](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [山姆399元羽绒服断货供应商回应](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [英伟达显卡美亚销量暴跌超过70%｜显卡日报11月13日](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [伊朗再次打击美军在中东军事设施](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [上海交警用英文丝滑执法走红](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [比亚迪悬赏最高500万征集抹黑线索](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [唐湘龙：罗大佑曾在演唱会剪美国护照](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [正午阳光声明「我司所有项目信息…皆以正午及各项目官方渠道露出为准」，发生了什么？为何电视剧番位引争议？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [3D打印6小时造一双鞋](http://www.play.hengshemaoyi.cn/kongbu/8543260.htm)
-- [如何看待28岁中国留学毕业生在墨尔本遇袭，两根手指被砍断，膝盖被砍伤，还遭朋友卷走5.4万澳元医药费？](http://www.movie.hkepx.cn/movie/4724518.htm)
-- [7碗米饭摆拍事件更显媒体调查价值](http://www.play.hengshemaoyi.cn/kongbu/0028042.htm)
-- [净水器何时换滤芯 商家说了算吗](http://www.play.hengshemaoyi.cn/xiju/3193472.htm)
-- [后会友期民宿离晚餐地点不到四公里](http://www.movie.hkepx.cn/xiju/5695874.htm)
-- [山姆399元羽绒服断货供应商回应](http://www.play.hengshemaoyi.cn/kongbu/9716007.htm)
-- [刘欢妻子发8000字长文](http://www.play.hengshemaoyi.cn/kongbu/6976710.htm)
-- [黄仁勋4万美元打造出4万亿英伟达](http://www.daogukj.com/6389351)
+- [睡前有这5种表现可能是脑梗](http://www.play.hengshemaoyi.cn/kongbu/8543260.htm)
+- [网友称高铁座椅 USB 口充手机越充越掉电，12306 称电压更低，用于应急补电，这个设计合理吗？](http://www.movie.hkepx.cn/movie/4724518.htm)
+- [问界](http://www.play.hengshemaoyi.cn/kongbu/0028042.htm)
+- [NVIDIA：黄仁勋辞职](http://www.play.hengshemaoyi.cn/xiju/3193472.htm)
+- [考研人数](http://www.movie.hkepx.cn/xiju/5695874.htm)
+- [唐湘龙：罗大佑曾在演唱会剪美国护照](http://www.play.hengshemaoyi.cn/kongbu/9716007.htm)
+- [刘欢妻子不到10个月失去两个至亲](http://www.play.hengshemaoyi.cn/kongbu/6976710.htm)
+- [金晨发文秒删](http://www.daogukj.com/6389351)
 - [他真的太优雅了！灰太狼&红太狼【非凡之爱】](http://www.movie.hkepx.cn/xiju/4891708.htm)
-- [给阿嬷的情书获奖反应冷淡](http://www.movie.hkepx.cn/xiju/9183020.htm)
-- [美防长在无名烈士墓说笑被哨兵训斥](http://www.daogukj.com/mgeudand/)
-- [德芙因七夕广告宣扬错误婚恋观，代运营方被罚 80 万，怎样看待这一结果？](http://www.daogukj.com/thgbmsar/)
-- [《你跟他废什么话》](http://www.movie.hkepx.cn/movie/7141685.htm)
-- [年轻人为什么不爱买皮鞋了](http://www.movie.hkepx.cn/movie/8285250.htm)
-- [为什么伽利略、爱因斯坦没有成为物理学单位？](http://www.play.hengshemaoyi.cn/kongbu/8845063.htm)
-- [英伟达临时CEO发声](http://www.play.hengshemaoyi.cn/xiju/1186264.htm)
-- [金价](http://www.movie.hkepx.cn/xiju/0249486.htm)
-- [美国民主党酝酿史上最严AI管制](http://www.daogukj.com/7987932)
-- [普通人用AI和会用AI的人](http://www.play.hengshemaoyi.cn/xiju/9727864.htm)
-- [刘欢死因首次曝光，系感染性休克，生前与膀胱癌斗争十几年，膀胱癌有多危险？该怎样预防？](http://www.daogukj.com/1491749)
-- [补档：钢成军的秘密被灭建国发现了，这下可惨了](http://www.play.hengshemaoyi.cn/xiju/5312952.htm)
-- [为什么是最后一期？影视飓风1800万粉丝Q&A！](http://www.movie.hkepx.cn/movie/1704748.htm)
-- [同是东亚内卷，日韩打工人，生活差距有多大？](http://www.movie.hkepx.cn/movie/6434749.htm)
-- [发悼念文配朴树图网友已设私密账号](http://www.movie.hkepx.cn/xiju/3903629.htm)
-- [买来的副主任帽子 戴谁头上都是耻辱](http://www.play.hengshemaoyi.cn/kongbu/1169569.htm)
-- [成都成中国唯一入选美国《国家地理》全球最佳旅行地城市，凭什么吸引世界目光？](http://www.movie.hkepx.cn/movie/4527568.htm)
-- [《反方向の忠》](http://www.play.hengshemaoyi.cn/xiju/6189163.htm)
-- [大衣哥和他的“流量往事”](http://www.daogukj.com/0521779)
-- [华农兄弟：抓鸭抓鹅一起炖，兄弟都说好吃](http://www.daogukj.com/5716979)
-- [NVIDIA：黄仁勋辞职](http://www.movie.hkepx.cn/movie/6813612.htm)
-- [新生抽中“免费吃食堂一年”特等奖](http://www.play.hengshemaoyi.cn/kongbu/0013525.htm)
-- [男子怀疑女儿是外星人](http://www.daogukj.com/sijbwiiz/)
-- [中国正在编织这样一张大网](http://www.movie.hkepx.cn/xiju/5793926.htm)
-- [房子已经过剩，为什么一直还在新盖楼盘？](http://www.movie.hkepx.cn/movie/5566595.htm)
-- [伏笔满满、高层改戏、英雄崩溃！漫威口碑“系列最差”的《复联2》到底冤不冤？](http://www.movie.hkepx.cn/movie/7078471.htm)
-- [乡干部捅伤村民潜逃 15 年，其间违规吃空饷 140 万元并升为正科，暴露出哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/3140322.htm)
-- [【纪录片】人生一串 第四季 02 心惊肉跳](http://www.play.hengshemaoyi.cn/kongbu/9870126.htm)
-- [店老板为连吃7碗米饭母女放钱系摆拍](http://www.movie.hkepx.cn/movie/3347353.htm)
-- [英伟达股民天塌了](http://www.play.hengshemaoyi.cn/xiju/4013867.htm)
-- [拜登：若早知患癌 我会辞职](http://www.daogukj.com/neoiosto/)
-- [在深圳科技触手可及](http://www.daogukj.com/2254144)
-- [特朗普连续发帖痛斥民主党腐败](http://www.play.hengshemaoyi.cn/xiju/2382409.htm)
-- [感觉影之刃里的各种字体都好帅啊，比如“决战、殒命”等，这是单独请人写的吗，还是说能靠AI跑一批出来？](http://www.daogukj.com/9886230)
-- [拿什么打手游最过瘾？游戏平板采销推荐](http://www.play.hengshemaoyi.cn/kongbu/5207966.htm)
-- [英伟达单日市值蒸发1820亿美元](http://www.movie.hkepx.cn/movie/7743518.htm)
-- [杨鸣：郭士强选人肯定用比较熟悉的](http://www.daogukj.com/dzqtqzgj/)
-- [蒂姆·库克被提名为英伟达一把手潜在继任者，特朗普也建议其担任CEO，库克成为英伟达新掌门的概率大吗？](http://www.play.hengshemaoyi.cn/kongbu/2288019.htm)
-- [议员儿子涉毒，当红男明星偷拍，黑帮大佬遭绑架？钱已到位，罪恶都市清道夫来活了！《黑白清道夫》](http://www.play.hengshemaoyi.cn/xiju/9678725.htm)
-- [感觉杨超越不捂住董思成的嘴都要亲了](http://www.play.hengshemaoyi.cn/kongbu/9902985.htm)
-- [提辖老妈《暴躁老妈》雷霆丧病配音1~8大合集](http://www.play.hengshemaoyi.cn/kongbu/8033858.htm)
+- [放二十年的金砖被物理好的人取走了](http://www.movie.hkepx.cn/xiju/9183020.htm)
+- [竹子从来都不欺人，只要你顺着它的脾气，会给你惊喜！](http://www.daogukj.com/mgeudand/)
+- [A股磨底拉锯阶段该如何应对](http://www.daogukj.com/thgbmsar/)
+- [乡干部捅伤村民潜逃 15 年，其间违规吃空饷 140 万元并升为正科，暴露出哪些问题？](http://www.movie.hkepx.cn/movie/7141685.htm)
+- [刘欢癌症扩散后曾放手一搏试新药](http://www.movie.hkepx.cn/movie/8285250.htm)
+- [黄仁勋算是美国中期选举的牺牲品吗？为什么偏偏是他？](http://www.play.hengshemaoyi.cn/kongbu/8845063.htm)
+- [男子生吞新鲜蛇胆 脑子里长满寄生虫](http://www.play.hengshemaoyi.cn/xiju/1186264.htm)
+- [2027研究生报考人数347万](http://www.movie.hkepx.cn/xiju/0249486.htm)
+- [伊朗再次打击美军在中东军事设施](http://www.daogukj.com/7987932)
+- [王子璇听到白小纯说青稚是太子爷的表情](http://www.play.hengshemaoyi.cn/xiju/9727864.htm)
+- [微软多项服务发生大规模故障，Outlook异常报告超13万起，问题可能出在哪？你现在还能正常登录吗？](http://www.daogukj.com/1491749)
+- [《原神》过场动画-「雷与永恒」](http://www.play.hengshemaoyi.cn/xiju/5312952.htm)
+- [臣妾要线上告发熹贵妃 2.0](http://www.movie.hkepx.cn/movie/1704748.htm)
+- [为什么人到中年，很多人会觉得友情没那么重要？还有些人会觉得这是成熟的表现？](http://www.movie.hkepx.cn/movie/6434749.htm)
+- [40岁男子花4千元做96集AI短剧爆火](http://www.movie.hkepx.cn/xiju/3903629.htm)
+- [新一轮大范围雨雪明夜起来袭](http://www.play.hengshemaoyi.cn/kongbu/1169569.htm)
+- [《密档》口碑、票房均不如《给阿嬷的情书》《南京照相馆》，其导演却拿下最佳导演，金鸡奖的评审逻辑是什么？](http://www.movie.hkepx.cn/movie/4527568.htm)
+- [前两年平价牛肉餐饮疯狂开店，现如今牛肉价格涨幅已达 27% ，牛肉为何吃不起了？](http://www.play.hengshemaoyi.cn/xiju/6189163.htm)
+- [张萌后悔叫马天宇上节目](http://www.daogukj.com/0521779)
+- [这辅助塞恩太夸张了！](http://www.daogukj.com/5716979)
+- [无烟酒吧倒闭、张美玉抑郁、大学生无偿代跑拒绝供出同学【抽象周刊】](http://www.movie.hkepx.cn/movie/6813612.htm)
+- [荷兰法院驳回路虎取证比亚迪申请](http://www.play.hengshemaoyi.cn/kongbu/0013525.htm)
+- [1600元网购冲锋衣口袋有张身份证](http://www.daogukj.com/sijbwiiz/)
+- [我们的城市有条中山路](http://www.movie.hkepx.cn/xiju/5793926.htm)
+- [大学保研中举报现象越来越频发，背后原因是什么？为了保研主动切断同学关系是否可取？](http://www.movie.hkepx.cn/movie/5566595.htm)
+- [【烂奇迹】三毛：我的一生颠沛流离，活到现在算是个奇迹](http://www.movie.hkepx.cn/movie/7078471.htm)
+- [华为Mate X8真机疑曝光](http://www.play.hengshemaoyi.cn/kongbu/3140322.htm)
+- [【独家】《罗小黑战记》第43话 跟师父一起做任务啦【10月国创】](http://www.play.hengshemaoyi.cn/kongbu/9870126.htm)
+- [创业板指高开低走跌3.32%](http://www.movie.hkepx.cn/movie/3347353.htm)
+- [淮海战役作战命令进高三语文考题](http://www.play.hengshemaoyi.cn/xiju/4013867.htm)
+- [刘欢墓地曝光](http://www.daogukj.com/neoiosto/)
+- [秋假带火研学游、亲子游](http://www.daogukj.com/2254144)
+- [“一代腿王”黄正利去世](http://www.play.hengshemaoyi.cn/xiju/2382409.htm)
+- [郭树清再度建议尽快启动「遗产税」与「赠与税」，新增税收补助基本养老金，如何解读？](http://www.daogukj.com/9886230)
+- [为什么是最后一期？影视飓风1800万粉丝Q&A！](http://www.play.hengshemaoyi.cn/kongbu/5207966.htm)
+- [拿中老年病痛玩梗，还被44万人点赞，这是最近最让我恶心的烂梗！](http://www.movie.hkepx.cn/movie/7743518.htm)
+- [当众斥责美国防部长的士兵获奖了](http://www.daogukj.com/dzqtqzgj/)
+- [美要求日本每年多给4220亿日元驻留费](http://www.play.hengshemaoyi.cn/kongbu/2288019.htm)
+- [《白银之城》角色PV - 馨西亚二世：到月下的城邦去](http://www.play.hengshemaoyi.cn/xiju/9678725.htm)
+- [陈晓楠 张泉灵](http://www.play.hengshemaoyi.cn/kongbu/9902985.htm)
+- [MJ宇宙校园之末日降临第一集](http://www.play.hengshemaoyi.cn/kongbu/8033858.htm)
 
 </details>
 
 ## 原始来源
 
-- [刘欢安葬于北京 曾与膀胱癌斗争多年](https://www.toutiao.com/trending/7707264804913679898/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%225%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227707264804913679898%22%2C%22hot_board_impr_id%22%3A%222026111308333717BB760D883738E91FC0%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [喝酒后出现这3个信号说明不适合喝酒](https://www.toutiao.com/trending/7706398878525816859/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%220%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227706398878525816859%22%2C%22hot_board_impr_id%22%3A%2220261113151643C4FA2980A1AABF64028C%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0570b51ea2e6e1850e22 -->
+<!-- content-fingerprint: 7fd226b55d35aaa0daec -->
