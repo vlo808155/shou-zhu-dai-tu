@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 马化腾曾坦言腾讯AI「上了船才发现船漏水」，如今又把员工分成陆军和海军，这释放了什么信号？
+# 《持械入宋》制片人称算力投入超百万且没投流，团队每部短剧都盈利，怎样看待这一高收益性？哪些思路能借鉴？
 
-> 来源：知乎热榜 · 排名：第 5 位 · 热度：501 万热度 · 分类：问答 · 更新：2026-11-14T16:07:20+08:00
+> 来源：知乎热榜 · 排名：第 5 位 · 热度：206 万热度 · 分类：问答 · 更新：2026-11-14T23:00:45+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“马化腾曾坦言腾讯AI「上了船才发现船漏水」，如今又把员工分成陆军和海军，这释放了什么信号？”位列第 5 位，公开热度指标为 501 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“《持械入宋》制片人称算力投入超百万且没投流，团队每部短剧都盈利，怎样看待这一高收益性？哪些思路能借鉴？”位列第 5 位，公开热度指标为 206 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：腾讯管理层再次放话要大力加强AI业务。11月12日，澎湃新闻记者从接近腾讯的知情人士处独家获悉，在腾讯28周年线上直播中，腾讯管理层表示要加快组织变革的决心，同时提到，这和几年前那次“降本增效”不一样。前一次相对被动，更偏“降本”，这一次是面向AI时代的主动出击，更偏“增效”，激发团队去创造新的价值，鼓励一线同事积极举手向前冲，中间的管理层则需要变得更扁平和灵敏。为了应对新的变革，内部需要主动思考新打法和新战场。接近腾讯的知情人士向澎湃新闻记者表示：腾讯管理层称，50%的人要像陆军一样，守土有责，通过提效去做好现有的核心业务；另50%的人像海军一样，拥抱
+来源公开摘要显示：爆款诞生之后，很多人猜测，这么爆的剧，一定砸了重金投流。 但李朝华坦言，团队自己做剧以来从没投过流。“我们都是从外行进来的，做的时间不长，投流真不懂，所有时间都放在制作上了。” 除了100万的算力，每部作品的ROI，李朝华也坦言“没计算过”“不懂这东西”，除了把内容做好，剩下的都顺其自然。 与此同时，李朝华再次向娱理工作室提到，分账是“先上线后结算”，团队的AI短剧每一部都盈利了。但他也强调只是个例，不能作为参考。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [笑点一高大事件](po-fu-chen-zhou.md)
-- [AI主播泛滥 凌晨1点后3分钟推送4个](bei-shui-yi-zhan.md)
-- [厉娜 不负少年不负卿](zhi-shang-tan-bing.md)
-- [曝万斯考虑退出2028年美国总统大选](wei-wei-jiu-zhao.md)
+- [全看过的这辈子有了](po-fu-chen-zhou.md)
+- [终结三连败！国足2比0战胜马来西亚](bei-shui-yi-zhan.md)
+- [无畏的心率](zhi-shang-tan-bing.md)
+- [《谷雨》导演查了所有演员税务才开机](wei-wei-jiu-zhao.md)
 
 ## 站内推荐
 
-- [《给阿嬷的情书》获金鸡奖最佳编剧时无人响应，《密档》获金鸡奖最佳导演时掌声一片，你怎么看？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [如何看待《后会友期》中文吉儿一句「顺我一下」，最终让所有人等到晚上9点才吃上饭这件事？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [" 1 ＋0 ＝10 "](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [顾客尝了口面整碗扔垃圾桶付钱走人](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [曝魏晨被雪藏的原因](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [Faker 采访称「我们不可能一直是冠军，更看好决赛 GEN 能赢」，为什么今年 GEN 评价如此高？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [圆周率中可能存在100万个连续的0吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [专家称今冬我国大部大概率是暖冬但寒潮偏多，该如何从气象学角度上理解这一结论？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [笑点一高大事件](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [S16中韩终极对决 凌晨3点见](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [刘耀文独家直播全程回顾：文火慢聊【2026时代少年团系列直播】](http://www.daogukj.com/epcjcrex/)
-- [超5万人请愿黄仁勋复职](http://www.movie.hkepx.cn/xiju/7554306.htm)
-- [赵本山主演喜剧《走马上任》开播，该剧口碑如何，有哪些亮点与不足？](http://www.daogukj.com/7098171)
-- [多地高中严格执行周末双休、厅长公开表示对学生太累深感愧疚，江苏教育这次突然的大动作是何原因？](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
+- [《给阿嬷的情书》获金鸡奖最佳编剧时无人响应，《密档》获金鸡奖最佳导演时掌声一片，你怎么看？](http://www.daogukj.com/epcjcrex/)
+- [院长称每年拒绝超10万想做飞秒患者](http://www.movie.hkepx.cn/xiju/7554306.htm)
+- [日本3-2巴西全场数据](http://www.daogukj.com/7098171)
+- [马化腾曾坦言腾讯AI「上了船才发现船漏水」，如今又把员工分成陆军和海军，这释放了什么信号？](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
 - [【独家】《凡人修仙传之慕兰之战》第24集【总第200集】](http://www.daogukj.com/5595330)
-- [奔驰女司机借300元加油钱后手机关机](http://www.movie.hkepx.cn/xiju/4881611.htm)
-- [黄仁勋还能重返英伟达吗？](http://www.daogukj.com/2794428)
-- [曝娜然怀孕了](http://www.movie.hkepx.cn/movie/0220033.htm)
-- [当家里的大肥鱼被饿了好几个小时以后](http://www.daogukj.com/3787812)
-- [赵本山《慌啥子嘛》上线](http://www.movie.hkepx.cn/movie/2410306.htm)
-- [向太疑惑许飞为何当时不解开误会](http://www.movie.hkepx.cn/movie/4961738.htm)
-- [于东来称胖东来将就洗发水争议出调研报告，消费者该关注哪些信息？](http://www.movie.hkepx.cn/xiju/4077836.htm)
-- [AI短剧《梦回红楼》被指侵害17位演员肖像，还魔改出林黛玉掌掴薛宝钗等情节，制作方要承担哪些法律责任？](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
-- [曝魏晨被雪藏的原因](http://www.daogukj.com/rrqdxtcv/)
-- [英伟达临时CEO被曝是制衡黄仁勋的重要力量，是唯一一位给AI投资唱反调的人，她会给英伟达带来哪些变化？](http://www.daogukj.com/5407672)
-- [动物:苦日子终于到头了！！！](http://www.daogukj.com/9043091)
-- [BLG VLOG | 决赛我们来了](http://www.daogukj.com/9116005)
-- [大美晒受伤照片](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
-- [南京零元面馆改为仅4类人群免费](http://www.daogukj.com/eqgomafp/)
-- [国产芯片迎来窗口期了吗](http://www.daogukj.com/7605991)
-- [原价129万一支的天价药进医保了](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
-- [奔驰司机借300元加油钱后手机关机](http://www.movie.hkepx.cn/movie/4360714.htm)
-- [曝娱乐圈下周会发生一次世纪大和解](http://www.daogukj.com/4727961)
-- [4人造谣“几十亩蔬菜随便挖”被罚](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
-- [范丞丞回复了宋亚轩](http://www.movie.hkepx.cn/xiju/3457747.htm)
-- [Vibe知识大赏 | 挣钱的本质](http://www.movie.hkepx.cn/movie/9116389.htm)
-- [原价129万/支的天价药进医保了](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
-- [上班时才知道昨天同事聚餐了，但是没有叫我，是什么情况？](http://www.movie.hkepx.cn/movie/6275425.htm)
-- [APEC独特的“亚太模式”](http://www.daogukj.com/6962158)
-- [林黛玉吃五香大头菜是败笔吗？](http://www.movie.hkepx.cn/movie/3536173.htm)
-- [多家银行关停信用卡等App](http://www.daogukj.com/5602314)
-- [有可以单独猎杀体重大于自身数倍甚至十数倍的动物吗？](http://www.daogukj.com/rhzksqyv/)
-- [马斯克卫星为何遇到麻烦](http://www.daogukj.com/ciddvmwp/)
-- [怎么看 DeepSeek 发布全家桶 API，这个价格你接受吗？](http://www.movie.hkepx.cn/xiju/5158718.htm)
-- [你的旧手机号可能被别人用来消费](http://www.movie.hkepx.cn/xiju/4192777.htm)
-- [男子自己做饭1年逆转糖尿病](http://www.movie.hkepx.cn/xiju/6976677.htm)
-- [90后女老师转行汽修年入千万](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
-- [白宫：中美俄领导人计划APEC期间会晤](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
-- [国乒单打4人输外协](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
-- [如何看金价走势](http://www.daogukj.com/3262256)
-- [仙洋为大美发声](http://www.daogukj.com/2924239)
-- [大暴雪特大暴雪 断崖式降温来了](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
-- [AI主播泛滥 凌晨1点后3分钟推送4个](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
-- [《给阿嬷的情书》获金鸡奖最佳编剧时无人响应，《密档》获金鸡奖最佳导演时掌声一片，你怎么看？](http://www.daogukj.com/cszxbbqq/)
-- [耗资上万！我把匠魂做进了网页版mc... 【B站AI创造公开赛】](http://www.movie.hkepx.cn/movie/9183199.htm)
-- [美国因出现特殊情况及安全原因，所有航班一度暂停起飞，目前停飞令已解除，具体情况如何？造成影响有多大？](http://www.daogukj.com/zmttmgkb/)
-- [全看过的这辈子有了](http://www.movie.hkepx.cn/xiju/7610500.htm)
-- [男子误购2.3万机票几分钟后退票被扣1万](http://www.movie.hkepx.cn/xiju/6364739.htm)
-- [瑞幸越来越不像一家咖啡公司了](http://www.daogukj.com/5178801)
-- [动荡世界中的三国三味，如何看国际战乱和后美国时代的国际秩序转变|一起看世界](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
+- [WB夺冠](http://www.movie.hkepx.cn/xiju/4881611.htm)
+- [职场里，你的能力、人脉都被同事下属认可，但领导不赞同导致晋升落空，你怎么办？](http://www.daogukj.com/2794428)
+- [【祸津神】被献祭的少女啊，为何露出微笑](http://www.movie.hkepx.cn/movie/0220033.htm)
+- [为什么要偶尔带孩子去外面吃饭？](http://www.daogukj.com/3787812)
+- [许飞直接红温了](http://www.movie.hkepx.cn/movie/2410306.htm)
+- [打印店老板堪比AI](http://www.movie.hkepx.cn/movie/4961738.htm)
+- [男子上门推拿加钟时性侵技师获刑](http://www.movie.hkepx.cn/xiju/4077836.htm)
+- [王钰栋打破国足全队307分钟进球荒](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
+- [S16中韩终极对决 凌晨3点见](http://www.daogukj.com/rrqdxtcv/)
+- [乌鲁木齐禁售马肉马肠制品？假的](http://www.daogukj.com/5407672)
+- [【2026全球总决赛】UP主赛前应援BLG，风起今朝，不留遗憾！](http://www.daogukj.com/9043091)
+- [抽象新闻：11月人类迷惑行为大赏（上）](http://www.daogukj.com/9116005)
+- [MCN摆拍骑手悲惨遭遇实为卖翡翠](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
+- [杨清柠 王乐乐](http://www.daogukj.com/eqgomafp/)
+- [马来西亚进球被吹](http://www.daogukj.com/7605991)
+- [国足马来西亚爆发大规模冲突](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
+- [岩浆岛二选一，树苗还是钻石剑？？？①](http://www.movie.hkepx.cn/movie/4360714.htm)
+- [58岁男子性侵上门推拿技师获刑](http://www.daogukj.com/4727961)
+- [刘耀文独家直播全程回顾：文火慢聊【2026时代少年团系列直播】](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
+- [S16总决赛首发名单](http://www.movie.hkepx.cn/xiju/3457747.htm)
+- [为什么古人说吃亏是福？](http://www.movie.hkepx.cn/movie/9116389.htm)
+- [结束3连败！国足2-0马来西亚](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
+- [曝娜然怀孕了](http://www.movie.hkepx.cn/movie/6275425.htm)
+- [APEC如何走进你我生活](http://www.daogukj.com/6962158)
+- [持械入宋第十一季](http://www.movie.hkepx.cn/movie/3536173.htm)
+- [如果小时候幻想过的职业真的成真了？会是怎样？](http://www.daogukj.com/5602314)
+- [中国乘客亲历全美停飞以为被空袭](http://www.daogukj.com/rhzksqyv/)
+- [孙悦婚礼孙卓落泪拥抱姐姐](http://www.daogukj.com/ciddvmwp/)
+- [美国因出现特殊情况及安全原因，所有航班一度暂停起飞，目前停飞令已解除，具体情况如何？造成影响有多大？](http://www.movie.hkepx.cn/xiju/5158718.htm)
+- [百 集 翻 转](http://www.movie.hkepx.cn/xiju/4192777.htm)
+- [杨洋陈都灵车内吻戏路透](http://www.movie.hkepx.cn/xiju/6976677.htm)
+- [一袋垃圾能给手机充电50次](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
+- [国足与马来西亚爆发大面积冲突](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
+- [海陆瘦20斤再扮紫薇](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
+- [Gemini压谁谁输](http://www.daogukj.com/3262256)
+- [洗发水陷假洋牌争议 于东来正面回应](http://www.daogukj.com/2924239)
+- [Vibe知识大赏 | 挣钱的本质](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
+- [终结三连败！国足2比0战胜马来西亚](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
+- [Faker 采访称「我们不可能一直是冠军，更看好决赛 GEN 能赢」，为什么今年 GEN 评价如此高？](http://www.daogukj.com/cszxbbqq/)
+- [⚡️黄仁勋 辞职巡演⚡️【AI MV大赛】](http://www.movie.hkepx.cn/movie/9183199.htm)
+- [多地网约车司机称被特惠车、一口价订单逼「疯」，不开特惠单就变少，怎样才能让乘客打车实惠、司机有单可接？](http://www.daogukj.com/zmttmgkb/)
+- [【TF家族练习生】《TLOG》17：11月日常训练实录](http://www.movie.hkepx.cn/xiju/7610500.htm)
+- [大美妈妈回应](http://www.movie.hkepx.cn/xiju/6364739.htm)
+- [国足比赛裁判惹众怒](http://www.daogukj.com/5178801)
+- [DeepSeek harness相比codex有什么劣势？](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
 
 </details>
 
 ## 原始来源
 
-- [马化腾曾坦言腾讯AI「上了船才发现船漏水」，如今又把员工分成陆军和海军，这释放了什么信号？](https://www.zhihu.com/question/2104265147606889514)
+- [《持械入宋》制片人称算力投入超百万且没投流，团队每部短剧都盈利，怎样看待这一高收益性？哪些思路能借鉴？](https://www.zhihu.com/question/2104167693242691717)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 14336520eb9af2bd1f2c -->
+<!-- content-fingerprint: 80e3b06f01baac0ad467 -->
