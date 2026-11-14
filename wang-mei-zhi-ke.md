@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 芒果还有这么多爆点没放出来
+# 全校仅50多岁教师一人自愿当班主任
 
-> 来源：微博热搜 · 排名：第 5 位 · 热度：69236 · 分类：综艺 · 更新：2026-11-14T05:33:09+08:00
+> 来源：微博热搜 · 排名：第 5 位 · 热度：602474 · 分类：教育 · 更新：2026-11-14T09:45:21+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“芒果还有这么多爆点没放出来”位列第 5 位，公开热度指标为 69236，榜单分类为“综艺”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“全校仅50多岁教师一人自愿当班主任”位列第 5 位，公开热度指标为 602474，榜单分类为“教育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `综艺`
+`微博热搜` `实时热搜` `热点资讯` `教育`
 
 ## 相关热点
 
-- [医生用AI发现41名无症状肠癌患者](wen-ji-qi-wu.md)
-- [重庆通报「帮连吃 7 碗米饭母女放钱」视频系摆拍已立案，这类虚假摆拍该承担哪些法律责任？](wo-xin-chang-dan.md)
+- [美国全国性地面停飞令已解除](wen-ji-qi-wu.md)
+- [为什么国内止痛药普遍使用布洛芬而不是阿司匹林？](wo-xin-chang-dan.md)
 - [你们外卖还有陪聊服务吗？](po-fu-chen-zhou.md)
-- [零元面馆附近商户：确实伤害到我们了](bei-shui-yi-zhan.md)
+- [“美国茅台”再创新高](bei-shui-yi-zhan.md)
 
 ## 站内推荐
 
 - [APEC时隔12年再次来到中国](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [芒果把这段放出来](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [老板假装扫了500余次付款码](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
 - [产妇求剖腹产遭拒孩子脑瘫丈夫发声](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [肖战我不是肖战](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [黄仁勋旧访谈称CEO也可能被解雇](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [媒体：别让秋假成为甜蜜的烦恼](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [vibe知识大赏：岳飞](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [英伟达高开低走 迅速转跌](http://www.play.hengshemaoyi.cn/kongbu/8974730.htm)
-- [啄木鸟前维修工人称平台考核严苛](http://www.play.hengshemaoyi.cn/kongbu/4377320.htm)
-- [苹果调整以旧换新价格](http://www.daogukj.com/mhxkhqlr/)
-- [汪明荃演唱会听歌吃席两不误](http://www.daogukj.com/vttuxixa/)
-- [动物:苦日子终于到头了！！！](http://www.daogukj.com/cqpthmbw/)
+- [王忠林被查 武汉市委表态](http://www.play.hengshemaoyi.cn/kongbu/8974730.htm)
+- [《请回答1988》善宇扮演者酒驾](http://www.play.hengshemaoyi.cn/kongbu/4377320.htm)
+- [杭州老板帮老外脱毛 年收入超7亿](http://www.daogukj.com/mhxkhqlr/)
+- [艾薇儿官宣生女](http://www.daogukj.com/vttuxixa/)
+- [英伟达临时CEO是制衡黄仁勋重要力量](http://www.daogukj.com/cqpthmbw/)
 - [你们外卖还有陪聊服务吗？](http://www.movie.hkepx.cn/xiju/9477503.htm)
-- [芒果把这段放出来](http://www.daogukj.com/7088546)
-- [黄仁勋算是美国中期选举的牺牲品吗？为什么偏偏是他？](http://www.play.hengshemaoyi.cn/kongbu/2897383.htm)
-- [臣妾要线上告发熹贵妃 2.0](http://www.daogukj.com/lcwjhtor/)
-- [THANK YOU nobody](http://www.play.hengshemaoyi.cn/xiju/4203206.htm)
-- [零元面馆附近商户：确实伤害到我们了](http://www.movie.hkepx.cn/xiju/2909346.htm)
-- [爽哥心疼大美](http://www.daogukj.com/7785768)
-- [零元面馆老板：愿全额补偿受损商户](http://www.daogukj.com/1079050)
-- [离谱答案大合集4](http://www.daogukj.com/cfcdbnes/)
-- [曝魏晨被雪藏的原因](http://www.movie.hkepx.cn/xiju/5548290.htm)
-- [“一代腿王”黄正利去世](http://www.movie.hkepx.cn/movie/6459598.htm)
-- [男子年年体检血糖正常却查出糖尿病](http://www.movie.hkepx.cn/movie/8145475.htm)
-- [脑瘫男子练武多年：生活难就多试几回](http://www.movie.hkepx.cn/movie/6792790.htm)
-- [《后会友期》聊天提及写序时，王子璇说「我下次还会收费」，如何看待这一态度？这算彻底放下了吗？](http://www.movie.hkepx.cn/xiju/5785622.htm)
-- [江西有自己的“秋名山车神”](http://www.play.hengshemaoyi.cn/xiju/0943328.htm)
-- [冬天洗澡多久一次最好](http://www.daogukj.com/6160997)
-- [黄仁勋旧访谈称CEO也可能被解雇](http://www.play.hengshemaoyi.cn/kongbu/9533347.htm)
-- [你是否对《崩坏：星穹铁道》4.7剧情里归寂的塑造而落泪？一个成功的反派是否决定了剧情精彩程度的上限？](http://www.daogukj.com/6158458)
+- [老板假装扫了500余次付款码](http://www.daogukj.com/7088546)
+- [把苏德拼好给你｜6分钟看完二战苏德战场](http://www.play.hengshemaoyi.cn/kongbu/2897383.htm)
+- [刘宇宁 归期雨抄高音获赞](http://www.daogukj.com/lcwjhtor/)
+- [Lisa似乎不再是以前那个Lisa了](http://www.play.hengshemaoyi.cn/xiju/4203206.htm)
+- [“美国茅台”再创新高](http://www.movie.hkepx.cn/xiju/2909346.htm)
+- [重庆通报「帮连吃 7 碗米饭母女放钱」视频系摆拍已立案，这类虚假摆拍该承担哪些法律责任？](http://www.daogukj.com/7785768)
+- [多兰：你是不是想踢了我？【AI全民制作人】](http://www.daogukj.com/1079050)
+- [在这里，万亿吨水被强行灌进火山……【地理志】](http://www.daogukj.com/cfcdbnes/)
+- [2027英雄联盟赛事举办地公布](http://www.movie.hkepx.cn/xiju/5548290.htm)
+- [动态视频｜全网最高画质第一人称逛展，会拍到啥？](http://www.movie.hkepx.cn/movie/6459598.htm)
+- [赖清德支持推倒的孙中山铜像重竖](http://www.movie.hkepx.cn/movie/8145475.htm)
+- [奚梦瑶何猷君女儿5岁身高](http://www.movie.hkepx.cn/movie/6792790.htm)
+- [父亲动手打孩子路过女子心疼到崩溃](http://www.movie.hkepx.cn/xiju/5785622.htm)
+- [Outlook崩了日本政府改用电话工作](http://www.play.hengshemaoyi.cn/xiju/0943328.htm)
+- [中国总理时隔7年访问 泰总理接机](http://www.daogukj.com/6160997)
+- [vibe知识大赏：岳飞](http://www.play.hengshemaoyi.cn/kongbu/9533347.htm)
+- [为什么楚国被攻下首都和陪都后还能存活五十余年？](http://www.daogukj.com/6158458)
 - [山西大同采空区塌陷引发强震系谣言](http://www.daogukj.com/vgxpewvp/)
-- [何超琼称「不是让一百个人来澳门一次，而是希望一个人来一百次」，如何看待这一旅游发展理念？](http://www.play.hengshemaoyi.cn/xiju/6603798.htm)
-- [可以莫名其妙在这里留下一个料理小技巧吗？](http://www.daogukj.com/3242581)
-- [如何评价11月13日上市的问界新M8，售价37.98万元起，这一价格在如今的市场有竞争力嘛？](http://www.play.hengshemaoyi.cn/xiju/5213102.htm)
-- [曝Zeus和T1签约3年打到Faker退役](http://www.play.hengshemaoyi.cn/xiju/3584736.htm)
-- [《蓝色星原：旅谣》公测预告PV](http://www.daogukj.com/sqzoiroq/)
+- [Ruler或Viper如果此次S16夺冠，其历史地位是否会超过Bang？](http://www.play.hengshemaoyi.cn/xiju/6603798.htm)
+- [巨型生物袭击村庄，而你却孤身一人！面对你的只有绝望！](http://www.daogukj.com/3242581)
+- [如何评价清华大学 2026 年本科生特等奖学金的 15 名候选人？](http://www.play.hengshemaoyi.cn/xiju/5213102.htm)
+- [明明跟梁家辉一起演的《捕风追影》，戏份也不少，为啥成龙没有奖项提名？](http://www.play.hengshemaoyi.cn/xiju/3584736.htm)
+- [离谱答案大合集4](http://www.daogukj.com/sqzoiroq/)
 - [极致的走线！](http://www.daogukj.com/9537822)
-- [在这里，万亿吨水被强行灌进火山……【地理志】](http://www.movie.hkepx.cn/xiju/6723827.htm)
-- [大疆宣布涨价](http://www.daogukj.com/3855937)
-- [假如你有一天醒来，发现穿越成了《哈利波特》中的汤姆里德尔，你该怎么生存下去？](http://www.play.hengshemaoyi.cn/kongbu/9163230.htm)
+- [臭肥鱼害我把情书交给辅导员了！【人和肥鱼03】](http://www.movie.hkepx.cn/xiju/6723827.htm)
+- [SpaceX要把火箭发射的两级都接回来](http://www.daogukj.com/3855937)
+- [英伟达女员工哭了](http://www.play.hengshemaoyi.cn/kongbu/9163230.htm)
 - [山西大同采空区塌陷引地震不实](http://www.movie.hkepx.cn/xiju/5655654.htm)
-- [动态视频｜全网最高画质第一人称逛展，会拍到啥？](http://www.movie.hkepx.cn/movie/8750130.htm)
-- [飞秒手术要降价了](http://www.movie.hkepx.cn/xiju/2707701.htm)
-- [磁带怎么突然打赢复活赛了](http://www.movie.hkepx.cn/movie/1592539.htm)
-- [有用版新僵尸：慈祥二爷](http://www.movie.hkepx.cn/movie/4182339.htm)
-- [在图书馆里面看闲书而不是刷题/工作/自习的人，到底是怎么想的？](http://www.movie.hkepx.cn/movie/9304746.htm)
-- [女子刮痧脖上刮出3条大血印](http://www.movie.hkepx.cn/xiju/4345913.htm)
-- [今何在 江南](http://www.daogukj.com/4645764)
+- [南京零元面馆改为仅4类人群免费](http://www.movie.hkepx.cn/movie/8750130.htm)
+- [英伟达创2012年以来最长连跌纪录](http://www.movie.hkepx.cn/xiju/2707701.htm)
+- [美高官回应全美停飞：非又一次9·11](http://www.movie.hkepx.cn/movie/1592539.htm)
+- [耗资上万！我把匠魂做进了网页版mc... 【B站AI创造公开赛】](http://www.movie.hkepx.cn/movie/4182339.htm)
+- [蜀汉政权为什么没有产生篡国的权臣？是刘禅大智若愚吗？](http://www.movie.hkepx.cn/movie/9304746.htm)
+- [我国严禁任何形式代孕](http://www.movie.hkepx.cn/xiju/4345913.htm)
+- [75年后，他终于带上牺牲的战友去北京看天安门了](http://www.daogukj.com/4645764)
 - [APEC时隔12年再次来到中国](http://www.play.hengshemaoyi.cn/kongbu/0822089.htm)
-- [酒后这3个信号说明不适合喝酒](http://www.movie.hkepx.cn/movie/5783118.htm)
-- [为什么刘欢在死亡证明上的死因是「感染性休克」而非「膀胱癌」呢？](http://www.daogukj.com/lwnrprkt/)
-- [深夜徐老师怀孕](http://www.play.hengshemaoyi.cn/kongbu/5185531.htm)
-- [赛力斯豪掷15亿元爆改问界M8](http://www.movie.hkepx.cn/movie/2979840.htm)
+- [⚡️黄仁勋 辞职巡演⚡️【AI MV大赛】](http://www.movie.hkepx.cn/movie/5783118.htm)
+- [特朗普：空管系统故障与网络攻击无关](http://www.daogukj.com/lwnrprkt/)
+- [男孩玩手机肘击奶奶被妈妈用胶带绑起](http://www.play.hengshemaoyi.cn/kongbu/5185531.htm)
+- [原来李宇春是井柏然的老板](http://www.movie.hkepx.cn/movie/2979840.htm)
 - [产妇求剖腹产遭拒孩子脑瘫丈夫发声](http://www.play.hengshemaoyi.cn/xiju/1695379.htm)
-- [大衣哥称不直播带货：把控不了产品](http://www.movie.hkepx.cn/movie/2967061.htm)
-- [这辅助塞恩太夸张了！](http://www.daogukj.com/bhbjtzul/)
-- [刘耀文的占有欲有多强](http://www.movie.hkepx.cn/xiju/2010354.htm)
+- [李天阳 男单8强国乒独苗](http://www.movie.hkepx.cn/movie/2967061.htm)
+- [有用版新僵尸：慈祥二爷](http://www.daogukj.com/bhbjtzul/)
+- [怎么看 DeepSeek 发布全家桶 API，这个价格你接受吗？](http://www.movie.hkepx.cn/xiju/2010354.htm)
 
 </details>
 
 ## 原始来源
 
-- [芒果还有这么多爆点没放出来](https://s.weibo.com/weibo?q=%E8%8A%92%E6%9E%9C%E8%BF%98%E6%9C%89%E8%BF%99%E4%B9%88%E5%A4%9A%E7%88%86%E7%82%B9%E6%B2%A1%E6%94%BE%E5%87%BA%E6%9D%A5)
+- [全校仅50多岁教师一人自愿当班主任](https://s.weibo.com/weibo?q=%E5%85%A8%E6%A0%A1%E4%BB%8550%E5%A4%9A%E5%B2%81%E6%95%99%E5%B8%88%E4%B8%80%E4%BA%BA%E8%87%AA%E6%84%BF%E5%BD%93%E7%8F%AD%E4%B8%BB%E4%BB%BB)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 699da3878b082cac8622 -->
+<!-- content-fingerprint: fdb148947c563bba61b3 -->
