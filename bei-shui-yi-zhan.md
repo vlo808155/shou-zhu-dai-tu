@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# BLG获得100万美元奖金
+# 28岁男子抱着刚出生亲弟弟笑不出来
 
-> 来源：微博热搜 · 排名：第 6 位 · 热度：615335 · 分类：电竞 · 更新：2026-11-16T17:25:45+08:00
+> 来源：百度热搜 · 排名：第 5 位 · 热度：7327559 · 更新：2026-11-17T03:46:16+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“BLG获得100万美元奖金”位列第 6 位，公开热度指标为 615335，榜单分类为“电竞”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“28岁男子抱着刚出生亲弟弟笑不出来”位列第 5 位，公开热度指标为 7327559。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：11月16日，浙江一女子发视频称，自己28岁的老公喜提一个刚出生的亲弟弟，画面里该男子一脸生无可恋，毫无笑容。女子透露，47岁的婆婆正在坐月子，这是婆婆生的第三胎，而她自己的儿子都快3岁了。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `电竞`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [女子取出金条为母亲打85克金手镯](zhi-shang-tan-bing.md)
-- [猪肉价格跌到10年新低，背后的原因是啥？猪肉巨头纷纷预期猪价明年或上涨，猪周期筑底还需多久？](wei-wei-jiu-zhao.md)
-- [术式反转久留美 【泛式】](wan-bi-gui-zhao.md)
-- [科技股现跌停潮不少股民爆仓](fu-jing-qing-zui.md)
+- [吃了点didi喂](zhi-shang-tan-bing.md)
+- [老外被深圳一条马路惊艳到](wei-wei-jiu-zhao.md)
+- [你在明白什么道理后，你不再焦虑了？](wan-bi-gui-zhao.md)
+- [《 专 业 对 口 》](fu-jing-qing-zui.md)
 
 ## 站内推荐
 
-- [林一一开始不太喜欢卢昱晓](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [Knight投票支持Bin选格温皮肤](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [为什么这次 BLG 夺冠后解说和观众都冷静了许多，没有再大规模造「第一赛区」画面了？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [9月9日](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [虞书欣围裙照删除了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [俄女记者：深圳见机器人概率比老乡高](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [泄密的副部级 受贿数额特别巨大](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [被虞书欣起诉网友发文](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [你怎么看，92%班主任不愿在岗、年轻教师拒任，为何班主任岗位遇冷？有什么解法吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [字节被曝正研发「中国版Muse」，Personal Agent会成为大厂争夺的新方向吗？字节有何优势？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [中国女保镖贴身保护墨西哥总统](http://www.play.hengshemaoyi.cn/kongbu/0102137.htm)
-- [沪指险守3600点](http://www.movie.hkepx.cn/xiju/5709027.htm)
-- [【伪纪录片】镜 化](http://www.daogukj.com/ptmfwdkn/)
-- [女子假扮男性与女友恋爱19年](http://www.movie.hkepx.cn/xiju/7509997.htm)
-- [如何看待日本玩家吐槽《影之刃零》汉字名难读，出海翻译是否需要有假名注音？](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
+- [墨总统交叉双臂抱于胸前有何深意](http://www.play.hengshemaoyi.cn/kongbu/0102137.htm)
+- ["这一刻的故事由我们执笔..."](http://www.movie.hkepx.cn/xiju/5709027.htm)
+- [“46块3，问清一条规则。”](http://www.daogukj.com/ptmfwdkn/)
+- [黄金左手！一穿四LCK夺冠，从隐身骂名，到LPL国产中单的终极门面【S16冠军纪念】](http://www.movie.hkepx.cn/xiju/7509997.htm)
+- [刘德华自曝1年没拍戏](http://www.play.hengshemaoyi.cn/kongbu/7350605.htm)
 - [中俄美元首会晤将在深圳举行](http://www.movie.hkepx.cn/xiju/7276031.htm)
-- [《复联暴雨末日》合集【AI全民制作人】](http://www.daogukj.com/qxoqgypn/)
-- [BLG 夺得 S16 总决赛冠军，你心目中的 FMVP 选手是谁？](http://www.daogukj.com/2637140)
-- [用美式乡村讲中国故事（二）](http://www.daogukj.com/lcagyyzr/)
-- [虞书欣围裙照删除了](http://www.daogukj.com/nckagbek/)
-- [Peanut参加S赛冠军都是LCK](http://www.movie.hkepx.cn/movie/0871738.htm)
-- [三年之期已到，恭迎世一上归位！【第18集】](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
-- [煮茶叶蛋时为什么不剥皮？剥皮后泡一晚不是更入味吗？](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
-- [林一一开始不太喜欢卢昱晓](http://www.daogukj.com/kwifztpg/)
-- [50克大金镯子暴跌27000元](http://www.movie.hkepx.cn/movie/5703439.htm)
-- [2026 APEC 深圳峰会即将举办，有哪些值得关注的看点？](http://www.daogukj.com/ifbvcvnj/)
-- [西乙门将奥沃诺因暴力犯规致对手德米格尔死亡，其被顶格禁赛 12 场+罚款，这一判罚尺度是否合理？](http://www.daogukj.com/6568203)
-- [Lisa赌场表演争议](http://www.daogukj.com/0211136)
-- [最近四川严查 3C 认证、税务、假冒、社保等，据说很多商家都关门了，为什么会突然严查了？](http://www.movie.hkepx.cn/xiju/0370085.htm)
-- [上海集中涌现「个人学校」，采用小班、一人一课表和专属导师制，究竟是模式创新，还是传统脱产班换了个包装？](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
-- [意念控制！推倒巨型多米诺！](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
-- [虞书欣围裙 国外博主原图](http://www.movie.hkepx.cn/xiju/4676858.htm)
-- [日本23岁女演员中田乃爱突然去世](http://www.movie.hkepx.cn/movie/9996697.htm)
-- [中俄美元首会晤一官宣俄记者就被包围](http://www.movie.hkepx.cn/xiju/2854874.htm)
-- [科技股现跌停潮不少股民爆仓](http://www.daogukj.com/crhtjcoa/)
-- [Morning, Sardinia](http://www.movie.hkepx.cn/xiju/5398219.htm)
-- [外国友人眼中的APEC“中国年”](http://www.movie.hkepx.cn/xiju/9887508.htm)
-- [中俄美元首将在深圳举行会晤，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/6315447.htm)
-- [李在明启程参加东盟峰会、APEC会议](http://www.movie.hkepx.cn/movie/8094400.htm)
+- [BLG夺得S16总冠军，如何评价BLG各选手在国际上和LPL史上的地位？](http://www.daogukj.com/qxoqgypn/)
+- [为什么手指永远无法相互触碰](http://www.daogukj.com/2637140)
+- [深圳主打一个听劝](http://www.daogukj.com/lcagyyzr/)
+- [字节被曝正研发「中国版Muse」，Personal Agent会成为大厂争夺的新方向吗？字节有何优势？](http://www.daogukj.com/nckagbek/)
+- [西乙门将奥沃诺因暴力犯规致对手德米格尔死亡，其被顶格禁赛 12 场+罚款，这一判罚尺度是否合理？](http://www.movie.hkepx.cn/movie/0871738.htm)
+- [亚马尔澄清函全文](http://www.play.hengshemaoyi.cn/kongbu/6159305.htm)
+- [中俄美元首将在深圳举行会晤，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/7027628.htm)
+- [俄女记者：深圳见机器人概率比老乡高](http://www.daogukj.com/kwifztpg/)
+- [BLG决战GEN！全4局2万字复盘!不玩游戏也能看懂！恭喜BLG夺得S16冠军！](http://www.movie.hkepx.cn/movie/5703439.htm)
+- [金价跌回一年前 黄金定价逻辑变了吗](http://www.daogukj.com/ifbvcvnj/)
+- [山东一废弃酒店负一层暗藏百米盗洞](http://www.daogukj.com/6568203)
+- [新007是帕丁森](http://www.daogukj.com/0211136)
+- [如何看待工信部试点「700」号段防骚扰？初衷虽好，但真能解决平台泄露隐私的根源问题吗？](http://www.movie.hkepx.cn/xiju/0370085.htm)
+- [日本23岁女演员中田乃爱突然去世](http://www.play.hengshemaoyi.cn/xiju/9788831.htm)
+- [以后都给你打九九折](http://www.play.hengshemaoyi.cn/kongbu/6930773.htm)
+- [波兰小伙自灭满门后景区屠杀，警界战神丝血反杀，国宝神医逆天改命！【2026年波兰克拉科夫枪击案详解】](http://www.movie.hkepx.cn/xiju/4676858.htm)
+- [刘耀文刷到了自己吃蓝莓的视频](http://www.movie.hkepx.cn/movie/9996697.htm)
+- [106岁父亲和86岁女儿分享长寿秘诀](http://www.movie.hkepx.cn/xiju/2854874.htm)
+- [《 专 业 对 口 》](http://www.daogukj.com/crhtjcoa/)
+- [为什么在 S16 几乎所有人都不看好的情况下，LPL 反而两支队伍跻身四强，最后还爆冷夺冠了？](http://www.movie.hkepx.cn/xiju/5398219.htm)
+- [APEC离我们的生活有多远](http://www.movie.hkepx.cn/xiju/9887508.htm)
+- [如何看待清华特等奖学金答辩中，候选人被问「为什么三年绩点越来越低」？大学生的优秀到底应该如何评判？](http://www.play.hengshemaoyi.cn/xiju/6315447.htm)
+- [Morning, Sardinia](http://www.movie.hkepx.cn/movie/8094400.htm)
 - [中俄美元首将首次面对面会晤](http://www.movie.hkepx.cn/movie/8053500.htm)
-- [前护士张水华 2026 南昌马拉松夺冠，赛后称「感冒了跑下来有点吃力」，如何评价她的表现？](http://www.movie.hkepx.cn/xiju/8733503.htm)
-- [中俄美元首即将会晤 释放强烈信号](http://www.play.hengshemaoyi.cn/kongbu/6039715.htm)
-- [有没有一个人，你曾经以为会做一辈子朋友，后来却连问候都找不到理由？](http://www.daogukj.com/9356439)
-- [命运让他们彼此对立，也让他们彼此靠近｜上](http://www.daogukj.com/ianqofdj/)
-- [美媒深度解读“奇迹之城”深圳崛起](http://www.daogukj.com/sizrvcao/)
-- [相恋19年才发现男友是女的](http://www.play.hengshemaoyi.cn/xiju/7255725.htm)
-- [【时间啊，向前！】TL-S-1至TL-S-4突袭 摆完挂机 简单好抄](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
-- [80岁了 爷爷奶奶去离婚](http://www.daogukj.com/rwxeygms/)
-- [中国贸易伙伴网如何越织越密](http://www.play.hengshemaoyi.cn/kongbu/9837059.htm)
-- [媒体：AI仿本山玩梗有风险](http://www.daogukj.com/2160602)
-- [女子健身半年 竟然两次真菌感染](http://www.play.hengshemaoyi.cn/kongbu/7208069.htm)
-- [“成华大道没有「烂奇迹」”](http://www.movie.hkepx.cn/movie/2235201.htm)
-- [媒体曝光后立即整改 要是没曝光呢](http://www.play.hengshemaoyi.cn/kongbu/1046080.htm)
-- [周杰伦演唱会580元仅支持看大屏](http://www.movie.hkepx.cn/xiju/2538742.htm)
-- [术式反转久留美 【泛式】](http://www.daogukj.com/9489918)
-- [攒了18年的广东红包 只拆出8523元](http://www.movie.hkepx.cn/xiju/2931592.htm)
-- [如何看待 Chovy 总决赛对线仅 1 分钟就被 Knight 发现不对劲并施加「弱者标记」？](http://www.daogukj.com/ottjwhke/)
-- [那些与气象相关的不靠谱说法](http://www.movie.hkepx.cn/movie/7215484.htm)
-- [《立贤不立长》](http://www.movie.hkepx.cn/xiju/4060244.htm)
-- [如何看待《凡人修仙传》200集被吐槽注水，整集桃林对话、新增大量暧昧戏份，冲淡韩立苟道人设？](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
+- [中俄美元首即将会晤释放强烈信号](http://www.movie.hkepx.cn/xiju/8733503.htm)
+- [墨总统3次交叉双臂抱于胸前有何深意](http://www.play.hengshemaoyi.cn/kongbu/6039715.htm)
+- [直播间演员冒充家长制造焦虑](http://www.daogukj.com/9356439)
+- [刘欢曾称宁死不背尿袋拒绝切膀胱，这类选择有哪些医疗风险？](http://www.daogukj.com/ianqofdj/)
+- [宣布一下，我也当爸爸了！](http://www.daogukj.com/sizrvcao/)
+- [怎么看外媒曝 Anthropic IPO拒绝向中国内地和中国香港的投资者分配股份 ？](http://www.play.hengshemaoyi.cn/xiju/7255725.htm)
+- [波司登羽绒服被吐槽雷霆审美](http://www.play.hengshemaoyi.cn/kongbu/1848230.htm)
+- [大牙|| 肖8选择题精讲带背（第一套卷），全网讲解最清晰，专治零基础！](http://www.daogukj.com/rwxeygms/)
+- [一组图速览APEC](http://www.play.hengshemaoyi.cn/kongbu/9837059.htm)
+- [于东来：给管理层再买310辆坦克700](http://www.daogukj.com/2160602)
+- [中俄美元首深圳会晤何以促成](http://www.play.hengshemaoyi.cn/kongbu/7208069.htm)
+- [《天下足球》播出 C 罗告别国家队特别节目《孤勇者》，如何评价这期节目？](http://www.movie.hkepx.cn/movie/2235201.htm)
+- [砒霜是怎么成为治疗癌症救命神药的](http://www.play.hengshemaoyi.cn/kongbu/1046080.htm)
+- [星铁表面在讲「欢愉」，实际在讲200年前的哲学史【底层代码】](http://www.movie.hkepx.cn/xiju/2538742.htm)
+- [你在明白什么道理后，你不再焦虑了？](http://www.daogukj.com/9489918)
+- [【伪纪录片】镜 化](http://www.movie.hkepx.cn/xiju/2931592.htm)
+- [中国女保镖贴身保护墨西哥总统](http://www.daogukj.com/ottjwhke/)
+- [有一种说法认为中国乒乓球逐渐被世界赶超，有一方面因素是我们对器材的理解和研究落后了，对此你怎么看？](http://www.movie.hkepx.cn/movie/7215484.htm)
+- [西甲向总台澄清，涉亚马尔种族歧视内容系伪造，如何评价？造谣者可能面临什么？](http://www.movie.hkepx.cn/xiju/4060244.htm)
+- [APEC安保天团又高又壮又帅](http://www.play.hengshemaoyi.cn/xiju/5423570.htm)
 
 </details>
 
 ## 原始来源
 
-- [BLG获得100万美元奖金](https://s.weibo.com/weibo?q=BLG%E8%8E%B7%E5%BE%97100%E4%B8%87%E7%BE%8E%E5%85%83%E5%A5%96%E9%87%91)
+- [28岁男子抱着刚出生亲弟弟笑不出来](https://www.baidu.com/s?wd=28%E5%B2%81%E7%94%B7%E5%AD%90%E6%8A%B1%E7%9D%80%E5%88%9A%E5%87%BA%E7%94%9F%E4%BA%B2%E5%BC%9F%E5%BC%9F%E7%AC%91%E4%B8%8D%E5%87%BA%E6%9D%A5&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f10c755ef02cdfcb5f1e -->
+<!-- content-fingerprint: b2ac7238caf638962096 -->
