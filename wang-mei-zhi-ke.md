@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 猪肉降价为何牛肉价格却在涨
+# 智利总统专机悬挂中智两国国旗
 
-> 来源：今日头条热榜 · 排名：第 5 位 · 热度：20813143 · 更新：2026-11-18T03:50:42+08:00
+> 来源：今日头条热榜 · 排名：第 5 位 · 热度：22186272 · 更新：2026-11-18T09:55:59+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“猪肉降价为何牛肉价格却在涨”位列第 5 位，公开热度指标为 20813143。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“智利总统专机悬挂中智两国国旗”位列第 5 位，公开热度指标为 22186272。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [连续坚持10秒不呼吸就奖励100元，每再坚持1秒，奖励就会翻倍一次，你认为你能赚多少？](wen-ji-qi-wu.md)
-- [EUV光刻机 | "上帝的手术刀"](wo-xin-chang-dan.md)
-- [哈尔滨把“世界”冻进园区了](po-fu-chen-zhou.md)
-- [曝厉娜和朋友蛐蛐许飞](bei-shui-yi-zhan.md)
+- [特朗普启程亚洲行，准备参与 APEC 会议，称「可能与金正恩委员长会面」，哪些信息值得关注？](wen-ji-qi-wu.md)
+- [蚌埠住的时候就抽出七匹狼](wo-xin-chang-dan.md)
+- [又一癌症疫苗迎来重大突破 股价暴涨](po-fu-chen-zhou.md)
+- [作家斯琴高娃逝世](bei-shui-yi-zhan.md)
 
 ## 站内推荐
 
-- [2026APEC这些看点值得期待](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [深圳APEC主持人阵容拉满](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [《地下城与勇士》怀旧服定于 2027 年上线，你认为「八百万勇士」能否如期回归？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [为什么在家带娃会比上班还要累？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [孩子刚上初中就发现语文成绩特别不好，有没有什么好的方法提高成绩？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [APEC工商领导人峰会今天聚焦哪些议题](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [国足友谊赛，中国男足 2-2 巴林，拜合拉木、张玉宁破门，王钰栋造点，如何评价本场比赛双方的表现？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [女子在盒马下单四百多次全部申请仅退款，称「刺激解压」，明知不光彩还是忍不住下单，如何从心理学角度解读？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [波司登王力宏同款羽绒服售价 2399 元至 5999 元，仅售 16 件，波司登高端化之路走错了吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [2627赛季NBA常规赛76 人 135:123 篮网，如何评价这场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [特朗普戴红领带开启亚洲行](http://www.play.hengshemaoyi.cn/kongbu/8974730.htm)
-- [虞书欣近1年掉粉118万](http://www.play.hengshemaoyi.cn/kongbu/4377320.htm)
-- [快女冠军段林希咋倒嗓成这样](http://www.daogukj.com/mhxkhqlr/)
-- [特朗普亚洲行团队名单：鲁比奥在列](http://www.daogukj.com/vttuxixa/)
-- [曾沛慈说要去声生不息追星](http://www.daogukj.com/cqpthmbw/)
-- [哈尔滨把“世界”冻进园区了](http://www.movie.hkepx.cn/xiju/9477503.htm)
-- [深圳APEC主持人阵容拉满](http://www.daogukj.com/7088546)
-- [雷军社交名场面](http://www.play.hengshemaoyi.cn/kongbu/2897383.htm)
-- [小米18真机曝光](http://www.daogukj.com/lcwjhtor/)
-- [小锁女装](http://www.play.hengshemaoyi.cn/xiju/4203206.htm)
-- [曝厉娜和朋友蛐蛐许飞](http://www.movie.hkepx.cn/xiju/2909346.htm)
-- [61 岁女子登机口抛硬币祈福致航班延误 58 分钟被拘 5 日，该处罚尺度是否合理？](http://www.daogukj.com/7785768)
-- [张麻子《鹅城Dangerous》](http://www.daogukj.com/1079050)
-- [西班牙400万人大罢工，抗议房价太高，物价飞涨](http://www.daogukj.com/cfcdbnes/)
-- [国足连追两球2-2战平巴林](http://www.movie.hkepx.cn/xiju/5548290.htm)
-- [错了就要认，挨打要立正，对不起，这一次是我骗了你们！](http://www.movie.hkepx.cn/movie/6459598.htm)
-- [女子得知被抱养辞职回农村陪养父母](http://www.movie.hkepx.cn/movie/8145475.htm)
-- [《慌啥子嘛》为什么让成年人破防](http://www.movie.hkepx.cn/movie/6792790.htm)
-- [工人8楼高空作业疑被住户割断安全绳](http://www.movie.hkepx.cn/xiju/5785622.htm)
-- [身体有这些异常很可能是血管堵了](http://www.play.hengshemaoyi.cn/xiju/0943328.htm)
-- [国足友谊赛，中国男足 2-2 巴林，拜合拉木、张玉宁破门、王钰栋造点，如何评价本场比赛双方的表现？](http://www.daogukj.com/6160997)
-- [孩子刚上初中就发现语文成绩特别不好，有没有什么好的方法提高成绩？](http://www.play.hengshemaoyi.cn/kongbu/9533347.htm)
-- [特朗普：我期待访问中国](http://www.daogukj.com/6158458)
+- [沈阳中街大屏播放赵本山《慌啥子嘛》](http://www.play.hengshemaoyi.cn/kongbu/8974730.htm)
+- [深圳以暖心服务迎接亚太宾客](http://www.play.hengshemaoyi.cn/kongbu/4377320.htm)
+- [普京抵达深圳](http://www.daogukj.com/mhxkhqlr/)
+- [深圳市民给APEC晚宴疯狂安利猪脚饭](http://www.daogukj.com/vttuxixa/)
+- [雷军晒深圳风景](http://www.daogukj.com/cqpthmbw/)
+- [又一癌症疫苗迎来重大突破 股价暴涨](http://www.movie.hkepx.cn/xiju/9477503.htm)
+- [国足友谊赛，中国男足 2-2 巴林，拜合拉木、张玉宁破门，王钰栋造点，如何评价本场比赛双方的表现？](http://www.daogukj.com/7088546)
+- [英伟达财报大超预期 股价盘后上涨](http://www.play.hengshemaoyi.cn/kongbu/2897383.htm)
+- [美股](http://www.daogukj.com/lcwjhtor/)
+- [杨超越八年终于有人生角色](http://www.play.hengshemaoyi.cn/xiju/4203206.htm)
+- [作家斯琴高娃逝世](http://www.movie.hkepx.cn/xiju/2909346.htm)
+- [网传生菜「塌房」了，看似健康其实膳食纤维的含量很低，是真的吗？](http://www.daogukj.com/7785768)
+- [华农兄弟：宰只公羊来炖，兄弟来帮忙，味道好极了](http://www.daogukj.com/1079050)
+- [APEC工商领导人峰会聚焦哪些议题](http://www.daogukj.com/cfcdbnes/)
+- [深圳公交全是新能源车](http://www.movie.hkepx.cn/xiju/5548290.htm)
+- ["人类为什么会许愿呢”](http://www.movie.hkepx.cn/movie/6459598.htm)
+- [如何评价OpenAI 发布的 GPT-6.2 Astra 和 GPT-6.2 Sol？](http://www.movie.hkepx.cn/movie/8145475.htm)
+- [女作家斯琴高娃逝世 享年93岁](http://www.movie.hkepx.cn/movie/6792790.htm)
+- [52岁男子洗浴城过夜后晕倒离世](http://www.movie.hkepx.cn/xiju/5785622.htm)
+- [特朗普亚洲行团队名单](http://www.play.hengshemaoyi.cn/xiju/0943328.htm)
+- [BLG在联赛内组建梦之队一家独大真的有利于联赛发展吗？](http://www.daogukj.com/6160997)
+- [2627赛季NBA常规赛76 人 135:123 篮网，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/9533347.htm)
+- [CNN披露“爆炸性”新闻！评论区亮了](http://www.daogukj.com/6158458)
 - [小米辟谣汽车召回短信](http://www.daogukj.com/vgxpewvp/)
-- [河南安徽多地回应“撞脸药”乱象](http://www.play.hengshemaoyi.cn/xiju/6603798.htm)
-- [国足2比2战平巴林](http://www.daogukj.com/3242581)
-- [波司登王力宏同款羽绒服售价 2399 元至 5999 元，仅售 16 件，波司登高端化之路走错了吗？](http://www.play.hengshemaoyi.cn/xiju/5213102.htm)
-- [王传福试驾方程豹钛9竖大拇指](http://www.play.hengshemaoyi.cn/xiju/3584736.htm)
-- [三次东道主 这次有什么不一样](http://www.daogukj.com/sqzoiroq/)
-- [【BLG冠军麦克风】这一刻，我们是世界冠军！](http://www.daogukj.com/9537822)
-- [“他们没有任何血缘关系，但却拥有同一个妈妈.”【Scared play sacred place】【治愈心灵の小曲】](http://www.movie.hkepx.cn/xiju/6723827.htm)
-- [特朗普宣布即将访华 将与中俄元首会晤](http://www.daogukj.com/3855937)
-- [特朗普抵达菲律宾 现场响起熟悉的歌](http://www.play.hengshemaoyi.cn/kongbu/9163230.htm)
-- [小时候去朋友家玩电脑](http://www.movie.hkepx.cn/xiju/5655654.htm)
+- [浑水做空英伟达](http://www.play.hengshemaoyi.cn/xiju/6603798.htm)
+- [神舟二十四号发射在即](http://www.daogukj.com/3242581)
+- [高中生吸未知物质，当场喷红花油成中微子](http://www.play.hengshemaoyi.cn/xiju/5213102.htm)
+- [为何韩系芯片巨头仍要升级中国工厂](http://www.play.hengshemaoyi.cn/xiju/3584736.htm)
+- [Faker获电竞世界杯选手选择奖第一名](http://www.daogukj.com/sqzoiroq/)
+- [普京身边罕见无提黑色手提箱保镖随行](http://www.daogukj.com/9537822)
+- [李在明与夫人走上红毯一路鼓掌](http://www.movie.hkepx.cn/xiju/6723827.htm)
+- [俄驻华大使：俄转向东方趋势不可逆](http://www.daogukj.com/3855937)
+- [奇迹一战！哈兰德压哨点杀](http://www.play.hengshemaoyi.cn/kongbu/9163230.htm)
+- [CBS：最新法医证据显示爱泼斯坦应死于谋杀](http://www.movie.hkepx.cn/xiju/5655654.htm)
 - [难怪郑恺高考成绩可以上复旦](http://www.movie.hkepx.cn/movie/8750130.htm)
-- [现在的AI剧制作越来越精良，不久的将来，它是否会完全抢占真人剧市场？](http://www.movie.hkepx.cn/xiju/2707701.htm)
-- [深圳人全妆出街迎APEC](http://www.movie.hkepx.cn/movie/1592539.htm)
-- [医生：干发帽包头超5分钟易脱发](http://www.movie.hkepx.cn/movie/4182339.htm)
-- [《最礼乐崩坏の一集》](http://www.movie.hkepx.cn/movie/9304746.htm)
-- [最新研究显示全球冰冻圈已突破安全底线，部分变化不可逆，会带来什么影响？普通人能怎么应对？](http://www.movie.hkepx.cn/xiju/4345913.htm)
-- [如何看待俞敏洪再谈南极游事件，称南极风波让自己重新思考企业应该为谁而活？](http://www.daogukj.com/4645764)
-- [2026APEC这些看点值得期待](http://www.play.hengshemaoyi.cn/kongbu/0822089.htm)
-- [波兰小伙自灭满门后景区屠杀，警界战神丝血反杀，国宝神医逆天改命！【2026年波兰克拉科夫枪击案详解】](http://www.movie.hkepx.cn/movie/5783118.htm)
-- [银耳改过三次名](http://www.daogukj.com/lwnrprkt/)
-- [深圳以暖心服务迎接亚太宾客](http://www.play.hengshemaoyi.cn/kongbu/5185531.htm)
-- [梅耶·马斯克带你走进无限暖暖3.0](http://www.movie.hkepx.cn/movie/2979840.htm)
-- [《地下城与勇士》怀旧服定于 2027 年上线，你认为「八百万勇士」能否如期回归？](http://www.play.hengshemaoyi.cn/xiju/1695379.htm)
-- [字节多领域追赶腾讯](http://www.movie.hkepx.cn/movie/2967061.htm)
-- [王兴兴西装革履小白鞋](http://www.daogukj.com/bhbjtzul/)
-- [为什么诸葛亮没有因为刘备晚年移宠法正而黑化？](http://www.movie.hkepx.cn/xiju/2010354.htm)
+- [抽象新闻：11月人类迷惑行为大赏（中）](http://www.movie.hkepx.cn/xiju/2707701.htm)
+- [APEC](http://www.movie.hkepx.cn/movie/1592539.htm)
+- [APEC工商领导人峰会开幕式](http://www.movie.hkepx.cn/movie/4182339.htm)
+- [普京向接机现场欢迎人群微笑致意](http://www.movie.hkepx.cn/movie/9304746.htm)
+- [《最礼乐崩坏の一集》](http://www.movie.hkepx.cn/xiju/4345913.htm)
+- [医学生就业工作真的很难吗？](http://www.daogukj.com/4645764)
+- [APEC工商领导人峰会今天聚焦哪些议题](http://www.play.hengshemaoyi.cn/kongbu/0822089.htm)
+- [【动画】可爱的猫尾草](http://www.movie.hkepx.cn/movie/5783118.htm)
+- [深圳公交全是新能源车 嘉宾很震撼](http://www.daogukj.com/lwnrprkt/)
+- [丘成桐以求真院长身份在人民日报撰文，称「五到十年内有望本土培养出领军数学家」，如何理解他的这篇文章？](http://www.play.hengshemaoyi.cn/kongbu/5185531.htm)
+- [我们熟悉的那个3A游戏时代，可能真的结束了。【游戏之外】](http://www.movie.hkepx.cn/movie/2979840.htm)
+- [女子在盒马下单四百多次全部申请仅退款，称「刺激解压」，明知不光彩还是忍不住下单，如何从心理学角度解读？](http://www.play.hengshemaoyi.cn/xiju/1695379.htm)
+- [电视剧《伟大的长征》为何能火](http://www.movie.hkepx.cn/movie/2967061.htm)
+- [129万一针抗癌药进医保](http://www.daogukj.com/bhbjtzul/)
+- [前 PS 高管称 PS6 性能升级不重要，价格便宜才是好，这个观点合理吗？](http://www.movie.hkepx.cn/xiju/2010354.htm)
 
 </details>
 
 ## 原始来源
 
-- [猪肉降价为何牛肉价格却在涨](https://www.toutiao.com/trending/7709126380008508964/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2213%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227709126380008508964%22%2C%22hot_board_impr_id%22%3A%2220261118035040A2E034E28A9556451107%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
+- [智利总统专机悬挂中智两国国旗](https://www.toutiao.com/trending/7709154715417821723/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2215%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227709154715417821723%22%2C%22hot_board_impr_id%22%3A%22202611180955587849EC0C04EA474EEFFF%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 46aee3510aada1ef1142 -->
+<!-- content-fingerprint: d39834c787c933089ced -->
