@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 又一癌症疫苗迎来重大突破 股价暴涨
+# 中方回应英伟达停止向华供应H200芯片
 
-> 来源：百度热搜 · 排名：第 5 位 · 热度：7333873 · 更新：2026-11-18T09:55:59+08:00
+> 来源：今日头条热榜 · 排名：第 6 位 · 热度：20285642 · 分类：热门事件 · 更新：2026-11-18T17:53:55+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“又一癌症疫苗迎来重大突破 股价暴涨”位列第 5 位，公开热度指标为 7333873。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“中方回应英伟达停止向华供应H200芯片”位列第 6 位，公开热度指标为 20285642，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：美国生物制药公司SELLAS公布其实验性癌症疫苗后期临床试验积极结果。数据显示，该疫苗可使急性髓系白血病患者的死亡风险降低41%，患者中位总生存期达24个月。受此消息提振，当地时间11月17日，SELLAS股价盘中一度暴涨超233%。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
 
 ## 相关热点
 
-- [作家斯琴高娃逝世](bei-shui-yi-zhan.md)
-- [深圳公交全是新能源车](zhi-shang-tan-bing.md)
-- [BLG在联赛内组建梦之队一家独大真的有利于联赛发展吗？](wei-wei-jiu-zhao.md)
-- [【蜘蛛侠/MJ】非凡之爱真人版](wan-bi-gui-zhao.md)
+- [为什么鲁智深要在圆寂时说：钱塘江上潮信来，今日方知我是我？](bei-shui-yi-zhan.md)
+- [「幽明志」幽城残梦](zhi-shang-tan-bing.md)
+- [王传福APEC会议谈可持续发展](wei-wei-jiu-zhao.md)
+- [竞燃之夜节目单](wan-bi-gui-zhao.md)
 
 ## 站内推荐
 
-- [李在明与夫人走上红毯一路鼓掌](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [129万一针抗癌药进医保](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [供应商快被车企拖死了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [雷军晒深圳风景](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [后会友期这档节目的初衷](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [泰国总理回到广东老家格外兴奋](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [如何看待管泽元全程无缘 2026 全球总决赛官方解说席？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [⚡ 非凡之畜 ⚡](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [Bin：鳄鱼，你怎么穿着格温的衣服！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [《哈利波特与死亡火器》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [【BLG冠军麦克风】这一刻，我们是世界冠军！](http://www.daogukj.com/1823488)
-- [52岁男子洗浴城过夜后晕倒离世](http://www.play.hengshemaoyi.cn/xiju/5320894.htm)
-- [前 PS 高管称 PS6 性能升级不重要，价格便宜才是好，这个观点合理吗？](http://www.movie.hkepx.cn/xiju/9086289.htm)
-- [如何评价OpenAI 发布的 GPT-6.2 Astra 和 GPT-6.2 Sol？](http://www.daogukj.com/cskdtjca/)
-- [作家斯琴高娃逝世](http://www.movie.hkepx.cn/movie/5197885.htm)
-- [普京罕见无提包保镖贴身](http://www.daogukj.com/9392657)
-- [深圳市民给APEC晚宴疯狂安利猪脚饭](http://www.movie.hkepx.cn/movie/8565414.htm)
-- [2627赛季NBA常规赛76 人 135:123 篮网，如何评价这场比赛？](http://www.daogukj.com/6051164)
-- [CBS：最新法医证据显示爱泼斯坦应死于谋杀](http://www.daogukj.com/6679975)
-- [【守护解放西·传承季】总预告：守护第七年，我们再次出发！](http://www.daogukj.com/2695648)
-- [难怪郑恺高考成绩可以上复旦](http://www.play.hengshemaoyi.cn/xiju/3099726.htm)
-- [李在明夫妇向中方迎宾人员鼓掌致意](http://www.movie.hkepx.cn/movie/7889816.htm)
-- [怎么看 JetBrains 成立 20 年来第一次亏损，这是不是代表了一个时代的结束？](http://www.play.hengshemaoyi.cn/xiju/3571483.htm)
-- [女子在盒马下单四百多次全部申请仅退款，称「刺激解压」，明知不光彩还是忍不住下单，如何从心理学角度解读？](http://www.play.hengshemaoyi.cn/kongbu/9465250.htm)
-- [《哈利波特与死亡火器》](http://www.movie.hkepx.cn/xiju/2970345.htm)
-- [蚌埠住的时候就抽出七匹狼](http://www.daogukj.com/7120405)
-- [奇迹一战！哈兰德压哨点杀](http://www.play.hengshemaoyi.cn/xiju/4113560.htm)
-- [【蜘蛛侠/MJ】非凡之爱真人版](http://www.daogukj.com/jzelussd/)
-- [曝C罗决定赛季末退役](http://www.daogukj.com/ajlcnxcx/)
-- [普京抵达深圳](http://www.daogukj.com/0152970)
-- [怪不得许飞爆了一个月还是0商务](http://www.movie.hkepx.cn/movie/9056597.htm)
-- [深圳以暖心服务迎接亚太宾客](http://www.play.hengshemaoyi.cn/xiju/9731004.htm)
-- [国足友谊赛，中国男足 2-2 巴林，拜合拉木、张玉宁破门，王钰栋造点，如何评价本场比赛双方的表现？](http://www.movie.hkepx.cn/xiju/1868267.htm)
-- [浑水做空英伟达](http://www.play.hengshemaoyi.cn/xiju/1299773.htm)
-- [我们熟悉的那个3A游戏时代，可能真的结束了。【游戏之外】](http://www.daogukj.com/onyieegy/)
-- [俄驻华大使：俄转向东方趋势不可逆](http://www.play.hengshemaoyi.cn/xiju/0532528.htm)
-- [【动画】可爱的猫尾草](http://www.movie.hkepx.cn/movie/0256063.htm)
-- [同台亮相APEC，王传福谈新能源减排，雷军畅享AI未来，如何看待两位大佬的“殊途同归”？](http://www.movie.hkepx.cn/movie/9918247.htm)
-- [Chovy获TGA最佳电竞选手提名](http://www.movie.hkepx.cn/movie/8593083.htm)
-- [特朗普启程亚洲行，准备参与 APEC 会议，称「可能与金正恩委员长会面」，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/0122390.htm)
-- [雷军APEC发言称过去几年挣到钱的 AI 公司很少，认为具身智能产业想象力将超汽车产业，对此你怎么看？](http://www.movie.hkepx.cn/movie/7943713.htm)
-- [医学生就业工作真的很难吗？](http://www.play.hengshemaoyi.cn/kongbu/5001053.htm)
-- [文莱领导人握手前中方安保1秒摘手套](http://www.daogukj.com/qcrvnclj/)
-- [网传生菜「塌房」了，看似健康其实膳食纤维的含量很低，是真的吗？](http://www.daogukj.com/hwjdrvyl/)
-- [刘德华辅导女儿写作业也烦恼](http://www.movie.hkepx.cn/xiju/3504908.htm)
-- [高中生吸未知物质，当场喷红花油成中微子](http://www.daogukj.com/lfqwqkoe/)
-- [普京向接机现场欢迎人群微笑致意](http://www.daogukj.com/6505376)
-- [普京身边罕见无提黑色手提箱保镖随行](http://www.daogukj.com/mdqmkfar/)
-- [【梗百科】NICE！这样我才能XX是啥梗？恭喜BLG！！！](http://www.play.hengshemaoyi.cn/kongbu/2415448.htm)
-- [APEC工商领导人峰会开幕式](http://www.movie.hkepx.cn/xiju/3998678.htm)
-- [韩网热议海外韩剧粉爬墙中剧](http://www.movie.hkepx.cn/movie/6743699.htm)
-- [U19 国足 2-1 战胜韩国，时隔 8 年再夺熊猫杯冠军，如何评价本场比赛？](http://www.daogukj.com/xgmimokd/)
-- [杨超越八年终于有人生角色](http://www.play.hengshemaoyi.cn/xiju/7200927.htm)
-- [霍建华称因懒惰未做医美](http://www.daogukj.com/0557862)
-- [小米辟谣汽车召回短信](http://www.play.hengshemaoyi.cn/kongbu/0604765.htm)
-- [孙艺洲：演员是服务行业不能套路观众](http://www.movie.hkepx.cn/movie/8247300.htm)
-- [华农兄弟：宰只公羊来炖，兄弟来帮忙，味道好极了](http://www.daogukj.com/jcieinjo/)
-- [APEC工商领导人峰会聚焦哪些议题](http://www.daogukj.com/1895577)
-- [GTA6还没发售就提名大奖](http://www.play.hengshemaoyi.cn/kongbu/4995743.htm)
-- [韩国总统李在明抵达深圳](http://www.play.hengshemaoyi.cn/xiju/5777989.htm)
+- [空军表演队拉彩烟欢迎特朗普](http://www.daogukj.com/1823488)
+- [工信部严抓 60 天账期落地，17 家车企被要求定期报送数据，该举措对保障供应链回款作用有多大？](http://www.play.hengshemaoyi.cn/xiju/5320894.htm)
+- [Tim称苹果整个纽约的服务炸了](http://www.movie.hkepx.cn/xiju/9086289.htm)
+- [非凡魔丸](http://www.daogukj.com/cskdtjca/)
+- [为什么鲁智深要在圆寂时说：钱塘江上潮信来，今日方知我是我？](http://www.movie.hkepx.cn/movie/5197885.htm)
+- [十斤木头只能烧出一斤炭，古人为什么还要把柴烧成炭再卖？](http://www.daogukj.com/9392657)
+- [【纪录片】蓝色星球 第三季 03 四季海洋](http://www.movie.hkepx.cn/movie/8565414.htm)
+- [湘雅二医院论文把湖南写成人类省](http://www.daogukj.com/6051164)
+- [邵永灵：日本想打造亚洲能源枢纽](http://www.daogukj.com/6679975)
+- [王传福：我赢你输的路子走不远](http://www.daogukj.com/2695648)
+- [🧠最强健三角洲玩家大脑的一集🧠](http://www.play.hengshemaoyi.cn/xiju/3099726.htm)
+- [文莱领导人握手前 中方安保1秒摘手套](http://www.movie.hkepx.cn/movie/7889816.htm)
+- [三座城、三次APEC会议见证了什么](http://www.play.hengshemaoyi.cn/xiju/3571483.htm)
+- [许飞的iPhone18Pro摔了](http://www.play.hengshemaoyi.cn/kongbu/9465250.htm)
+- [两京十五日林更新叫成毅大萝卜](http://www.movie.hkepx.cn/xiju/2970345.htm)
+- [深圳机场一眼望去全是专机](http://www.daogukj.com/7120405)
+- [英伟达史上首次单季营收突破千亿美元，数据中心收入占比约九成，AI 算力需求还能支撑英伟达增长多久？](http://www.play.hengshemaoyi.cn/xiju/4113560.htm)
+- [竞燃之夜节目单](http://www.daogukj.com/jzelussd/)
+- [劝表弟读博，他说现在的博士已经不是前几年了，真是这样吗？](http://www.daogukj.com/ajlcnxcx/)
+- [如果一回到家，家里的猫猫围着人“喵喵喵”叫，猫猫在说什么？](http://www.daogukj.com/0152970)
+- [《遗忘之海》第三赛季更新前瞻PV「旧日序曲」](http://www.movie.hkepx.cn/movie/9056597.htm)
+- [当bro一起去吃自助餐🍑](http://www.play.hengshemaoyi.cn/xiju/9731004.htm)
+- [【蜘蛛侠/MJ】非凡之爱真人版](http://www.movie.hkepx.cn/xiju/1868267.htm)
+- [为什么近期国产3A动作游戏（《黑神话：悟空》《明末：渊虚之羽》《影之刃零》）普遍走暗黑压抑风格？](http://www.play.hengshemaoyi.cn/xiju/1299773.htm)
+- [三家机构下调英伟达目标价](http://www.daogukj.com/onyieegy/)
+- [央视因信号不好弃播开拓者比赛](http://www.play.hengshemaoyi.cn/xiju/0532528.htm)
+- [张雪放话急招大量造型设计师](http://www.movie.hkepx.cn/movie/0256063.htm)
+- [日本网友最羡慕中国的哪一点](http://www.movie.hkepx.cn/movie/9918247.htm)
+- [全球最火的电竞比赛！2W一张票！直接看哭了！](http://www.movie.hkepx.cn/movie/8593083.htm)
+- [BLG凭什么一穿四LCK夺冠？万字复盘BLG战胜GEN背后的原因！](http://www.movie.hkepx.cn/movie/0122390.htm)
+- [中俄美三国元首历史上首次面对面会晤，有哪些意义？为何会选在这个时间点？](http://www.movie.hkepx.cn/movie/7943713.htm)
+- [中国排面成新晋落地签](http://www.play.hengshemaoyi.cn/kongbu/5001053.htm)
+- [女子在盒马下单四百多次全部申请仅退款，称「刺激解压」，明知不光彩还是忍不住下单，如何从心理学角度解读？](http://www.daogukj.com/qcrvnclj/)
+- [Bin透露冠军皮肤不选鳄鱼原因](http://www.daogukj.com/hwjdrvyl/)
+- [沪深两市成交额仅1.37万亿](http://www.movie.hkepx.cn/xiju/3504908.htm)
+- [普京：感谢中国](http://www.daogukj.com/lfqwqkoe/)
+- [美学者开中国电动车走马可·波罗之路](http://www.daogukj.com/6505376)
+- [特朗普抵达深圳](http://www.daogukj.com/mdqmkfar/)
+- [陆毅女儿贝儿官宣出道](http://www.play.hengshemaoyi.cn/kongbu/2415448.htm)
+- [普京说感谢中国](http://www.movie.hkepx.cn/xiju/3998678.htm)
+- [11月18日上线｜《终极角逐》全新模式 「生存挑战赛」](http://www.movie.hkepx.cn/movie/6743699.htm)
+- [【动画】可爱的猫尾草](http://www.daogukj.com/xgmimokd/)
+- [《最礼乐崩坏の一集》](http://www.play.hengshemaoyi.cn/xiju/7200927.htm)
+- [记者：普京车队起码有40多辆车](http://www.daogukj.com/0557862)
+- [刘德华：辅导女儿写作业时很烦恼](http://www.play.hengshemaoyi.cn/kongbu/0604765.htm)
+- [泰国总理回到老家广东大飙粤语](http://www.movie.hkepx.cn/movie/8247300.htm)
+- [智利总统在深圳水果店庆祝车厘子到了](http://www.daogukj.com/jcieinjo/)
+- [APEC多场密集对话释放大量前沿信息](http://www.daogukj.com/1895577)
+- [医学生就业工作真的很难吗？](http://www.play.hengshemaoyi.cn/kongbu/4995743.htm)
+- [迎接特朗普仪式](http://www.play.hengshemaoyi.cn/xiju/5777989.htm)
 
 </details>
 
 ## 原始来源
 
-- [又一癌症疫苗迎来重大突破 股价暴涨](https://www.baidu.com/s?wd=%E5%8F%88%E4%B8%80%E7%99%8C%E7%97%87%E7%96%AB%E8%8B%97%E8%BF%8E%E6%9D%A5%E9%87%8D%E5%A4%A7%E7%AA%81%E7%A0%B4+%E8%82%A1%E4%BB%B7%E6%9A%B4%E6%B6%A8&sa=fyb_news&rsv_dl=fyb_news)
+- [中方回应英伟达停止向华供应H200芯片](https://www.toutiao.com/trending/7709409012864781866/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%225%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227709409012864781866%22%2C%22hot_board_impr_id%22%3A%222026111817535432AC5A4FC60AD243B8BB%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9eb0b243d5a30718052e -->
+<!-- content-fingerprint: a1f48a31f97ea19622f7 -->
