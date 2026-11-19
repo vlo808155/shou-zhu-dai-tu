@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 特朗普见普京时开玩笑问“他是谁”
+# 普京笑着透露三方会晤细节
 
-> 来源：百度热搜 · 排名：第 5 位 · 热度：7334254 · 更新：2026-11-19T15:59:47+08:00
+> 来源：百度热搜 · 排名：第 5 位 · 热度：7327607 · 更新：2026-11-20T01:16:35+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“特朗普见普京时开玩笑问“他是谁””位列第 5 位，公开热度指标为 7334254。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“普京笑着透露三方会晤细节”位列第 5 位，公开热度指标为 7327607。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：11月19日，美国总统特朗普在深圳出席亚太经合组织第三十三次领导人非正式会议期间会见俄罗斯总统普京。特朗普看到普京后笑着打趣问道：“这是谁？”随即表示“这是我的朋友”，二人随后友好寒暄、握手致意。
+来源公开摘要显示：11月19日，中俄美元首会晤结束后，普京笑着谈及本次会晤。他向习近平主席表达感谢，表示会晤十分成功，自由交流的氛围给他留下深刻印象。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [竞燃之夜红毯](bei-shui-yi-zhan.md)
-- [中国外交跑腿天团全是中国造](zhi-shang-tan-bing.md)
-- [上海 10 月社零同比跌 4.5%，其中汽车类跌 39.4%，还有哪些细节值得关注？](wei-wei-jiu-zhao.md)
-- [海豚尾巴上的怪东西，竟然是藤壶？](wan-bi-gui-zhao.md)
+- [李在明发文感谢中国热情接待](bei-shui-yi-zhan.md)
+- [深圳市民在街头偶遇多国政要](zhi-shang-tan-bing.md)
+- [马斯克盛赞中国，直言中美合作越多越好，并表示特斯拉会继续在中国提高产量，如何看待他这一发言？](wei-wei-jiu-zhao.md)
+- [高市早苗应该在深圳烈士陵园鞠躬谢罪](wan-bi-gui-zhao.md)
 
 ## 站内推荐
 
-- [特朗普称赞习主席：您是了不起的领袖](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [马天宇哭到张萌后悔](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [陈晓楠评价文吉儿](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [小学试卷出现93年张奶奶97年张大爷](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [如何评价最近爆火的文章《麦穗与羊》 ？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [普京：感谢中方](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [墨西哥总统弹奏中国名曲《茉莉花》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [王毅机场送别特朗普 二人长时间交谈](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [比亚迪发布折叠方向盘](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [应该全面禁止并彻底销毁核武器](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [一群玩家把电影院看成了“电竞主场”](http://www.daogukj.com/1823488)
-- [A股成交额创16个月地量](http://www.play.hengshemaoyi.cn/xiju/5320894.htm)
-- [深圳市民在街头偶遇各国政要](http://www.movie.hkepx.cn/xiju/9086289.htm)
-- [网友让豆包生成一张「盒子里有13个鸡蛋」的图片，豆包连续十几次纠错仍未能数清，这是为什么？](http://www.daogukj.com/cskdtjca/)
-- [竞燃之夜红毯](http://www.movie.hkepx.cn/movie/5197885.htm)
-- [深圳市民在街头偶遇多国政要](http://www.daogukj.com/9392657)
-- [金价大跌后普通人该不该抄底](http://www.movie.hkepx.cn/movie/8565414.htm)
-- [中俄美元首座驾首次同框](http://www.daogukj.com/6051164)
-- [恶役千金题材作品天花板！全集93分钟一次看过瘾，《恶役千金的真面目》漫画剧情深度解析](http://www.daogukj.com/6679975)
-- [杨超越董思成亲了4小时的吻戏](http://www.daogukj.com/2695648)
-- [深圳 APEC 世纪晚宴菜单曝光，以地道粤菜为主，同时融入国际菜肴元素，菜品设计考量了哪些核心因素？](http://www.play.hengshemaoyi.cn/xiju/3099726.htm)
-- [《GTA6》M站开分99，这是一个什么水平？有1分扣在哪了？](http://www.movie.hkepx.cn/movie/7889816.htm)
-- [儿子拿笔在墙上乱画，儿子爸爸极力反对说要有规矩，姥姥说让孩子画是保护他的探索欲，谁说得对我该站谁？](http://www.play.hengshemaoyi.cn/xiju/3571483.htm)
-- [国台办回应「建议 2032 年两岸统一货币」，称只要利于两岸关系和平发展都欢迎，统一货币会有哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/9465250.htm)
-- [中俄美三国元首历史上首次面对面会晤，有哪些意义？为何会选在这个时间点？](http://www.movie.hkepx.cn/xiju/2970345.htm)
-- [以防你不知道GTA6的狗子会开游艇来救你！](http://www.daogukj.com/7120405)
-- [菲总统来华会见中企高管有何目的](http://www.play.hengshemaoyi.cn/xiju/4113560.htm)
-- [海豚尾巴上的怪东西，竟然是藤壶？](http://www.daogukj.com/jzelussd/)
-- [许飞 我们没有掰](http://www.daogukj.com/ajlcnxcx/)
-- [微博竞燃之夜](http://www.daogukj.com/0152970)
-- [马斯克：中国很酷](http://www.movie.hkepx.cn/movie/9056597.htm)
-- [APEC礼物别出心裁](http://www.play.hengshemaoyi.cn/xiju/9731004.htm)
-- [ShenzhenTravel在外网火了](http://www.movie.hkepx.cn/xiju/1868267.htm)
-- [马斯克小儿子说爱中国](http://www.play.hengshemaoyi.cn/xiju/1299773.htm)
-- [宁德向理想一天发3封要钱邮件](http://www.daogukj.com/onyieegy/)
-- [泽连斯基公布导弹打击克里米亚大桥致桥拱桥跨坍塌画面，此举将引发哪些连锁反应？](http://www.play.hengshemaoyi.cn/xiju/0532528.htm)
-- [北大时期张泉灵美成女儿国国王了](http://www.movie.hkepx.cn/movie/0256063.htm)
-- [那些被黑客入侵的游戏，最后都怎么样了？](http://www.movie.hkepx.cn/movie/9918247.htm)
-- [AI作弊正让韩国如临大敌](http://www.movie.hkepx.cn/movie/8593083.htm)
-- [WorkBuddy日活用户超1000万，它是怎么做到的？AI Agent已经成为工作刚需了吗？](http://www.movie.hkepx.cn/movie/0122390.htm)
-- [为什么大家这么关注APEC会议？](http://www.movie.hkepx.cn/movie/7943713.htm)
-- [马斯克：我是中国的超级粉丝](http://www.play.hengshemaoyi.cn/kongbu/5001053.htm)
-- [普京乘电梯时主动礼让文莱苏丹](http://www.daogukj.com/qcrvnclj/)
-- [灭霸的班级被奖励看电影](http://www.daogukj.com/hwjdrvyl/)
-- [人在谷底的时候如何爬出来？](http://www.movie.hkepx.cn/xiju/3504908.htm)
-- [老戴《侠盗猎车手 6》初见开荒全实况流程解说【GTA 6】](http://www.daogukj.com/lfqwqkoe/)
-- [梁圣带大肥鱼们去吃自助](http://www.daogukj.com/6505376)
-- [习近平会见美国总统特朗普](http://www.daogukj.com/mdqmkfar/)
-- [特朗普一脸笑容落座开启热聊](http://www.play.hengshemaoyi.cn/kongbu/2415448.htm)
-- [中方回应高市早苗礼宾安排](http://www.movie.hkepx.cn/xiju/3998678.htm)
-- [老中医教你冬天懒人养生法](http://www.movie.hkepx.cn/movie/6743699.htm)
-- [为什么绿皮火车硬座长久以来都是和别人面对面的布局？没有考虑过社恐人士的心情吗？](http://www.daogukj.com/xgmimokd/)
-- [影之刃零能拿下 2026 TGA大奖吗？](http://www.play.hengshemaoyi.cn/xiju/7200927.htm)
-- [督邮为什么要害刘备？](http://www.daogukj.com/0557862)
-- [小番茄的逆袭洗白之路](http://www.play.hengshemaoyi.cn/kongbu/0604765.htm)
-- [“多让孩子啃苹果能省下一个金镯子”](http://www.movie.hkepx.cn/movie/8247300.htm)
-- [APEC重要讲话](http://www.daogukj.com/jcieinjo/)
-- [引领时代风气之先 锚定亚太合作方向](http://www.daogukj.com/1895577)
-- [深圳深南大道是湖北“建”的](http://www.play.hengshemaoyi.cn/kongbu/4995743.htm)
-- [APEC领导人休息室温馨画面](http://www.play.hengshemaoyi.cn/xiju/5777989.htm)
+- [如何看待郎平表示，不认同「竞技体育，菜是原罪」这句话，并称「努力一辈子没赢冠军，那也不能算失败者」？](http://www.daogukj.com/1823488)
+- [纯黑《GTA6》丧心病狂攻略解说 第一期](http://www.play.hengshemaoyi.cn/xiju/5320894.htm)
+- [特朗普说美国不支持“台独”](http://www.movie.hkepx.cn/xiju/9086289.htm)
+- [美国总统特朗普称美国不支持「台独」，这一发言释放了哪些信号？](http://www.daogukj.com/cskdtjca/)
+- [李在明发文感谢中国热情接待](http://www.movie.hkepx.cn/movie/5197885.htm)
+- [马斯克曾坐高铁到西安看兵马俑](http://www.daogukj.com/9392657)
+- [普京在会晤现场说了什么](http://www.movie.hkepx.cn/movie/8565414.htm)
+- [美再度收紧中国芯片海外代工](http://www.daogukj.com/6051164)
+- [安徽霍邱拆墙让路老人的女儿否认因买新车拆墙，到底什么情况？后续调查重点是什么？](http://www.daogukj.com/6679975)
+- [加州翻红和佛州翻蓝哪个更可怕？](http://www.daogukj.com/2695648)
+- [文吉儿又有新综艺了](http://www.play.hengshemaoyi.cn/xiju/3099726.htm)
+- [这就是Dior点灯活动C位的含金量吗](http://www.movie.hkepx.cn/movie/7889816.htm)
+- [马斯克在空军一号看中美元首互动](http://www.play.hengshemaoyi.cn/xiju/3571483.htm)
+- [官方辟谣要求基金公司上报AI敞口](http://www.play.hengshemaoyi.cn/kongbu/9465250.htm)
+- [一根 1m 长的玻璃棒，摔到地上断成 3 段，最短一段的平均值是多少？](http://www.movie.hkepx.cn/xiju/2970345.htm)
+- [最败家的一次](http://www.daogukj.com/7120405)
+- [【IGN】《黄金矿工：派对狂欢》22分钟实机演示](http://www.play.hengshemaoyi.cn/xiju/4113560.htm)
+- [高市早苗应该在深圳烈士陵园鞠躬谢罪](http://www.daogukj.com/jzelussd/)
+- [特朗普点赞深圳：这座城市近乎完美](http://www.daogukj.com/ajlcnxcx/)
+- [Anthropic上市](http://www.daogukj.com/0152970)
+- [特朗普又没拉窗帘](http://www.movie.hkepx.cn/movie/9056597.htm)
+- [许飞说可以和厉娜去观察室了](http://www.play.hengshemaoyi.cn/xiju/9731004.htm)
+- [睡前有5种表现要警惕脑梗](http://www.movie.hkepx.cn/xiju/1868267.htm)
+- [恶役千金题材作品天花板！全集93分钟一次看过瘾，《恶役千金的真面目》漫画剧情深度解析](http://www.play.hengshemaoyi.cn/xiju/1299773.htm)
+- [男朋友一被领导说就离职，频繁裸辞后长期空窗，是我太计较吗？](http://www.daogukj.com/onyieegy/)
+- [后会友期全员都想吃文王的瓜](http://www.play.hengshemaoyi.cn/xiju/0532528.htm)
+- [OpenAI 宣布为全球多达 20 万科学家免费提供前沿模型访问，如何理解这一动作，可能带来哪些影响？](http://www.movie.hkepx.cn/movie/0256063.htm)
+- [特朗普离深登机时做挥拳动作](http://www.movie.hkepx.cn/movie/9918247.htm)
+- [李在明发文感谢中国](http://www.movie.hkepx.cn/movie/8593083.htm)
+- [腾讯控股公布微信 QQ 月活差 9 亿，为什么腾讯坚持留着 QQ 不合并？QQ 还有哪些市场？](http://www.movie.hkepx.cn/movie/0122390.htm)
+- [中俄美元首发表和平宣言，三国元首重申核战争打不赢也打不得，哪些信息值得重点关注？](http://www.movie.hkepx.cn/movie/7943713.htm)
+- [泰国记者来中国买买买直呼没钱了](http://www.play.hengshemaoyi.cn/kongbu/5001053.htm)
+- [王毅到机场送别特朗普](http://www.daogukj.com/qcrvnclj/)
+- [普京用中文对与会者说谢谢](http://www.daogukj.com/hwjdrvyl/)
+- [20多天婴儿被喂白开水中毒肾损伤](http://www.movie.hkepx.cn/xiju/3504908.htm)
+- [尾随NPC的真实反应](http://www.daogukj.com/lfqwqkoe/)
+- [玩刀锋宝贝后再玩阿珂以为自己开挂了。](http://www.daogukj.com/6505376)
+- [习主席主持 普京、特朗普先后发言](http://www.daogukj.com/mdqmkfar/)
+- [多所高校要求师生论文发表前备案否则不算科研成果，如果解读这一高校新规？](http://www.play.hengshemaoyi.cn/kongbu/2415448.htm)
+- [韩国总统夫人被舞狮英歌舞表演圈粉](http://www.movie.hkepx.cn/xiju/3998678.htm)
+- [深圳市民遇普京车队心跳猛加速](http://www.movie.hkepx.cn/movie/6743699.htm)
+- [中俄美元首同框，有哪些意义？对国际局势有哪些影响？](http://www.daogukj.com/xgmimokd/)
+- [还有30个国家GDP比深圳高](http://www.play.hengshemaoyi.cn/xiju/7200927.htm)
+- [白小纯听见喊3纯的表情](http://www.daogukj.com/0557862)
+- [文吉儿圈内好友没提王子璇](http://www.play.hengshemaoyi.cn/kongbu/0604765.htm)
+- [全公司只有他18W，100W女老板却天天留他加班合集。【AI月月抢位赛】](http://www.movie.hkepx.cn/movie/8247300.htm)
+- [克里米亚大桥对俄罗斯重要吗？](http://www.daogukj.com/jcieinjo/)
+- [30年 第一次叫“倡议”](http://www.daogukj.com/1895577)
+- [⚡赵本山《Bad Guy》大忽悠｜象牙山蹦野迪⚡【AI MV大赛】](http://www.play.hengshemaoyi.cn/kongbu/4995743.htm)
+- [特朗普登上空军一号挥手告别](http://www.play.hengshemaoyi.cn/xiju/5777989.htm)
 
 </details>
 
 ## 原始来源
 
-- [特朗普见普京时开玩笑问“他是谁”](https://www.baidu.com/s?wd=%E7%89%B9%E6%9C%97%E6%99%AE%E8%A7%81%E6%99%AE%E4%BA%AC%E6%97%B6%E5%BC%80%E7%8E%A9%E7%AC%91%E9%97%AE%E2%80%9C%E4%BB%96%E6%98%AF%E8%B0%81%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [普京笑着透露三方会晤细节](https://www.baidu.com/s?wd=%E6%99%AE%E4%BA%AC%E7%AC%91%E7%9D%80%E9%80%8F%E9%9C%B2%E4%B8%89%E6%96%B9%E4%BC%9A%E6%99%A4%E7%BB%86%E8%8A%82&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b4bc2317c770967b2116 -->
+<!-- content-fingerprint: 201837c7c918a54f7628 -->

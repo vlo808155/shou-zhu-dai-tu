@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 儿子拿笔在墙上乱画，儿子爸爸极力反对说要有规矩，姥姥说让孩子画是保护他的探索欲，谁说得对我该站谁？
+# 马斯克在空军一号看中美元首互动
 
-> 来源：知乎热榜 · 排名：第 8 位 · 热度：151 万热度 · 分类：问答 · 更新：2026-11-19T15:59:47+08:00
+> 来源：今日头条热榜 · 排名：第 8 位 · 热度：16450874 · 更新：2026-11-20T01:16:35+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“儿子拿笔在墙上乱画，儿子爸爸极力反对说要有规矩，姥姥说让孩子画是保护他的探索欲，谁说得对我该站谁？”位列第 8 位，公开热度指标为 151 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“马斯克在空军一号看中美元首互动”位列第 8 位，公开热度指标为 16450874。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：我儿子两岁了，最近拿笔不在纸上画，也不在画板上画，专门往墙上画。怎么说都没用。 儿子爸爸不让，说得有规矩，不能让他随便画。 我妈说我小时候有一段时间就随便画，让他画吧，保护他的探索欲！ 儿子爸爸怼丈母娘说：她（指我）随便画了，也没见成画家，不能让孩子随便！ 我妈很气愤！ 他们究竟谁说的有道理？究竟该怎么办？
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [厨师长的回忆录在学徒时期晚饭吃的是什么边角料，白菜面条，铁板鹅肝美食制作](yi-fan-feng-shun.md)
-- [共促亚太繁荣：中国的建议与邀约](yi-ming-jing-ren.md)
-- [APEC中国年进入高光时刻](yi-jian-shuang-diao.md)
-- [中美元首深圳会晤](shou-zhu-dai-tu.md)
+- [怎么看DeepSeek API 联网搜索与抓页改为免费？](yi-fan-feng-shun.md)
+- [从恒生指数看港股这57年【1969-2026】【特效数据可视化】](yi-ming-jing-ren.md)
+- [APEC礼物别出心裁](yi-jian-shuang-diao.md)
+- [特朗普登机前又做标志性动作](shou-zhu-dai-tu.md)
 
 ## 站内推荐
 
-- [普京乘电梯时主动礼让文莱苏丹](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
-- [中国外交跑腿天团全是中国造](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
-- [如何评价一见 auto 的文章《理想宁德，后会友期》？宁德向理想一天发三封催款邮件，其中出了什么问题？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
-- [两道影子靠近，为什么会“吸在一起”？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
-- [深圳市民在街头偶遇各国政要](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
+- [王毅到机场送别特朗普](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [深圳市民在街头偶遇多国政要](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [牛肉为什么突然贵了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [华为新机薄出新高度](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [特朗普说美国不支持“台独”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [APEC礼物别出心裁](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
-- [深圳市民在街头偶遇各国政要](http://www.daogukj.com/cmyxzqtz/)
-- [两道影子靠近，为什么会“吸在一起”？](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
-- [菲总统来华会见中企高管有何目的](http://www.movie.hkepx.cn/movie/2501356.htm)
-- [甄嬛传剧组故意没让颖儿学礼仪](http://www.daogukj.com/ojwknvji/)
-- [国台办回应「建议 2032 年两岸统一货币」，称只要利于两岸关系和平发展都欢迎，统一货币会有哪些影响？](http://www.daogukj.com/2178083)
-- [特朗普一脸笑容落座开启热聊](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
-- [恶役千金题材作品天花板！全集93分钟一次看过瘾，《恶役千金的真面目》漫画剧情深度解析](http://www.play.hengshemaoyi.cn/xiju/1338838.htm)
-- [小学试卷出现93年张奶奶97年张大爷](http://www.daogukj.com/1763072)
-- [马斯克小儿子玩具都是中国制造](http://www.daogukj.com/8155971)
-- [中美元首深圳会晤](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
-- [以防你不知道GTA6的狗子会开游艇来救你！](http://www.daogukj.com/6164330)
-- [许飞 我们没有掰](http://www.movie.hkepx.cn/movie/1564233.htm)
-- [特朗普：期待同习主席、普京总统会晤](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
-- [特朗普称赞习主席：您是了不起的领袖](http://www.daogukj.com/agvcmxmf/)
-- [胖东来撤走后降到四百万依然没有人接盘](http://www.daogukj.com/qklffuer/)
-- [二手房价格连涨8个月](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
-- [厨师长的回忆录在学徒时期晚饭吃的是什么边角料，白菜面条，铁板鹅肝美食制作](http://www.daogukj.com/0737886)
-- [督邮为什么要害刘备？](http://www.movie.hkepx.cn/xiju/7431665.htm)
-- [为什么绿皮火车硬座长久以来都是和别人面对面的布局？没有考虑过社恐人士的心情吗？](http://www.daogukj.com/igpatdfc/)
-- [马斯克又带着小儿子来中国了](http://www.daogukj.com/4475902)
-- [梁圣带大肥鱼们去吃自助](http://www.daogukj.com/6579509)
-- [共促亚太繁荣：中国的建议与邀约](http://www.movie.hkepx.cn/xiju/5461514.htm)
-- [白小纯 青稚](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
-- [中国外交跑腿天团全是中国造](http://www.daogukj.com/2214905)
-- [理塘新曲《左肺右肺》：“沸羊羊，我肺痒痒！”](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
-- [ShenzhenTravel在外网火了](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
-- [影之刃零能拿下 2026 TGA大奖吗？](http://www.daogukj.com/4430972)
-- [泽连斯基公布导弹打击克里米亚大桥致桥拱桥跨坍塌画面，此举将引发哪些连锁反应？](http://www.movie.hkepx.cn/xiju/8019376.htm)
-- [特朗普会见普京时打趣问这是谁](http://www.movie.hkepx.cn/movie/0123120.htm)
-- [中俄美三国元首会晤](http://www.movie.hkepx.cn/xiju/8033346.htm)
-- [马斯克：中国很酷](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
-- [芦玉菲社保欠缴部分已全部缴纳](http://www.daogukj.com/8763764)
-- [参加中美元首会晤的美方代表都有谁](http://www.daogukj.com/jqstllvn/)
-- [习近平会见美国总统特朗普](http://www.daogukj.com/1298524)
-- [北大时期张泉灵美成女儿国国王了](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
-- [臣妾要告发熹贵妃不肯私通](http://www.daogukj.com/3314823)
+- [许飞说可以和厉娜去观察室了](http://www.play.hengshemaoyi.cn/kongbu/9642961.htm)
+- [特朗普说美国不支持“台独”](http://www.daogukj.com/cmyxzqtz/)
+- [华为新机薄出新高度](http://www.play.hengshemaoyi.cn/xiju/6245327.htm)
+- [【IGN】《黄金矿工：派对狂欢》22分钟实机演示](http://www.movie.hkepx.cn/movie/2501356.htm)
+- [“被窝里”玩手机教程](http://www.daogukj.com/ojwknvji/)
+- [官方辟谣要求基金公司上报AI敞口](http://www.daogukj.com/2178083)
+- [多所高校要求师生论文发表前备案否则不算科研成果，如果解读这一高校新规？](http://www.play.hengshemaoyi.cn/xiju/7257639.htm)
+- [安徽霍邱拆墙让路老人的女儿否认因买新车拆墙，到底什么情况？后续调查重点是什么？](http://www.play.hengshemaoyi.cn/xiju/1338838.htm)
+- [比亚迪发布折叠方向盘](http://www.daogukj.com/1763072)
+- [Mili - City Blue（都市之蓝）](http://www.daogukj.com/8155971)
+- [特朗普登机前又做标志性动作](http://www.play.hengshemaoyi.cn/xiju/5641606.htm)
+- [最败家的一次](http://www.daogukj.com/6164330)
+- [特朗普点赞深圳：这座城市近乎完美](http://www.movie.hkepx.cn/movie/1564233.htm)
+- [前中国女子体操运动员芦玉菲自曝被单位欠缴91个月社保，最新回应已补缴完成，如何评价？](http://www.play.hengshemaoyi.cn/xiju/4361019.htm)
+- [普京：感谢中方](http://www.daogukj.com/agvcmxmf/)
+- [“监管要求上报基金AI敞口”不实](http://www.daogukj.com/qklffuer/)
+- [如何评价S16决赛结束后，王多多的结束语？](http://www.play.hengshemaoyi.cn/xiju/5190915.htm)
+- [怎么看DeepSeek API 联网搜索与抓页改为免费？](http://www.daogukj.com/0737886)
+- [白小纯听见喊3纯的表情](http://www.movie.hkepx.cn/xiju/7431665.htm)
+- [中俄美元首同框，有哪些意义？对国际局势有哪些影响？](http://www.daogukj.com/igpatdfc/)
+- [Thank you, Choi 'Doran' Hyeon-Jun](http://www.daogukj.com/4475902)
+- [玩刀锋宝贝后再玩阿珂以为自己开挂了。](http://www.daogukj.com/6579509)
+- [从恒生指数看港股这57年【1969-2026】【特效数据可视化】](http://www.movie.hkepx.cn/xiju/5461514.htm)
+- [【侠盗猎车手6】4K 最高画质 全网首发 全任务 全剧情流程通关攻略 开放世界冒险游戏 GTA6 - Grand Theft Auto VI](http://www.play.hengshemaoyi.cn/kongbu/6140986.htm)
+- [深圳市民在街头偶遇多国政要](http://www.daogukj.com/2214905)
+- [DeepSeek二轮融资出资方曝光](http://www.play.hengshemaoyi.cn/xiju/7790903.htm)
+- [睡前有5种表现要警惕脑梗](http://www.play.hengshemaoyi.cn/xiju/9900701.htm)
+- [还有30个国家GDP比深圳高](http://www.daogukj.com/4430972)
+- [后会友期全员都想吃文王的瓜](http://www.movie.hkepx.cn/xiju/8019376.htm)
+- [泰国总理携夫人在深圳南山吃宵夜](http://www.movie.hkepx.cn/movie/0123120.htm)
+- [中俄美元首和平宣言](http://www.movie.hkepx.cn/xiju/8033346.htm)
+- [特朗普又没拉窗帘](http://www.play.hengshemaoyi.cn/xiju/9533426.htm)
+- [终于看到《知否》祖孙三人同框了](http://www.daogukj.com/8763764)
+- [离婚前男方将游戏账号以 88 万卖给朋友，女方要求分割，法院判决 2:1 比例分，如何从法律角度解读？](http://www.daogukj.com/jqstllvn/)
+- [习主席主持 普京、特朗普先后发言](http://www.daogukj.com/1298524)
+- [OpenAI 宣布为全球多达 20 万科学家免费提供前沿模型访问，如何理解这一动作，可能带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/0911267.htm)
+- [国台办回应「建议 2032 年两岸统一货币」，称只要利于两岸关系和平发展都欢迎，统一货币会有哪些影响？](http://www.daogukj.com/3314823)
 - [【纪录片】人生一串 第四季 03 十二时辰](http://www.play.hengshemaoyi.cn/kongbu/1318289.htm)
-- [马天宇哭到张萌后悔](http://www.movie.hkepx.cn/xiju/6376636.htm)
-- [为什么大家这么关注APEC会议？](http://www.play.hengshemaoyi.cn/kongbu/4440369.htm)
-- [特朗普感激中国](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
-- [那些被黑客入侵的游戏，最后都怎么样了？](http://www.daogukj.com/pcyxvqcb/)
-- [老戴《侠盗猎车手 6》初见开荒全实况流程解说【GTA 6】](http://www.daogukj.com/7344740)
-- [中俄美三国元首历史上首次面对面会晤，有哪些意义？为何会选在这个时间点？](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
-- [APEC重要讲话](http://www.daogukj.com/okofdfns/)
-- [深圳 APEC 世纪晚宴菜单曝光，以地道粤菜为主，同时融入国际菜肴元素，菜品设计考量了哪些核心因素？](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
-- [深圳深南大道是湖北“建”的](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
-- [引领时代风气之先 锚定亚太合作方向](http://www.movie.hkepx.cn/movie/3905354.htm)
-- [【GTA6】我们拥有真实的物理引擎](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
-- [《GTA6》M站开分99，这是一个什么水平？有1分扣在哪了？](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
+- [墨西哥总统弹奏中国名曲《茉莉花》](http://www.movie.hkepx.cn/xiju/6376636.htm)
+- [中俄美元首发表和平宣言，三国元首重申核战争打不赢也打不得，哪些信息值得重点关注？](http://www.play.hengshemaoyi.cn/kongbu/4440369.htm)
+- [震惊瘫坐！GTA6 的车细节有多恐怖？车系统深度体验](http://www.play.hengshemaoyi.cn/kongbu/9214533.htm)
+- [特朗普离深登机时做挥拳动作](http://www.daogukj.com/pcyxvqcb/)
+- [尾随NPC的真实反应](http://www.daogukj.com/7344740)
+- [一根 1m 长的玻璃棒，摔到地上断成 3 段，最短一段的平均值是多少？](http://www.play.hengshemaoyi.cn/xiju/0530695.htm)
+- [克里米亚大桥对俄罗斯重要吗？](http://www.daogukj.com/okofdfns/)
+- [文吉儿又有新综艺了](http://www.play.hengshemaoyi.cn/xiju/3879793.htm)
+- [⚡赵本山《Bad Guy》大忽悠｜象牙山蹦野迪⚡【AI MV大赛】](http://www.play.hengshemaoyi.cn/kongbu/9487452.htm)
+- [30年 第一次叫“倡议”](http://www.movie.hkepx.cn/movie/3905354.htm)
+- [APEC宴会桌布置设计感拉满](http://www.play.hengshemaoyi.cn/kongbu/3020824.htm)
+- [这就是Dior点灯活动C位的含金量吗](http://www.play.hengshemaoyi.cn/xiju/0734597.htm)
 
 </details>
 
 ## 原始来源
 
-- [儿子拿笔在墙上乱画，儿子爸爸极力反对说要有规矩，姥姥说让孩子画是保护他的探索欲，谁说得对我该站谁？](https://www.zhihu.com/question/2106047742212686624)
+- [马斯克在空军一号看中美元首互动](https://www.toutiao.com/trending/7709633676031725119/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227709633676031725119%22%2C%22hot_board_impr_id%22%3A%2220261120011633223AD7711B4B224FA8C1%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9de537c064fe39ba72aa -->
+<!-- content-fingerprint: 13e2eae3e3057aaea274 -->
