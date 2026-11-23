@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 同样是蛋白质，为什么提倡喝牛奶而不是吃鸡蛋?
+# 【BLG夺冠VLOG】这是属于我们的冠军记忆
 
-> 来源：知乎热榜 · 排名：第 5 位 · 热度：132 万热度 · 分类：问答 · 更新：2026-11-23T06:51:02+08:00
+> 来源：哔哩哔哩热门 · 排名：第 5 位 · 热度：632216 · 分类：日常 · 更新：2026-11-23T11:21:13+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“同样是蛋白质，为什么提倡喝牛奶而不是吃鸡蛋?”位列第 5 位，公开热度指标为 132 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【BLG夺冠VLOG】这是属于我们的冠军记忆”位列第 5 位，公开热度指标为 632216，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：未来某天，无论我们身在何处，当这段记忆突然涌现，最美好的，莫过于此刻。 ——这是属于BLG的冠军记忆，也是属于我们的此刻。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
 
 ## 相关热点
 
-- [路边捡到的小狗千万不要扔，小伙教你做美味营养的小狗泡饭](po-fu-chen-zhou.md)
-- [做饭前一个改变 血压炎症指标降了](bei-shui-yi-zhan.md)
-- [赵本山女儿和老公两地分居](zhi-shang-tan-bing.md)
-- [七个葫芦娃姐姐出嫁七兄弟送嫁](wei-wei-jiu-zhao.md)
+- [樊少皇大女儿中基因彩票了](po-fu-chen-zhou.md)
+- [做家教感受到了世界的参差](bei-shui-yi-zhan.md)
+- [麻阳县委书记称红糖欠货请多包容](zhi-shang-tan-bing.md)
+- [芜湖一住户割断高空作业工人安全绳，警方正在侦办，该住户需承担哪些法律责任？](wei-wei-jiu-zhao.md)
 
 ## 站内推荐
 
-- [如何评价《侠盗猎车手 VI》（GTA 6）的结局？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [曝 ShowMaker 宁愿大幅度降薪也希望留在 DK，如何评价他的选择？DK 目前情况有多糟？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [户均 2.52 人开发商却主推三居，为什么现在 89 平方米刚需户型重新走热？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [如何看待2026年考CPA人数大幅下降这事？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [网友称在父母面前切换成「无性别低智儿童」，被问到工作、婚恋话题都说「不知道」，为啥要这样？这招管用吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [编剧芦苇评价《给阿嬷的情书》是合格水准，但很难成为经典，劣币驱逐良币时代是良心之作，怎样理解这一说法？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [非正常人物志——哥伦布](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [【合集】人类消失后，深度思考三百年的大肥鱼](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [熟成14的三文鱼，厨师长上班验货，美食制作先替客人尝尝味道，把控品质，人人有责](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [又一中国斯诺克选手涉嫌操纵比赛](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [长安大学回应「14日面试13日出结果」，公告误带后台草稿的创建日期，三名人事干部被处分，如何看待此事？](http://www.daogukj.com/epcjcrex/)
-- [炒蔬菜的底层逻辑：4种方法搞定99%的蔬菜？](http://www.movie.hkepx.cn/xiju/7554306.htm)
-- [联合国会否诞生史上首位女掌门](http://www.daogukj.com/7098171)
+- [【凡人修仙传】边界之战即将开启！【PV】](http://www.daogukj.com/epcjcrex/)
+- [七个葫芦娃姐姐出嫁七兄弟送嫁](http://www.movie.hkepx.cn/xiju/7554306.htm)
+- [美貌转移到了许飞脸上](http://www.daogukj.com/7098171)
 - [方力申耗时 8 小时 37 分 24 秒从香港游到澳门破吉尼斯纪录，完成这样的挑战难度有多大？](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
 - [【独家】牧神记 第110集 诡异冥谷](http://www.daogukj.com/5595330)
-- [樊振东1比3约内斯库](http://www.movie.hkepx.cn/xiju/4881611.htm)
-- [利物浦4比0曼联](http://www.daogukj.com/2794428)
-- [【BLG庆功饭堂夜】冠军之路，感谢有你！（直播全程回放）](http://www.movie.hkepx.cn/movie/0220033.htm)
-- [为什么现在90后，00后年轻人不再给领导提供情绪价值了？](http://www.daogukj.com/3787812)
-- [特朗普发APEC合照配文GOAT](http://www.movie.hkepx.cn/movie/2410306.htm)
-- [环保少女格蕾塔嘲讽自己发起的环保组织——“你们还在搞这个？”](http://www.movie.hkepx.cn/movie/4961738.htm)
-- [弗朗西斯卡太熟樊振东球路](http://www.movie.hkepx.cn/xiju/4077836.htm)
-- [最完美的食物](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
-- [网友称在父母面前切换成「无性别低智儿童」，被问到工作、婚恋话题都说「不知道」，为啥要这样？这招管用吗？](http://www.daogukj.com/rrqdxtcv/)
-- [“防非反诈”系列条漫](http://www.daogukj.com/5407672)
-- [日媒逐帧解析特朗普无视高市](http://www.daogukj.com/9043091)
-- [【BLG夺冠VLOG】这是属于我们的冠军记忆](http://www.daogukj.com/9116005)
-- [“神仙岗位”涌现 广东多地辟谣](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
-- [有老观众自己出钱，给咱们做了一集《瑞克和莫蒂》！同好里人才济济啊（瑞莫x基金会，同人故事）](http://www.daogukj.com/eqgomafp/)
-- [玛雅消失案：谁杀死了一个失落的文明？](http://www.daogukj.com/7605991)
-- [亚洲市场集体打响保卫战](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
-- [特朗普回应深圳乘车时不拉窗帘](http://www.movie.hkepx.cn/movie/4360714.htm)
-- [古代从南京跑到北京十五天够用吗](http://www.daogukj.com/4727961)
-- [【凡人修仙传】边界之战即将开启！【PV】](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
-- [【STN快报第8.5季28】不要小看一个老实本分的家政精英，他可能是GTA的超级大盗](http://www.movie.hkepx.cn/xiju/3457747.htm)
-- [女儿回应父亲交往母亲第三者的前妻](http://www.movie.hkepx.cn/movie/9116389.htm)
-- [“稳股市”组合拳来了](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
-- [三亚凤凰机场等被暂停全军采购资格](http://www.movie.hkepx.cn/movie/6275425.htm)
+- [treetree的炸鸡外卖火到被迫成为门店](http://www.movie.hkepx.cn/xiju/4881611.htm)
+- [A股迎稳市组合拳](http://www.daogukj.com/2794428)
+- [八马茶业被暂停军采资格 吴小宁是谁](http://www.movie.hkepx.cn/movie/0220033.htm)
+- [考公务员很难，但是为人民服务却很容易！](http://www.daogukj.com/3787812)
+- [老人把杨帆认成胡歌求合影](http://www.movie.hkepx.cn/movie/2410306.htm)
+- [女孩肖像画险被卖废品 医生看中捡回](http://www.movie.hkepx.cn/movie/4961738.htm)
+- [克莱追防过程中鞋垫突然掉了](http://www.movie.hkepx.cn/xiju/4077836.htm)
+- [深圳道路如何做到没有坑洼](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
+- [又一中国斯诺克选手涉嫌操纵比赛](http://www.daogukj.com/rrqdxtcv/)
+- [日媒逐帧解析高市早苗遭特朗普无视，直呼耻辱，为何日本对此如此破防？反映了日本舆论对日美互动怎样的心态？](http://www.daogukj.com/5407672)
+- [两融保证金比例下限再度下调，会给 A 股带来实质性利好吗？](http://www.daogukj.com/9043091)
+- [曾经主角团最边缘的一个，为啥如今却成了互联网的神？](http://www.daogukj.com/9116005)
+- [除了李惠利被镜头切到的艺人都如临大敌](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
+- [沈阳洗浴服务太吓人](http://www.daogukj.com/eqgomafp/)
+- [医院通报门诊妇产科有犬只进入](http://www.daogukj.com/7605991)
+- [某部委机关干部因犯间谍罪被判死刑](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
+- [【星穹铁道HoYoFair】「红丝绒星期五」正式预告片 | 史上最棒的预告片](http://www.movie.hkepx.cn/movie/4360714.htm)
+- [A股](http://www.daogukj.com/4727961)
+- [网民编造捡1900万手表送1套房被刑拘](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
+- [派出所副所长借钱8万仅还5万被约谈](http://www.movie.hkepx.cn/xiju/3457747.htm)
+- [现货黄金站上3600美元/盎司](http://www.movie.hkepx.cn/movie/9116389.htm)
+- [特朗普深圳行照片14张是中美元首互动](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
+- [2026年乒乓球德甲联赛第九轮，樊振东1：3负于约内斯库，怎么评价本场比赛？](http://www.movie.hkepx.cn/movie/6275425.htm)
 - [权威数读观中国](http://www.daogukj.com/6962158)
-- [怎样从晚起半小时到真正睡得好](http://www.movie.hkepx.cn/movie/3536173.htm)
-- [陈数高清怼脸直拍下状态绝了](http://www.daogukj.com/5602314)
-- [特朗普连发30多张照片回味APEC](http://www.daogukj.com/rhzksqyv/)
-- [建议焦虑的人听听这段话](http://www.daogukj.com/ciddvmwp/)
-- [编剧芦苇评价《给阿嬷的情书》是合格水准，但很难成为经典，劣币驱逐良币时代是良心之作，怎样理解这一说法？](http://www.movie.hkepx.cn/xiju/5158718.htm)
-- [韦东奕再获奖](http://www.movie.hkepx.cn/xiju/4192777.htm)
-- [《GTA 6》：完美劫案（没惊动警察，也没触发警报）](http://www.movie.hkepx.cn/xiju/6976677.htm)
-- [村委会回应“去世到安葬不超24小时”](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
-- [黄金这波暴跌割了谁的韭菜](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
-- [北上广出现“租狗”服务](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
-- [青稚夺冠后直播热度](http://www.daogukj.com/3262256)
-- [为啥北方人没有吐槽供暖费很贵的？](http://www.daogukj.com/2924239)
-- [如何评价佟丽娅、王皓主演的喜剧电影《我没错！》？](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
-- [做饭前一个改变 血压炎症指标降了](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
-- [如何评价《侠盗猎车手 VI》（GTA 6）的结局？](http://www.daogukj.com/cszxbbqq/)
-- [小时候眼中的罚抄神器be like:](http://www.movie.hkepx.cn/movie/9183199.htm)
-- [交易所打出稳市「组合拳」，沪深北交易所降低融资保证金比例下限至 80%，意味着什么？释放了哪些信号？](http://www.daogukj.com/zmttmgkb/)
-- [【合集】人类消失后，深度思考三百年的大肥鱼](http://www.movie.hkepx.cn/xiju/7610500.htm)
-- [羽绒服到底该怎么洗](http://www.movie.hkepx.cn/xiju/6364739.htm)
-- [600块吃好喝好玩好 年轻人羡慕疯了](http://www.daogukj.com/5178801)
-- [菲律宾8名警察绑架中国女富商](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
+- [官方通报百万粉丝主播被指私闯果园](http://www.movie.hkepx.cn/movie/3536173.htm)
+- [同时狂炫「垃圾食品+保健品」，美国人的养生观逆天了](http://www.daogukj.com/5602314)
+- [户均 2.52 人开发商却主推三居，为什么现在 89 平方米刚需户型重新走热？](http://www.daogukj.com/rhzksqyv/)
+- [高校鸭子被撞死司机道歉](http://www.daogukj.com/ciddvmwp/)
+- [张水华黄石马拉松破个人纪录夺冠，6周连跑6场获5冠1亚，如何评价她的表现？](http://www.movie.hkepx.cn/xiju/5158718.htm)
+- [歼-10C 首次挂载改进型俄制重型打击导弹，这一搭配能带来哪些作战优势？](http://www.movie.hkepx.cn/xiju/4192777.htm)
+- [男子提供上门服务教自行车被判定涉黄](http://www.movie.hkepx.cn/xiju/6976677.htm)
+- [女教师公园拉二胡被质疑“有失身份”](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
+- [部委干部窃取我国百余份情报获死刑](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
+- [两届炒股大赛冠军破产](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
+- [樊振东1-3不敌罗马尼亚小将](http://www.daogukj.com/3262256)
+- [MC最离谱寄生虫？会撒娇、会吃醋、还能塞回肚子的蛔虫娘！](http://www.daogukj.com/2924239)
+- [禁止米提亚参与摩拉游戏](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
+- [做家教感受到了世界的参差](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
+- [编剧芦苇评价《给阿嬷的情书》是合格水准，但很难成为经典，劣币驱逐良币时代是良心之作，怎样理解这一说法？](http://www.daogukj.com/cszxbbqq/)
+- [70多岁阿姨吃头孢3年后检出耐药菌](http://www.movie.hkepx.cn/movie/9183199.htm)
+- [在黎曼猜想被声称证明后，如何理解袁新意所说的「或许我们高估了黎曼猜想的难度」？](http://www.daogukj.com/zmttmgkb/)
+- [《无限暖暖》3.0版本PV｜昨日之城，明日之声](http://www.movie.hkepx.cn/xiju/7610500.htm)
+- [向芷不愧是向家的团宠](http://www.movie.hkepx.cn/xiju/6364739.htm)
+- [130/80不再列为“正常血压”](http://www.daogukj.com/5178801)
+- [如何看待母亲拒送8岁女儿上学遭起诉，自称替人类示范在家教育，结果女儿连自己名字都写错、语文仅考6分？](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
 
 </details>
 
 ## 原始来源
 
-- [同样是蛋白质，为什么提倡喝牛奶而不是吃鸡蛋?](https://www.zhihu.com/question/623251460)
+- [【BLG夺冠VLOG】这是属于我们的冠军记忆](https://b23.tv/BV1zGy5ziEnd)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 773bd39dda64b091de5f -->
+<!-- content-fingerprint: d4549848d3820a3a7d7b -->
