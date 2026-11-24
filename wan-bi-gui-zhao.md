@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# R星劝玩家别用任务清单和攻略玩《GTA6》，说放慢才能感受到手工打磨的细节，如何评价？
+# 英伟达卖空者预计亏损 122 亿美元，创下 2019 年以来最大单日亏损，怎么看待这次史诗级空头暴击？
 
-> 来源：知乎热榜 · 排名：第 6 位 · 热度：291 万热度 · 分类：问答 · 更新：2026-11-24T18:54:50+08:00
+> 来源：知乎热榜 · 排名：第 6 位 · 热度：111 万热度 · 分类：问答 · 更新：2026-11-25T05:01:17+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“R星劝玩家别用任务清单和攻略玩《GTA6》，说放慢才能感受到手工打磨的细节，如何评价？”位列第 6 位，公开热度指标为 291 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“英伟达卖空者预计亏损 122 亿美元，创下 2019 年以来最大单日亏损，怎么看待这次史诗级空头暴击？”位列第 6 位，公开热度指标为 111 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：Rockstar 设计副总裁斯蒂芬·唐金向玩家提了一条和主流开放世界习惯相反的建议：不要用任务清单、完成度百分比和网上攻略来「消费」这款游戏。 据 Kotaku 等媒体报道，唐金在面向媒体的开发笔记里说，团队希望玩家进入雷奥奈达州之后，「不再以任务、完成度和线上攻略的框架去思考，而是让游戏在眼前自然展开」。 他的原话是这样的：「当你真正放慢节奏去玩，按游戏所要求的步调去玩，它会在宏观层面近乎无限地展开，但每一次具体的遭遇仍然是手工打磨的，背后有真实的人在创作。」他还说，如果玩家能放下传统游玩惯性，让好奇心而不是攻略牵着走，「你就能感受到我所感受到的那个雷
+来源公开摘要显示：11月23日消息，数据显示，随着英伟达股价升至168.5美元，英伟达卖空者预计将录得约122亿美元的账面亏损，为至少自2019年以来最大的单日亏损。 当地时间11月23日，美国总统特朗普在社交媒体发文，祝贺英伟达董事会决定恢复黄仁勋担任公司首席执行官。纵观黄仁勋辞任后又回归这整个事件，「谁」得了「MVP」？各方参与者都有哪些私心与公义？英伟达卖空者预计亏损122亿美元！特朗普祝贺黄仁勋，并称“美国政府没有证据表明黄仁勋有不合法行为”，马斯克发声黄仁勋复职引爆美股，英伟达暴涨31%，单日新增近万亿美元市值，纳指大涨 6.51%，怎么看待这次反弹？特朗普称亲
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [🐊“Bin哥，我一定会找到冠军皮肤的时间线的！”🐊](fu-jing-qing-zui.md)
-- [男子杀妻抛尸后伪装好女婿10年](mao-sui-zi-jian.md)
-- [深圳感谢市民全妆出街](san-gu-mao-lu.md)
-- [跟着黄仁勋离职的工程师后悔了](cao-mu-jie-bing.md)
+- [这个草台班子的世界，比你想象的还要荒唐！](fu-jing-qing-zui.md)
+- [外交部回应“黄仁勋重回英伟达”](mao-sui-zi-jian.md)
+- [黄奕女儿说你都能当艺人为啥我不行](san-gu-mao-lu.md)
+- [年轻人开始劝父母卖空房收息](cao-mu-jie-bing.md)
 
 ## 站内推荐
 
-- [魏建军自曝这几年焦虑，称「长城汽车曾经是中国自主品牌的销冠，如今已滑到了第九」，你觉得问题出在哪？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [人类统一不爽行为](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [受贿1.13亿余元！吴胜华被判无期](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [MateX8华为史上最强大折叠](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [华为史上最薄最强智能手表来了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [AI 短剧《丑狐》爆火后引发大量讨论，它能戳中观众的核心原因是什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [153分钟超长大合集！【末日来临，我从吃丧尸开始成神！】第1季+第2季完整版【AI全民制作人】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [美国拟对数十国加征关税](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [年轻人为何流行胳膊上贴“小圆片”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [🐧男生怎么能进女生宿舍呢🐧](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [众多明星出席华为Mate X8发布会](http://www.daogukj.com/3042716)
-- [网传红果短剧最热50词中，「重生」登顶，这份名单跟你日常刷剧体感一样吗？反映了中国观众哪些偏好趋势？](http://www.movie.hkepx.cn/movie/2061637.htm)
-- [🐊“Bin哥，我一定会找到冠军皮肤的时间线的！”🐊](http://www.daogukj.com/whcykmxi/)
-- [羽绒服为何穿两三年就不保暖](http://www.daogukj.com/8289578)
-- [美股集体大幅收高，英伟达暴涨超31%，单日市值大增9500亿美元创全球纪录，如何理解？行情能持续多久？](http://www.movie.hkepx.cn/movie/6917669.htm)
-- [肝不好可能有这些信号](http://www.daogukj.com/1323195)
-- [当你的老师爱讲冷笑话…](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
-- [张纪中妻子自曝领证时才得知丈夫年龄](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
-- [北京天空现“超级月亮”](http://www.movie.hkepx.cn/xiju/7626363.htm)
-- [小米三季度净利润48.84亿](http://www.daogukj.com/zbetfxek/)
-- [肝不好的人身上可能有一黄二红三黑](http://www.daogukj.com/6022603)
-- [黄仁勋复职内幕来了](http://www.movie.hkepx.cn/xiju/5313504.htm)
-- [【小跳蛙】|“【跳蛙の小曲】”](http://www.daogukj.com/xdexhduz/)
-- [刘晓艳：“你能考过就是「烂奇迹」”](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
-- [中国经济电力十足](http://www.movie.hkepx.cn/movie/6492359.htm)
-- [外交部回应“黄仁勋重回英伟达”](http://www.daogukj.com/6000133)
-- [维嘉跟王菲说别介意我蹭你流量](http://www.daogukj.com/ajsfeojq/)
-- [华强等了宋老虎30年](http://www.movie.hkepx.cn/xiju/4278075.htm)
-- [为黄仁勋而辞职的英伟达员工后悔了](http://www.movie.hkepx.cn/movie/5534562.htm)
-- [华为正式推出鸿蒙小折叠电脑](http://www.daogukj.com/6871213)
-- [受贿1.13亿余元！吴胜华被判无期](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
-- [英伟达进入黄仁勋2.0时代，这一次和之前相比发生了哪些变化？黄仁勋需要如何证明自己？](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
-- [“一老一小”新政来了](http://www.movie.hkepx.cn/xiju/4051583.htm)
-- [成毅姜珮瑶对手戏没有暧昧全是忌惮](http://www.daogukj.com/4848168)
-- [《明日方舟：终末地》干员叙事 [小刻：很新的旅程]](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
-- [能不能毕业 要看AI脸色了](http://www.movie.hkepx.cn/movie/2894342.htm)
-- [某部委员工与间谍签署「保密与忠诚」条款、窃取百余份情报被判死刑，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
-- [小米Q3财报](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
-- [游戏自由度太高也不是什么好事](http://www.movie.hkepx.cn/xiju/8848024.htm)
-- [⚡【神金斗罗】史上最神人斗罗同人1-10集大合集⚡](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
-- [英伟达卖空者预计亏损 122 亿美元，创下 2019 年以来最大单日亏损，怎么看待这次史诗级空头暴击？](http://www.movie.hkepx.cn/xiju/3438884.htm)
-- [课堂上的“嘉豪、嘉欣” 已不敢举手](http://www.daogukj.com/ieqapfew/)
-- [用鸿蒙多少天就攒了多少钱](http://www.daogukj.com/8044050)
-- [“南昌起火3名消防员牺牲”不实](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
-- [华为首款小折叠电脑发布](http://www.movie.hkepx.cn/xiju/0303756.htm)
-- [特厨探店|一碗十块吃出河南人的浪漫？](http://www.daogukj.com/8598756)
-- [如果用一句话总结，《大明王朝 1566》到底讲了什么？](http://www.movie.hkepx.cn/movie/4526722.htm)
-- [我想回家吃饭（两小时大电影）](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
-- [高迪憔悴了](http://www.daogukj.com/0218050)
+- [曝王牌对王牌10新增常驻王一博](http://www.daogukj.com/3042716)
+- [对质](http://www.movie.hkepx.cn/movie/2061637.htm)
+- [这个草台班子的世界，比你想象的还要荒唐！](http://www.daogukj.com/whcykmxi/)
+- [bro开麦一直指挥自己...](http://www.daogukj.com/8289578)
+- [中韩自贸协定谈判里，中方首次同意给予韩国电影、游戏等领域最惠国待遇，将给两国影视行业带来哪些机遇？](http://www.movie.hkepx.cn/movie/6917669.htm)
+- [美股AMD跌逾9% 美光跌近9%](http://www.daogukj.com/1323195)
+- [《蓝色星原：旅谣》涂山小玉PV | 一笺桃花](http://www.play.hengshemaoyi.cn/xiju/3673238.htm)
+- [如何评价冬宫密令系列任务？](http://www.play.hengshemaoyi.cn/kongbu/8133630.htm)
+- [撞脸张雪男子年轻时被说像林俊杰](http://www.movie.hkepx.cn/xiju/7626363.htm)
+- [黄磊真空围裙](http://www.daogukj.com/zbetfxek/)
+- [国产可口可乐不再标生产日期](http://www.daogukj.com/6022603)
+- [王牌对王牌第十季阵容](http://www.movie.hkepx.cn/xiju/5313504.htm)
+- [余承东：iPhone用户可考虑买台Mate X8](http://www.daogukj.com/xdexhduz/)
+- [华为动态血糖仪将于12月11日开售](http://www.play.hengshemaoyi.cn/xiju/9890301.htm)
+- [神24出征续写航天荣光](http://www.movie.hkepx.cn/movie/6492359.htm)
+- [上海市委书记陈吉宁被查](http://www.daogukj.com/6000133)
+- [特朗普称亲自说服英伟达董事会推动黄仁勋复职，副总统万斯出面沟通，白宫为何这么拼？这波介入起了多大作用？](http://www.daogukj.com/ajsfeojq/)
+- [几个姑娘在-25℃的黑龙江清凉上阵](http://www.movie.hkepx.cn/xiju/4278075.htm)
+- [🐊“Bin哥，我一定会找到冠军皮肤的时间线的！”🐊](http://www.movie.hkepx.cn/movie/5534562.htm)
+- [如何评价库洛投资的AI被曝通过刷票登顶TTS Arena，后被发现除名？](http://www.daogukj.com/6871213)
+- [美国拟对数十国加征关税](http://www.play.hengshemaoyi.cn/xiju/0505899.htm)
+- [看不上别人就不要接受对方付出](http://www.play.hengshemaoyi.cn/xiju/0596643.htm)
+- [中国人登月又近一步](http://www.movie.hkepx.cn/xiju/4051583.htm)
+- [飞机与“超级月亮”浪漫同框](http://www.daogukj.com/4848168)
+- [游戏自由度太高也不是什么好事](http://www.play.hengshemaoyi.cn/xiju/3889513.htm)
+- [东北的洗浴已经这么卷了吗](http://www.movie.hkepx.cn/movie/2894342.htm)
+- [⚡【神金斗罗】史上最神人斗罗同人1-10集大合集⚡](http://www.play.hengshemaoyi.cn/kongbu/8262316.htm)
+- [情侣包间求婚服务员推门打断要纸箱](http://www.play.hengshemaoyi.cn/kongbu/9550345.htm)
+- [吴胜华贪1.13亿被判无期](http://www.movie.hkepx.cn/xiju/8848024.htm)
+- [鸿蒙积分兑换断货](http://www.play.hengshemaoyi.cn/kongbu/1424777.htm)
+- [全国前10黄金矿工都匹配在一起了！](http://www.movie.hkepx.cn/xiju/3438884.htm)
+- [为什么吕子乔不撩诺澜？](http://www.daogukj.com/ieqapfew/)
+- [注水长剧的“狼”来了](http://www.daogukj.com/8044050)
+- [一校一主题 消谣育青年](http://www.play.hengshemaoyi.cn/xiju/1977775.htm)
+- [全国首例「性侵认定工伤」案劳动争议案一审判决，当事人崔丽丽获赔 137 万余元，如何看待这一判决？](http://www.movie.hkepx.cn/xiju/0303756.htm)
+- [天还没亮 学生就集体站在操场晨读](http://www.daogukj.com/8598756)
+- [《西游记》中，真的是大海里是水，但龙宫内是干的吗？如果是的话，各个人物进龙宫时怎么晾干衣服？](http://www.movie.hkepx.cn/movie/4526722.htm)
+- [为什么让Ai随机说一个1到30之间的数，大部分都会说17？](http://www.play.hengshemaoyi.cn/kongbu/0885155.htm)
+- [《雾山五行 · 封界大战》超前PV](http://www.daogukj.com/0218050)
 - [旺仔牛奶更不好卖了](http://www.play.hengshemaoyi.cn/xiju/7069676.htm)
-- [为什么吕子乔不撩诺澜？](http://www.daogukj.com/3371192)
-- [天还没亮 学生就集体站在操场晨读](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
-- [人类统一不爽行为](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
-- [蔚来全新ET5T定档12月19日](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
-- [神舟二十四号将发射对巴基斯坦意味啥](http://www.movie.hkepx.cn/movie/1298994.htm)
-- [英伟达宣布恢复黄仁勋CEO身份，那以前被曝反对黄仁勋的临时CEO科莱特·克雷斯还能在英伟达混下去吗？](http://www.movie.hkepx.cn/movie/6188638.htm)
-- [“假洋牌”Swisse卖爆了](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
-- [据我所知，韩国兵役人人避之不及，这种制度真的能培养出有战斗力的部队吗？](http://www.daogukj.com/4541580)
-- [男子杀妻抛尸后伪装好女婿10年](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
-- [中方回应黄仁勋复职](http://www.daogukj.com/4450013)
+- [以为猫咪离世后摸到心跳](http://www.daogukj.com/3371192)
+- [张艺谋电影 肖战杨幂](http://www.play.hengshemaoyi.cn/kongbu/1768949.htm)
+- [153分钟超长大合集！【末日来临，我从吃丧尸开始成神！】第1季+第2季完整版【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/1558732.htm)
+- [女老师阔腿裤钻进老鼠捏住继续讲课](http://www.play.hengshemaoyi.cn/xiju/4485443.htm)
+- [华为又有一款手机销量破百万](http://www.movie.hkepx.cn/movie/1298994.htm)
+- [地级市市长转任县委书记](http://www.movie.hkepx.cn/movie/6188638.htm)
+- [陈吉宁被查 上海表态](http://www.play.hengshemaoyi.cn/xiju/6581354.htm)
+- [谷歌 Android17 全球份额仅约 1%，安卓版本碎片化为何迟迟难解？](http://www.daogukj.com/4541580)
+- [外交部回应“黄仁勋重回英伟达”](http://www.play.hengshemaoyi.cn/kongbu/5521621.htm)
+- [陈吉宁被查](http://www.daogukj.com/4450013)
 
 </details>
 
 ## 原始来源
 
-- [R星劝玩家别用任务清单和攻略玩《GTA6》，说放慢才能感受到手工打磨的细节，如何评价？](https://www.zhihu.com/question/2107988065939738696)
+- [英伟达卖空者预计亏损 122 亿美元，创下 2019 年以来最大单日亏损，怎么看待这次史诗级空头暴击？](https://www.zhihu.com/question/2108467878504812572)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: aeeec54b0db7c5ce27fc -->
+<!-- content-fingerprint: 51518c813224e02056ff -->

@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 为什么让Ai随机说一个1到30之间的数，大部分都会说17？
+# 高志凯称欧洲在人工智能发展中的作用几乎是零，这一观点是否站得住脚？
 
-> 来源：知乎热榜 · 排名：第 5 位 · 热度：385 万热度 · 分类：问答 · 更新：2026-11-24T18:54:50+08:00
+> 来源：知乎热榜 · 排名：第 5 位 · 热度：114 万热度 · 分类：问答 · 更新：2026-11-25T05:01:17+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“为什么让Ai随机说一个1到30之间的数，大部分都会说17？”位列第 5 位，公开热度指标为 385 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“高志凯称欧洲在人工智能发展中的作用几乎是零，这一观点是否站得住脚？”位列第 5 位，公开热度指标为 114 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：试了好几个模型都是这样，grok4.6还说自己是用python跑了random.randint(1, 30)得出了17，感觉是在撒谎。 刚刚用网页版的gpt6 astra也试了下，同样也回答了17，我更疑惑了
+来源公开摘要显示：专题：全球网络峰会 Web Summit Lisbon 2026郝倩 发自葡萄牙里斯本“人工智能将改变一切、塑造一切、重新创造一切。在这样一场历史级的技术革命面前，欧洲究竟在做什么？”在2026全球网络峰会（Web Summit）期间，全球化智库副主任高志凯独家对话新浪财经时表示，全球AI竞争已经不只是模型和算法的竞争，而是能源、数据、算力、半导体、制造业和应用场景的综合较量。在全球人工智能竞争日益激烈的背景下，中国、美国和欧洲正在呈现出不同的发展路径。 对欧洲而言，真正紧迫的问题不是如何利用AI，而是如何重新找到自己在AI时代的位置。高志凯认为，中国和
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [“别人过得好 你就要扣自己的分吗”](po-fu-chen-zhou.md)
-- [肝不好的人身上可能有一黄二红三黑](bei-shui-yi-zhan.md)
-- [小米三季度净利润48.84亿](zhi-shang-tan-bing.md)
-- [特朗普回国后天天夸深圳](wei-wei-jiu-zhao.md)
+- [同样是水果腌肉 为啥有人是“国宴” 有人是大型翻车现场？【主播说三农】](po-fu-chen-zhou.md)
+- [国产可口可乐不再标生产日期](bei-shui-yi-zhan.md)
+- [黄磊真空围裙](zhi-shang-tan-bing.md)
+- [高血压标准变了？会影响多少人](wei-wei-jiu-zhao.md)
 
 ## 站内推荐
 
-- [神舟二十四号载人飞船瞄准11月25日8时18分发射，「天宫」将迎来首位外籍航天员，有哪些信息值得关注？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [据我所知，韩国兵役人人避之不及，这种制度真的能培养出有战斗力的部队吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [天还没亮 学生就集体站在操场晨读](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [北京天空现“超级月亮”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [内娱全女拍烂了都不如一部AI](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [小米集团 2026 Q3 财报发布，经调整净利润 48.84 亿元，同比下降56.8%，怎样解读？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [谷歌 Android17 全球份额仅约 1%，安卓版本碎片化为何迟迟难解？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [张艺谋电影 肖战杨幂](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [撞脸张雪男子年轻时被说像林俊杰](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [人类统一不爽行为](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [“南昌起火3名消防员牺牲”不实](http://www.daogukj.com/epcjcrex/)
-- [文吉儿曾说见王子璇是接她回家的感觉](http://www.movie.hkepx.cn/xiju/7554306.htm)
-- [网传红果短剧最热50词中，「重生」登顶，这份名单跟你日常刷剧体感一样吗？反映了中国观众哪些偏好趋势？](http://www.daogukj.com/7098171)
-- [淘股吧两届冠军仅5个月就从1541万亏到74万，最后宣告破产，一代炒股冠军的陨落带给投资者哪些反思？](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
+- [一校一主题 消谣育青年](http://www.daogukj.com/epcjcrex/)
+- [李维嘉200平的家干净得找不出1根头发](http://www.movie.hkepx.cn/xiju/7554306.htm)
+- [对质](http://www.daogukj.com/7098171)
+- [特朗普称黄仁勋是「国家瑰宝」，若在美遇不公可去中国，黄仁勋未来若来华可能有哪些选择？](http://www.play.hengshemaoyi.cn/kongbu/4641357.htm)
 - [【纪录片】蓝色星球 第三季 04 极地海洋](http://www.daogukj.com/5595330)
-- [19楼落地窗底部装无限位外凸窗](http://www.movie.hkepx.cn/xiju/4881611.htm)
-- [对质](http://www.daogukj.com/2794428)
-- [康熙十二世孙称雍正篡位](http://www.movie.hkepx.cn/movie/0220033.htm)
-- [受贿1.13亿余元！吴胜华被判无期](http://www.daogukj.com/3787812)
-- [某部委员工与间谍签署「保密与忠诚」条款、窃取百余份情报被判死刑，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/2410306.htm)
-- [深圳APEC盛会刺破台湾岛内信息茧房](http://www.movie.hkepx.cn/movie/4961738.htm)
-- [《GTA6》官宣首日零售销售额37.9亿美元、预售3250万份，这个成绩是什么水平？](http://www.movie.hkepx.cn/xiju/4077836.htm)
-- [英伟达进入黄仁勋2.0时代，这一次和之前相比发生了哪些变化？黄仁勋需要如何证明自己？](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
-- [内娱全女拍烂了都不如一部AI](http://www.daogukj.com/rrqdxtcv/)
-- [同样是牛奶，凭啥一个保15天，一个能放三个月？](http://www.daogukj.com/5407672)
-- [油价有望两连降 92号汽油或回7字头](http://www.daogukj.com/9043091)
-- [《明日方舟：终末地》干员叙事 [小刻：很新的旅程]](http://www.daogukj.com/9116005)
-- [使用AI造谣传谣10起典型案例公布](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
-- [肝不好可能有这些信号](http://www.daogukj.com/eqgomafp/)
-- [霍启刚一家六口罕见同框](http://www.daogukj.com/7605991)
-- [外交部回应“黄仁勋重回英伟达”](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
-- [课堂上的“嘉豪、嘉欣” 已不敢举手](http://www.movie.hkepx.cn/movie/4360714.htm)
-- [张纪中妻子自曝领证时才得知丈夫年龄](http://www.daogukj.com/4727961)
-- [贾静雯 修杰楷](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
-- [林智妍李到晛分手](http://www.movie.hkepx.cn/xiju/3457747.htm)
-- [游戏自由度太高也不是什么好事](http://www.movie.hkepx.cn/movie/9116389.htm)
-- [华为MateX8售价12999元起](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
-- [特厨探店|一碗十块吃出河南人的浪漫？](http://www.movie.hkepx.cn/movie/6275425.htm)
-- [神舟二十四号航天员乘组确定](http://www.daogukj.com/6962158)
-- [《西虹市首富》里面想花完钱却越花越多的情况，现实里面会发生吗？](http://www.movie.hkepx.cn/movie/3536173.htm)
-- [华为首款小折叠电脑发布](http://www.daogukj.com/5602314)
-- [我想回家吃饭（两小时大电影）](http://www.daogukj.com/rhzksqyv/)
-- [英伟达卖空者预计亏损 122 亿美元，创下 2019 年以来最大单日亏损，怎么看待这次史诗级空头暴击？](http://www.daogukj.com/ciddvmwp/)
-- [魏建军自曝这几年焦虑，称「长城汽车曾经是中国自主品牌的销冠，如今已滑到了第九」，你觉得问题出在哪？](http://www.movie.hkepx.cn/xiju/5158718.htm)
-- [华为Mate 90 Air售价4999元起](http://www.movie.hkepx.cn/xiju/4192777.htm)
-- [维嘉跟王菲说别介意我蹭你流量](http://www.movie.hkepx.cn/xiju/6976677.htm)
-- [超级厄尔尼诺发威！暴雪袭击日本](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
-- [中方回应黄仁勋复职](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
-- [蒋欣瘦成这样了](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
-- [英伟达宣布恢复黄仁勋CEO身份，那以前被曝反对黄仁勋的临时CEO科莱特·克雷斯还能在英伟达混下去吗？](http://www.daogukj.com/3262256)
-- [高迪憔悴了](http://www.daogukj.com/2924239)
+- [特朗普对一道中国菜念念不忘](http://www.movie.hkepx.cn/xiju/4881611.htm)
+- [曝51岁李霄鹏接掌蓉城](http://www.daogukj.com/2794428)
+- [蒋欣瘦成这样了](http://www.movie.hkepx.cn/movie/0220033.htm)
+- [美国拟对数十国加征关税](http://www.daogukj.com/3787812)
+- [⚡【神金斗罗】史上最神人斗罗同人1-10集大合集⚡](http://www.movie.hkepx.cn/movie/2410306.htm)
+- [如何评价《黑神话：悟空》主美杨奇评价GTA6是昂贵且低效的艺术品，「工业化」一词是对它的贬损?](http://www.movie.hkepx.cn/movie/4961738.htm)
+- [黄仁勋找到了他的接班人，oh，原来是他自己](http://www.movie.hkepx.cn/xiju/4077836.htm)
+- [看不上别人就不要接受对方付出](http://www.play.hengshemaoyi.cn/xiju/0150486.htm)
+- [人类统一不爽行为](http://www.daogukj.com/rrqdxtcv/)
+- [近十年最好的推理系列剧集之一！神级转场，爆火开头，悬疑神剧高分回归系列最终章！《大理石厅谋杀案》上](http://www.daogukj.com/5407672)
+- [白小纯青稚关闭礼物打赏](http://www.daogukj.com/9043091)
+- [游戏自由度太高也不是什么好事](http://www.daogukj.com/9116005)
+- [张纪中妻子自曝领证时才得知丈夫年龄](http://www.play.hengshemaoyi.cn/kongbu/0900890.htm)
+- [美股AMD跌逾9% 美光跌近9%](http://www.daogukj.com/eqgomafp/)
+- [女子登山上班往返约6小时已瘦12斤](http://www.daogukj.com/7605991)
+- [上海市委书记陈吉宁被查](http://www.play.hengshemaoyi.cn/kongbu/3874413.htm)
+- [为什么吕子乔不撩诺澜？](http://www.movie.hkepx.cn/movie/4360714.htm)
+- [如何评价冬宫密令系列任务？](http://www.daogukj.com/4727961)
+- [白小纯涉及猎奇行为](http://www.play.hengshemaoyi.cn/xiju/8316797.htm)
+- [你坚持过哪些细小的好习惯？](http://www.movie.hkepx.cn/xiju/3457747.htm)
+- [吴胜华贪1.13亿被判无期](http://www.movie.hkepx.cn/movie/9116389.htm)
+- [中方回应黄仁勋复职](http://www.play.hengshemaoyi.cn/xiju/0605267.htm)
+- [天还没亮 学生就集体站在操场晨读](http://www.movie.hkepx.cn/movie/6275425.htm)
+- [神舟二十四号任务看点拉满](http://www.daogukj.com/6962158)
+- [详解【来自深渊】的全部七层！动漫界独一份的超神设定](http://www.movie.hkepx.cn/movie/3536173.htm)
+- [全国首例「性侵认定工伤」案劳动争议案一审判决，当事人崔丽丽获赔 137 万余元，如何看待这一判决？](http://www.daogukj.com/5602314)
+- [为什么让Ai随机说一个1到30之间的数，大部分都会说17？](http://www.daogukj.com/rhzksqyv/)
+- [全国前10黄金矿工都匹配在一起了！](http://www.daogukj.com/ciddvmwp/)
+- [AI 短剧《丑狐》爆火后引发大量讨论，它能戳中观众的核心原因是什么？](http://www.movie.hkepx.cn/xiju/5158718.htm)
+- [女子被情绪疗愈洗脑6年成重度抑郁](http://www.movie.hkepx.cn/xiju/4192777.htm)
+- [特朗普称亲自说服英伟达董事会推动黄仁勋复职，副总统万斯出面沟通，白宫为何这么拼？这波介入起了多大作用？](http://www.movie.hkepx.cn/xiju/6976677.htm)
+- [19楼落地窗底部装无限位外凸窗](http://www.play.hengshemaoyi.cn/xiju/0342188.htm)
+- [陈吉宁被查](http://www.play.hengshemaoyi.cn/xiju/7995473.htm)
+- [为什么日本剑术流派的名字都这么夸张，梦幻流神道流？](http://www.play.hengshemaoyi.cn/xiju/7670234.htm)
+- [地级市市长转任县委书记](http://www.daogukj.com/3262256)
+- [《雾山五行 · 封界大战》超前PV](http://www.daogukj.com/2924239)
 - [旺仔牛奶更不好卖了](http://www.play.hengshemaoyi.cn/kongbu/1622084.htm)
-- [肝不好的人身上可能有一黄二红三黑](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
-- [神舟二十四号载人飞船瞄准11月25日8时18分发射，「天宫」将迎来首位外籍航天员，有哪些信息值得关注？](http://www.daogukj.com/cszxbbqq/)
-- [用鸿蒙多少天就攒了多少钱](http://www.movie.hkepx.cn/movie/9183199.htm)
-- [美股集体大幅收高，英伟达暴涨超31%，单日市值大增9500亿美元创全球纪录，如何理解？行情能持续多久？](http://www.daogukj.com/zmttmgkb/)
+- [国产可口可乐不再标生产日期](http://www.play.hengshemaoyi.cn/xiju/9975219.htm)
+- [小米集团 2026 Q3 财报发布，经调整净利润 48.84 亿元，同比下降56.8%，怎样解读？](http://www.daogukj.com/cszxbbqq/)
+- [注水长剧的“狼”来了](http://www.movie.hkepx.cn/movie/9183199.htm)
+- [中韩自贸协定谈判里，中方首次同意给予韩国电影、游戏等领域最惠国待遇，将给两国影视行业带来哪些机遇？](http://www.daogukj.com/zmttmgkb/)
 - [【火影十一年 神临时刻】漩涡鸣人[阳之力]即将登场！](http://www.movie.hkepx.cn/xiju/7610500.htm)
-- [华为正式推出鸿蒙小折叠电脑](http://www.movie.hkepx.cn/xiju/6364739.htm)
-- [“假洋牌”Swisse卖爆了](http://www.daogukj.com/5178801)
-- [你从未见过的硬核开箱视频！](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
+- [如何评价库洛投资的AI被曝通过刷票登顶TTS Arena，后被发现除名？](http://www.movie.hkepx.cn/xiju/6364739.htm)
+- [陈吉宁被查 上海表态](http://www.daogukj.com/5178801)
+- [李艺彤一个奇葩我就不说什么了](http://www.play.hengshemaoyi.cn/xiju/7159379.htm)
 
 </details>
 
 ## 原始来源
 
-- [为什么让Ai随机说一个1到30之间的数，大部分都会说17？](https://www.zhihu.com/question/2078883145160582324)
+- [高志凯称欧洲在人工智能发展中的作用几乎是零，这一观点是否站得住脚？](https://www.zhihu.com/question/2104246988380418941)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 67b4122371fa60ca32fd -->
+<!-- content-fingerprint: 133ca0d01c2544f27667 -->
