@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 【LCK女团】《Whiplash》视觉盛宴
+# 黄仁勋正式回归英伟达：恢复全部职务｜显卡日报11月24日
 
-> 来源：哔哩哔哩热门 · 排名：第 6 位 · 热度：812107 · 分类：电子竞技 · 更新：2026-11-23T21:30:15+08:00
+> 来源：哔哩哔哩热门 · 排名：第 6 位 · 热度：489326 · 分类：数码 · 更新：2026-11-24T09:09:38+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【LCK女团】《Whiplash》视觉盛宴”位列第 6 位，公开热度指标为 812107，榜单分类为“电子竞技”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“黄仁勋正式回归英伟达：恢复全部职务｜显卡日报11月24日”位列第 6 位，公开热度指标为 489326，榜单分类为“数码”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：这次试下不一样的女团舞蹈看看
+来源公开摘要显示：日报有用记得关注哦，你的鼓励真的很重要
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `电子竞技`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `数码`
 
 ## 相关热点
 
-- [中国代表：深感失望](mao-sui-zi-jian.md)
-- [30岁女教师晚自习时倒地猝死](san-gu-mao-lu.md)
-- [铜价跌了工厂买铜为何反而更贵](cao-mu-jie-bing.md)
-- [余文乐自曝因长期高压患上恐慌症，严重到不能开车，心理压力为何会引发躯体化症状？这种情况还能治愈吗？](feng-sheng-he-li.md)
+- [女子嫌对面楼老旧自费7.3万刷漆](mao-sui-zi-jian.md)
+- [网购裤子扯出内裤平台仅退款](san-gu-mao-lu.md)
+- [有哪些化学冷知识？](cao-mu-jie-bing.md)
+- [近十年最好的推理系列剧集之一！神级转场，爆火开头，悬疑神剧高分回归系列最终章！《大理石厅谋杀案》上](feng-sheng-he-li.md)
 
 ## 站内推荐
 
 - [2026-2027国创动画作品发布会 全程回顾](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [同时狂炫「垃圾食品+保健品」，美国人的养生观逆天了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [今天还是老样子吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [全新【求生者】出版编辑故事视频爆料：——“那是我第一次看到，自己本可以成为的样子……”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [第一次认识这样的台湾](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [黄仁勋回归后纽约时报遭群嘲](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [陈伟霆尺度太大只能选在澳门了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [黄仁勋恢复英伟达CEO职务](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [金价](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [唐湘龙：台湾的城市发展该参考深圳](http://www.daogukj.com/eqgqhkqf/)
-- [英雄联盟手游携手JackeyLove，诠释「终末锋芒 德莱文」永远向前的进攻美学！](http://www.play.hengshemaoyi.cn/xiju/5995614.htm)
-- [中国消费者开始精致“过日子”](http://www.play.hengshemaoyi.cn/kongbu/6334914.htm)
-- [汽车明显在增多，为啥有的洗车店却干不下去了？](http://www.daogukj.com/3536313)
-- [A股午后为何直线拉升](http://www.movie.hkepx.cn/xiju/7959476.htm)
-- [嫪毐可能不是男宠](http://www.movie.hkepx.cn/xiju/4071499.htm)
-- [张雪跨界做外卖骑手电摩，万元定价 10 分钟补能，这款产品踩中真实痛点了吗？能打动外卖骑手吗？](http://www.movie.hkepx.cn/movie/8882644.htm)
-- [treetree炸鸡店老板最新发声](http://www.daogukj.com/fdgghkjr/)
-- [韦东奕拿奖获2位中科院院士提名](http://www.movie.hkepx.cn/xiju/3439203.htm)
-- [糟蹋苹果带不了货 只能带来坏名声](http://www.play.hengshemaoyi.cn/xiju/4410256.htm)
-- [【小跳蛙】|“【跳蛙の小曲】”](http://www.daogukj.com/zplxdklb/)
-- [晚自习倒地猝死女教师多次说好累](http://www.movie.hkepx.cn/movie/6001850.htm)
-- [怎么看 Nielsen 发布《黎曼猜想证明无效》的反驳论文？](http://www.play.hengshemaoyi.cn/kongbu/1262531.htm)
-- [俄一架运输机奔赴利比亚释放何信号](http://www.movie.hkepx.cn/movie/8339563.htm)
-- [51 岁网络主播性侵未成年获刑四年，其亲属曾付60万给被害人家属要求私了被追责，如何从法律角度解读？](http://www.movie.hkepx.cn/xiju/2263179.htm)
-- [安睡裤广告吐槽月经气味大被罚45万](http://www.play.hengshemaoyi.cn/xiju/0991511.htm)
+- [同样是牛奶，凭啥一个保15天，一个能放三个月？](http://www.daogukj.com/eqgqhkqf/)
+- [我想回家吃饭（两小时大电影）](http://www.play.hengshemaoyi.cn/xiju/5995614.htm)
+- [特朗普评价黄仁勋复职决定](http://www.play.hengshemaoyi.cn/kongbu/6334914.htm)
+- [U17国足被读秒绝平](http://www.daogukj.com/3536313)
+- [数年炸鸡无人识 一句treetree全网知](http://www.movie.hkepx.cn/xiju/7959476.htm)
+- [民主党寻求推翻特朗普税收和关税政策，将对全球贸易带来哪些影响？](http://www.movie.hkepx.cn/xiju/4071499.htm)
+- [懂车帝回应「测试内容大调整」，称不再开放对比类内容等信息失实，具体是怎么回事？实际有哪些调整？](http://www.movie.hkepx.cn/movie/8882644.htm)
+- [黄仁勋复职原因](http://www.daogukj.com/fdgghkjr/)
+- [【灵笼:落子无悔】纵入存亡之局，亦落无悔之子【PV】](http://www.movie.hkepx.cn/xiju/3439203.htm)
+- [成毅白龙挂镜头太震撼了](http://www.play.hengshemaoyi.cn/xiju/4410256.htm)
+- [黄仁勋恢复原职，美股大涨7%，英伟达盘前暴涨31%，适才相戏耳，特朗普力挺是关键](http://www.daogukj.com/zplxdklb/)
+- [白小纯真的交了很多好朋友](http://www.movie.hkepx.cn/movie/6001850.htm)
+- [U17世界杯小组赛，中国U17男足补时读秒阶段遭绝平，最终2比2摩洛哥，怎样评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/1262531.htm)
+- [“别人过得好 你就要扣自己的分吗”](http://www.movie.hkepx.cn/movie/8339563.htm)
+- [黄仁勋称将以最大的谦卑和新的承诺承担这一责任，英伟达接下来将怎样发展？此前的策略会发生变化吗？](http://www.movie.hkepx.cn/xiju/2263179.htm)
+- [关乎“养老钱” 人社部公开征求意见](http://www.play.hengshemaoyi.cn/xiju/0991511.htm)
 - [2026-2027国创动画作品发布会 全程回顾](http://www.daogukj.com/3405709)
-- [许飞睡衣太幼稚自己都看不下去](http://www.play.hengshemaoyi.cn/xiju/7801003.htm)
-- [两套大连招 雷霆撸猫法 一镜到底](http://www.daogukj.com/1405714)
-- [为什么大便之前体重和大便之后的体重一样？难道排泄物没有重量吗？](http://www.movie.hkepx.cn/xiju/5293066.htm)
-- [银条从最高33元跌到9元](http://www.daogukj.com/oabpcutg/)
-- [为什么会有那么多状元上北京大学光华管理学院?](http://www.play.hengshemaoyi.cn/kongbu/1350574.htm)
-- [Kimi 宣布发力 AI for Science 方向，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/5103106.htm)
-- [牙膏新规明年5月实施](http://www.movie.hkepx.cn/xiju/9733554.htm)
-- [当APEC用上国产电脑](http://www.daogukj.com/9709824)
-- [明晚将上演月掩昴星团](http://www.daogukj.com/1737486)
-- [扎堆产卵 同类相食！蝗虫诡异行为原理被中国科学家破解！【主播说三农】](http://www.daogukj.com/jdlipgmx/)
-- [李雪琴居然这么瘦了](http://www.play.hengshemaoyi.cn/kongbu/6065966.htm)
-- [俄军为何用航空炸弹对付乌军小分队](http://www.play.hengshemaoyi.cn/kongbu/7701032.htm)
-- [黄金股市反弹可以抄底了吗](http://www.movie.hkepx.cn/xiju/7676153.htm)
-- [雷克萨斯 ES 纯电版正式上市起售价 33.99 万元，该定价在同级别车型里竞争力如何？](http://www.play.hengshemaoyi.cn/kongbu/2964451.htm)
-- [30岁女教师晚自习时倒地猝死](http://www.daogukj.com/1537700)
-- [全新【求生者】出版编辑故事视频爆料：——“那是我第一次看到，自己本可以成为的样子……”](http://www.daogukj.com/rsfbmsap/)
-- [两京十五日](http://www.movie.hkepx.cn/movie/7580112.htm)
-- [骗捐学校强迫学生干活到凌晨三四点](http://www.daogukj.com/0114710)
-- [开放的中国促合作共成长](http://www.play.hengshemaoyi.cn/kongbu/9230233.htm)
-- [比亚迪闪充站超时占位按 3 元/分钟收费，车主被收 300 元，这类规则能改善充电位被占用乱象吗？](http://www.play.hengshemaoyi.cn/kongbu/7120843.htm)
-- [「酱油」一词为什么正在被「生抽」和「老抽」替代？](http://www.play.hengshemaoyi.cn/xiju/9989486.htm)
-- [APEC期间无人搭理高市早苗](http://www.play.hengshemaoyi.cn/xiju/6200267.htm)
-- [央视网评“遇事就举报”](http://www.daogukj.com/7981248)
-- [父亲去世三年健康保险仍年年扣费](http://www.play.hengshemaoyi.cn/kongbu/9855490.htm)
-- [先导片强势来袭！12月5日19点《2026灵笼盛典》B站独家直播【2026 灵笼盛典】](http://www.play.hengshemaoyi.cn/kongbu/7710563.htm)
-- [白小纯怎么帅成这样了](http://www.daogukj.com/wiaxnumm/)
-- [同时狂炫「垃圾食品+保健品」，美国人的养生观逆天了](http://www.play.hengshemaoyi.cn/xiju/6775596.htm)
-- [许飞演的坐月子](http://www.play.hengshemaoyi.cn/kongbu/1979081.htm)
-- [数年炸鸡无人识 一句treetree全网知](http://www.play.hengshemaoyi.cn/kongbu/9092912.htm)
-- [27岁庞众望完成博士论文答辩，即将从清华毕业，未来有望朝什么方向发展？他的求学之路给我们什么启示？](http://www.daogukj.com/tyfmekow/)
-- [女子第一次坐飞机就在登机口扔硬币](http://www.movie.hkepx.cn/xiju/3281791.htm)
-- [网民发免费摘甘蔗谣言被拘](http://www.daogukj.com/2886935)
-- [为什么大学生上课越来越不喜欢课本？为什么大学生不喜欢买课本？](http://www.movie.hkepx.cn/xiju/7902460.htm)
+- [黄仁勋现身没穿皮衣](http://www.play.hengshemaoyi.cn/xiju/7801003.htm)
+- [白小纯 嘉年华](http://www.daogukj.com/1405714)
+- [幼儿园要招两岁孩子了，新政策支持幼儿园改造扩建，举办两至三岁幼儿的托班，该举措对家长和孩子有哪些好处？](http://www.movie.hkepx.cn/xiju/5293066.htm)
+- [甲亢哥百米跑出10秒35](http://www.daogukj.com/oabpcutg/)
+- [骑手一句「treetree的」带火披萨店炸鸡，老板直言爆单做不过来，为啥此类视频能迅速调起大众购买欲？](http://www.play.hengshemaoyi.cn/kongbu/1350574.htm)
+- [英伟达涨31.5% 市值增加近1万亿美元](http://www.play.hengshemaoyi.cn/kongbu/5103106.htm)
+- [巴媒关注巴航天员参加神二十四任务](http://www.movie.hkepx.cn/xiju/9733554.htm)
+- [扎堆产卵 同类相食！蝗虫诡异行为原理被中国科学家破解！【主播说三农】](http://www.daogukj.com/9709824)
+- [🐧ai写 ai批 ai改🐧](http://www.daogukj.com/1737486)
+- [对质](http://www.daogukj.com/jdlipgmx/)
+- [为什么现在高铁、火车不能开窗，以前火车却可以？](http://www.play.hengshemaoyi.cn/kongbu/6065966.htm)
+- [游戏自由度太高也不是什么好事](http://www.play.hengshemaoyi.cn/kongbu/7701032.htm)
+- [先导片强势来袭！12月5日19点《2026灵笼盛典》B站独家直播【2026 灵笼盛典】](http://www.movie.hkepx.cn/xiju/7676153.htm)
+- [印尼女子发现丈夫出轨叫挖掘机拆房](http://www.play.hengshemaoyi.cn/kongbu/2964451.htm)
+- [网购裤子扯出内裤平台仅退款](http://www.daogukj.com/1537700)
+- [黄仁勋恢复英伟达CEO职务](http://www.daogukj.com/rsfbmsap/)
+- [《后会友期》第六期马天宇爆哭，他的问题好像和友情无关了，他不能和任何人建立亲密关系，根本问题是什么？](http://www.movie.hkepx.cn/movie/7580112.htm)
+- [韩乔生：U17国足体能存在短板](http://www.daogukj.com/0114710)
+- [E法同行向上向海](http://www.play.hengshemaoyi.cn/kongbu/9230233.htm)
+- [Digital Foundry 称《GTA6》即便高端 PC 也难稳 60 帧，其核心瓶颈要如何解决？](http://www.play.hengshemaoyi.cn/kongbu/7120843.htm)
+- [马斯克回应黄仁勋复职](http://www.play.hengshemaoyi.cn/xiju/9989486.htm)
+- [邝兆镭半场表现引激烈争论](http://www.play.hengshemaoyi.cn/xiju/6200267.htm)
+- [多地景区密集免票](http://www.daogukj.com/7981248)
+- [大大合集](http://www.play.hengshemaoyi.cn/kongbu/9855490.htm)
+- [作者称丑狐寒心脸灵感来自工作](http://www.play.hengshemaoyi.cn/kongbu/7710563.htm)
+- [NVIDIA董事会宣布即日起恢复黄仁勋的总裁、首席执行官和董事职务。如何评价该事件？](http://www.daogukj.com/wiaxnumm/)
+- [黄仁勋回归后纽约时报遭群嘲](http://www.play.hengshemaoyi.cn/xiju/6775596.htm)
+- [长到现在，你被身边人或者陌生人的善意温暖过吗？](http://www.play.hengshemaoyi.cn/kongbu/1979081.htm)
+- [【小跳蛙】|“【跳蛙の小曲】”](http://www.play.hengshemaoyi.cn/kongbu/9092912.htm)
+- [神舟二十四号载人飞行任务发布会](http://www.daogukj.com/tyfmekow/)
+- [某部委员工与间谍签署「保密与忠诚」条款、窃取百余份情报被判死刑，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/3281791.htm)
+- [大模型经过医考测试不实](http://www.daogukj.com/2886935)
+- [谢军被查 中国石油表态](http://www.movie.hkepx.cn/xiju/7902460.htm)
 
 </details>
 
 ## 原始来源
 
-- [【LCK女团】《Whiplash》视觉盛宴](https://b23.tv/BV1X1y3zjEcW)
+- [黄仁勋正式回归英伟达：恢复全部职务｜显卡日报11月24日](https://b23.tv/BV1mTyXzWEdv)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: dcfa5bdb54b7cdfbb805 -->
+<!-- content-fingerprint: d627d2c417cb8784f4bc -->
