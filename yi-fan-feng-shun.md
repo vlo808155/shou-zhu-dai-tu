@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 专家称年轻人持续出现变懒、变沉默等状态，可能并非「社恐」而是精神分裂症阴性症状，是真的吗？该怎样区分？
+# 🚢"泰坦鲁克号"🛳️
 
-> 来源：知乎热榜 · 排名：第 8 位 · 热度：91 万热度 · 分类：问答 · 更新：2026-11-25T05:01:17+08:00
+> 来源：哔哩哔哩热门 · 排名：第 8 位 · 热度：282846 · 分类：影视剪辑 · 更新：2026-11-25T12:08:15+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“专家称年轻人持续出现变懒、变沉默等状态，可能并非「社恐」而是精神分裂症阴性症状，是真的吗？该怎样区分？”位列第 8 位，公开热度指标为 91 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“🚢"泰坦鲁克号"🛳️”位列第 8 位，公开热度指标为 282846，榜单分类为“影视剪辑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：年轻人的口头禅里，社恐、躺平、佛系…出现得越来越频繁。 朋友约聚会，一句“我社恐，就不去了”婉拒； 整天窝在家里，对以前喜欢的事提不起劲，说是“躺平了”； 慢慢变得话少、冷淡，家里人问什么都反应淡淡的，被说“你就是懒、不求上进”； 连自己也觉得，大概就是性格内向、工作累了、想歇一歇… 可如果这些状态不是“不想”，而是“不能”呢？ 没有明显的疯言疯语，没有离奇的妄想，一个人只是慢慢地“变冷、变懒、变沉默”——这不一定只是心态问题，还有精神分裂症阴性症状（以下简称阴性症状）的可能。当“社恐、躺平”到这种程度，可能是生病了
+来源公开摘要显示：下期更新后室里的乌鲁鲁-前传，真的
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `影视剪辑`
 
 ## 相关热点
 
-- [153分钟超长大合集！【末日来临，我从吃丧尸开始成神！】第1季+第2季完整版【AI全民制作人】](yi-ming-jing-ren.md)
-- [注水长剧的“狼”来了](yi-jian-shuang-diao.md)
-- [19楼落地窗底部装无限位外凸窗](shou-zhu-dai-tu.md)
-- [王牌对王牌第十季阵容](wang-mei-zhi-ke.md)
+- [期待神23神24天宫会餐](yi-ming-jing-ren.md)
+- [上海就陈吉宁被查表态](yi-jian-shuang-diao.md)
+- [菩萨的心肠撒旦的表达能力](shou-zhu-dai-tu.md)
+- [巴基斯坦各界围观神24发射](wang-mei-zhi-ke.md)
 
 ## 站内推荐
 
-- [中方回应黄仁勋复职](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [高血压标准变了？会影响多少人](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [华强等了宋老虎30年](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [李艺彤一个奇葩我就不说什么了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [AI 出现以后，产品经理会不会成为稀缺资源？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [巴基斯坦航天员手指国旗向镜头敬礼](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [特朗普称黄仁勋是「国家瑰宝」，若在美遇不公可去中国，黄仁勋未来若来华可能有哪些选择？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [网络辟谣优秀作品展播：《爸妈防骗》](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [涉案金额超150亿元 舒某某被引渡回国](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [大美疑似宣布离婚](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [飞机与“超级月亮”浪漫同框](http://www.daogukj.com/cohiigft/)
-- [黄仁勋回归最大受害者出现](http://www.daogukj.com/ugakwini/)
-- [神24出征续写航天荣光](http://www.movie.hkepx.cn/movie/1439223.htm)
-- [高志凯称欧洲在人工智能发展中的作用几乎是零，这一观点是否站得住脚？](http://www.daogukj.com/7461995)
-- [如何评价库洛投资的AI被曝通过刷票登顶TTS Arena，后被发现除名？](http://www.daogukj.com/1580127)
-- [余承东：iPhone用户可考虑买台Mate X8](http://www.movie.hkepx.cn/movie/5771230.htm)
-- [如何评价冬宫密令系列任务？](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
-- [高血压标准变了？会影响多少人](http://www.daogukj.com/0519981)
-- [几个姑娘在-25℃的黑龙江清凉上阵](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
-- [特朗普称亲自说服英伟达董事会推动黄仁勋复职，副总统万斯出面沟通，白宫为何这么拼？这波介入起了多大作用？](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
-- [🐊“Bin哥，我一定会找到冠军皮肤的时间线的！”🐊](http://www.movie.hkepx.cn/movie/5740018.htm)
-- [年产1500万根的“棍子” 卖出10亿元](http://www.movie.hkepx.cn/movie/2758437.htm)
-- [华为动态血糖仪将于12月11日开售](http://www.play.hengshemaoyi.cn/kongbu/7663093.htm)
-- [旺仔牛奶更不好卖了](http://www.daogukj.com/npdeovim/)
-- [近十年最好的推理系列剧集之一！神级转场，爆火开头，悬疑神剧高分回归系列最终章！《大理石厅谋杀案》上](http://www.movie.hkepx.cn/movie/1182190.htm)
-- [张艺谋电影 肖战杨幂](http://www.movie.hkepx.cn/movie/6854973.htm)
-- [看不上别人就不要接受对方付出](http://www.movie.hkepx.cn/movie/9974523.htm)
-- [如何评价《黑神话：悟空》主美杨奇评价GTA6是昂贵且低效的艺术品，「工业化」一词是对它的贬损?](http://www.play.hengshemaoyi.cn/kongbu/4772628.htm)
-- [谷爱凌入围2026年度运动员最佳着装](http://www.movie.hkepx.cn/movie/7480091.htm)
-- [蒋欣瘦成这样了](http://www.daogukj.com/ljqtloli/)
-- [女子被情绪疗愈洗脑6年成重度抑郁](http://www.movie.hkepx.cn/movie/1513585.htm)
-- [【世界无用技能】据说这是德国最烧脑的综艺游戏😅~太抽象了🦆选鸭子选小球比谁滑远~超级策略游戏！](http://www.movie.hkepx.cn/xiju/5718367.htm)
-- [黄仁勋找到了他的接班人，oh，原来是他自己](http://www.movie.hkepx.cn/movie/6576281.htm)
-- [情侣包间求婚服务员推门打断要纸箱](http://www.play.hengshemaoyi.cn/kongbu/7311837.htm)
-- [全国前10黄金矿工都匹配在一起了！](http://www.play.hengshemaoyi.cn/xiju/9290584.htm)
-- [年轻人为何流行胳膊上贴“小圆片”](http://www.daogukj.com/7865447)
-- [张纪中妻子自曝领证时才得知丈夫年龄](http://www.daogukj.com/7312066)
-- [陈吉宁被查 上海表态](http://www.play.hengshemaoyi.cn/kongbu/1281085.htm)
-- [19楼落地窗底部装无限位外凸窗](http://www.play.hengshemaoyi.cn/kongbu/1775013.htm)
-- [吴胜华贪1.13亿被判无期](http://www.daogukj.com/0276387)
-- [《蓝色星原：旅谣》涂山小玉PV | 一笺桃花](http://www.movie.hkepx.cn/xiju/9277141.htm)
-- [中韩自贸协定谈判里，中方首次同意给予韩国电影、游戏等领域最惠国待遇，将给两国影视行业带来哪些机遇？](http://www.movie.hkepx.cn/xiju/9995911.htm)
-- [诸葛亮是否配得上武庙十哲？](http://www.movie.hkepx.cn/xiju/4442165.htm)
-- [年轻人开始劝父母卖空房收息](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
-- [美国拟对数十国加征关税](http://www.daogukj.com/sowbdmby/)
-- [撞脸张雪男子年轻时被说像林俊杰](http://www.daogukj.com/cfqiduxu/)
-- [华为又有一款手机销量破百万](http://www.movie.hkepx.cn/xiju/4880279.htm)
-- [小米集团 2026 Q3 财报发布，经调整净利润 48.84 亿元，同比下降56.8%，怎样解读？](http://www.play.hengshemaoyi.cn/xiju/4009878.htm)
-- [⚡【神金斗罗】史上最神人斗罗同人1-10集大合集⚡](http://www.play.hengshemaoyi.cn/kongbu/3318753.htm)
-- [在胳膊上贴个“小圆片”火了](http://www.movie.hkepx.cn/movie/5360276.htm)
-- [这个草台班子的世界，比你想象的还要荒唐！](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
-- [上海市委书记陈吉宁被查](http://www.movie.hkepx.cn/movie/8146575.htm)
-- [李艺彤一个奇葩我就不说什么了](http://www.movie.hkepx.cn/xiju/8000972.htm)
-- [地级市市长转任县委书记](http://www.movie.hkepx.cn/xiju/2505032.htm)
-- [外交部回应“黄仁勋重回英伟达”](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
-- [优秀辟谣作品高校巡展举办](http://www.daogukj.com/maldgqjz/)
-- [一校一主题 消谣育青年](http://www.daogukj.com/ulnghjws/)
-- [为什么让Ai随机说一个1到30之间的数，大部分都会说17？](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
-- [153分钟超长大合集！【末日来临，我从吃丧尸开始成神！】第1季+第2季完整版【AI全民制作人】](http://www.movie.hkepx.cn/movie/7753114.htm)
-- [同样是水果腌肉 为啥有人是“国宴” 有人是大型翻车现场？【主播说三农】](http://www.play.hengshemaoyi.cn/xiju/2822041.htm)
+- [地级市市长转任县委书记](http://www.daogukj.com/cohiigft/)
+- [特朗普对一道中国菜念念不忘](http://www.daogukj.com/ugakwini/)
+- [神舟24发射圆满成功](http://www.movie.hkepx.cn/movie/1439223.htm)
+- [推理小说作者想剧透大结局，惨遭灭口？原著缺终章，续写意外揭开真相？《大理石厅谋杀案》下](http://www.daogukj.com/7461995)
+- [方言中有哪些不为人知的语言学冷知识？](http://www.daogukj.com/1580127)
+- [懂王钦点：皮衣男回到他忠诚的英伟达](http://www.movie.hkepx.cn/movie/5771230.htm)
+- [如何看待曾毓群说「因为宁德时代在撑着这个价钱，只要我们把价钱低下来，它（锂电行业）比光伏还惨」？](http://www.play.hengshemaoyi.cn/kongbu/3211994.htm)
+- [特朗普称黄仁勋是「国家瑰宝」，若在美遇不公可去中国，黄仁勋未来若来华可能有哪些选择？](http://www.daogukj.com/0519981)
+- [老师称裤子钻进老鼠捏住继续讲课](http://www.play.hengshemaoyi.cn/kongbu/8235424.htm)
+- [汤洪波飞天母亲岳母都穿红色衣服](http://www.play.hengshemaoyi.cn/kongbu/2855285.htm)
+- [两京十五日被吐槽是玄幻剧](http://www.movie.hkepx.cn/movie/5740018.htm)
+- [神舟二十四号发射成功](http://www.movie.hkepx.cn/movie/2758437.htm)
+- [男子在招待所被砍20刀身亡 女儿痛诉](http://www.play.hengshemaoyi.cn/kongbu/7663093.htm)
+- [天霸老板谈为什么换掉白小纯](http://www.daogukj.com/npdeovim/)
+- [男子在高铁上旁若无人地数现金](http://www.movie.hkepx.cn/movie/1182190.htm)
+- [天霸 体坛](http://www.movie.hkepx.cn/movie/6854973.htm)
+- [《雾山五行 · 封界大战》超前PV](http://www.movie.hkepx.cn/movie/9974523.htm)
+- [超级厄尔尼诺发威 暴雪袭击日本](http://www.play.hengshemaoyi.cn/kongbu/4772628.htm)
+- [大家都用 Deepseek Harness 了嘛，感受如何？](http://www.movie.hkepx.cn/movie/7480091.htm)
+- [神舟二十四号在天上“画”了条巨龙](http://www.daogukj.com/ljqtloli/)
+- [人才缺口超百万 新职业来了](http://www.movie.hkepx.cn/movie/1513585.htm)
+- [全国前10黄金矿工都匹配在一起了！](http://www.movie.hkepx.cn/xiju/5718367.htm)
+- [都别活了！复联团灭！漫威重启！《复联5：毁灭日》终极预告解析](http://www.movie.hkepx.cn/movie/6576281.htm)
+- [巴基斯坦航天员舱内笔下不停](http://www.play.hengshemaoyi.cn/kongbu/7311837.htm)
+- [黄仁勋「熹妃回宫」特朗普帮了多大的忙？对特朗普会有哪些好处？](http://www.play.hengshemaoyi.cn/xiju/9290584.htm)
+- [黄磊真空围裙](http://www.daogukj.com/7865447)
+- [如何看待 Anthropic 价格跌破发行价？](http://www.daogukj.com/7312066)
+- [义乌老板用AI接下不敢接的单](http://www.play.hengshemaoyi.cn/kongbu/1281085.htm)
+- [菩萨的心肠撒旦的表达能力](http://www.play.hengshemaoyi.cn/kongbu/1775013.htm)
+- [🐊“Bin哥，我一定会找到冠军皮肤的时间线的！”🐊](http://www.daogukj.com/0276387)
+- [荔枝的遭遇](http://www.movie.hkepx.cn/xiju/9277141.htm)
+- [神舟二十四号载人飞船发射取得圆满成功，中国空间站迎来首位外籍航天员，此次发射任务还有哪些看点？](http://www.movie.hkepx.cn/xiju/9995911.htm)
+- [这个草台班子的世界，比你想象的还要荒唐！](http://www.movie.hkepx.cn/xiju/4442165.htm)
+- [153分钟超长大合集！【末日来临，我从吃丧尸开始成神！】第1季+第2季完整版【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/0648093.htm)
+- [黄奕开月子会所三年盈利5万](http://www.daogukj.com/sowbdmby/)
+- [湖北文科状元自述相亲四次失败](http://www.daogukj.com/cfqiduxu/)
+- [高志凯称欧洲在人工智能发展中的作用几乎是零，这一观点是否站得住脚？](http://www.movie.hkepx.cn/xiju/4880279.htm)
+- [AI 短剧《丑狐》爆火后引发大量讨论，它能戳中观众的核心原因是什么？](http://www.play.hengshemaoyi.cn/xiju/4009878.htm)
+- [你从未见过的硬核开箱视频！](http://www.play.hengshemaoyi.cn/kongbu/3318753.htm)
+- [拯救“财神”黄仁勋！特朗普落地就出手，绿媒落井下石大翻车【两岸圆桌派】第54期 王骁×李翔×苏恒×翟翾](http://www.movie.hkepx.cn/movie/5360276.htm)
+- [Viper的新辅助是Duro](http://www.play.hengshemaoyi.cn/kongbu/6710776.htm)
+- [巴基斯坦航天界全程观看直播](http://www.movie.hkepx.cn/movie/8146575.htm)
+- [涉案金额超150亿元 舒某某被引渡回国](http://www.movie.hkepx.cn/xiju/8000972.htm)
+- [游戏自由度太高也不是什么好事](http://www.movie.hkepx.cn/xiju/2505032.htm)
+- [司机开智驾玩手机撞死救人者获刑](http://www.play.hengshemaoyi.cn/kongbu/8104767.htm)
+- [日本网友：高市别在世界舞台丢人现眼](http://www.daogukj.com/maldgqjz/)
+- [巴基斯坦航天界全程围观神24发射](http://www.daogukj.com/ulnghjws/)
+- [男子5年后维修才发现空调铜管变铝管](http://www.play.hengshemaoyi.cn/xiju/2958293.htm)
+- [期待神23神24天宫会餐](http://www.movie.hkepx.cn/movie/7753114.htm)
+- [演员好像忘记自己中箭了](http://www.play.hengshemaoyi.cn/xiju/2822041.htm)
 
 </details>
 
 ## 原始来源
 
-- [专家称年轻人持续出现变懒、变沉默等状态，可能并非「社恐」而是精神分裂症阴性症状，是真的吗？该怎样区分？](https://www.zhihu.com/question/2101452936345826488)
+- [🚢"泰坦鲁克号"🛳️](https://b23.tv/BV1R1yfzQEih)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c1776268e942260cc2cb -->
+<!-- content-fingerprint: 255b4c1ca136a3b1a3ba -->
