@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 俄空天军副总司令被捕
+# U17国足8-0斐济
 
-> 来源：百度热搜 · 排名：第 6 位 · 热度：7235191 · 更新：2026-11-26T23:06:04+08:00
+> 来源：百度热搜 · 排名：第 6 位 · 热度：7231838 · 分类：热 · 更新：2026-11-27T07:47:47+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“俄空天军副总司令被捕”位列第 6 位，公开热度指标为 7235191。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“U17国足8-0斐济”位列第 6 位，公开热度指标为 7231838，榜单分类为“热”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：据俄罗斯方面当地时间26日消息，莫斯科第235卫戍军事法院25日决定采取强制措施，逮捕俄空天军分管装备事务的副总司令尤里·格列霍夫。
+来源公开摘要显示：北京时间11月26日，U17世界杯小组赛末轮，U17国足8-0狂胜斐济U17，以小组第三的身份出线，晋级32强。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`百度热搜` `实时热搜` `热点资讯` `热`
 
 ## 相关热点
 
-- [武大教师曾某某被举报事件调查结果](san-gu-mao-lu.md)
-- [美媒为何关注中国8吨载重无人机](cao-mu-jie-bing.md)
+- [全球首个乙肝治愈新药中国获批](san-gu-mao-lu.md)
+- [75岁正部级蔡赴朝被开除党籍](cao-mu-jie-bing.md)
 - [厦航年利润7亿人民币，现在却突然订了74亿美元波音飞机，相当70 年利润，这笔账风险落在谁身上？](feng-sheng-he-li.md)
-- [他逃，他追，他插翅难飞？！](ru-huo-ru-tu.md)
+- [无果而终：COP31气候谈判失败，各国阴阳怪气剑拔弩张](ru-huo-ru-tu.md)
 
 ## 站内推荐
 
-- [政府机关、事业单位带头过紧日子](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [中国男篮80比82不敌沙特](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [周杰伦转发中国台北帖文绿媒破防](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [宝妈减重近100斤后撞脸王祖贤](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [两子非亲生女方回应被指出轨丈夫堂哥](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [国字号男足时隔21年世界杯出线](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [政府机关、事业单位带头过紧日子](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [董路谈U17国足8比0斐济](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [向太自曝弟弟妹妹相继烧炭离世](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [特朗普与民主党抽象乱斗](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [Angelababy雷霆高光](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
-- [哪个大学没名气但某领域顶尖](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
-- [王忠林被罢免全国人大代表职务](http://www.daogukj.com/hiiwohqb/)
-- [高市早苗获颁最佳着装奖遭群嘲](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
-- [中国男篮vs沙特男篮](http://www.daogukj.com/2806482)
-- [车卖疯了 钱去哪了](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
-- [彩票店中出774.1万大奖至今无人领奖](http://www.daogukj.com/9832220)
-- [女生在七门学科中拿下四科第一](http://www.movie.hkepx.cn/xiju/4624070.htm)
-- [《蓝色星原：旅谣》公测版本PV | 星跃始动](http://www.movie.hkepx.cn/movie/0841033.htm)
-- [许飞口碑](http://www.movie.hkepx.cn/movie/4609262.htm)
-- [75岁正部级蔡赴朝被开除党籍](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
-- [两京十五日纤夫说透天子守国门](http://www.daogukj.com/1127111)
-- [男篮世界杯预选赛：中国VS沙特](http://www.daogukj.com/pldvwggd/)
-- [城市轨道交通的万里版图](http://www.movie.hkepx.cn/xiju/1287269.htm)
-- [美媒为何关注中国8吨载重无人机](http://www.daogukj.com/unklghpc/)
-- [越南直播卖货太抽象了](http://www.daogukj.com/4404570)
-- [两子非亲生女方回应被指出轨丈夫堂哥](http://www.daogukj.com/wfqplasc/)
-- [你能绷到第几关](http://www.daogukj.com/grgritvr/)
-- [三只松鼠员工必须用鼠取名](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
-- [长得帅就要被网爆么?](http://www.movie.hkepx.cn/movie/3539496.htm)
-- [【三国杀周年庆前瞻】神奇黄豆年来袭！冥赵云首发！版本内容抢先看！](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
-- [神23航天员回家时间预计为凌晨时段](http://www.movie.hkepx.cn/xiju/3922759.htm)
-- [自信一点！你不是在追热点，是在创造热点！](http://www.daogukj.com/ynpujsgi/)
-- [欧盟落地混动进口临时配额，中国对应配额为 19.18 万辆，国内混动出口车企该如何应对这一限制？](http://www.movie.hkepx.cn/movie/2603972.htm)
-- [人民日报就当前供强需弱发声](http://www.daogukj.com/9238608)
-- [如何看待北大、清华在密云、通州新建校区而不落户雄安？](http://www.daogukj.com/xdtzeasn/)
+- [一期长达40年的vlog...](http://www.play.hengshemaoyi.cn/kongbu/4103764.htm)
+- [如何看待网警通报有人针对华为、鸿蒙、问界发布数百条不实评论，捏造“千亿营销”虚假信息被行政处罚？](http://www.play.hengshemaoyi.cn/xiju/4162063.htm)
+- [三只松鼠员工必须用鼠取名](http://www.daogukj.com/hiiwohqb/)
+- [153分钟超长大合集！【末日来临，我从吃丧尸开始成神！】第1季+第2季完整版【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/8090782.htm)
+- [U17国足8比0斐济](http://www.daogukj.com/2806482)
+- [可口可乐为何跟生产日期“杠上了”](http://www.play.hengshemaoyi.cn/xiju/1603953.htm)
+- [中纪委一天连打三虎](http://www.daogukj.com/9832220)
+- [郭士强 换人](http://www.movie.hkepx.cn/xiju/4624070.htm)
+- [“MJ宇宙之最正能量的一集”](http://www.movie.hkepx.cn/movie/0841033.htm)
+- [算了吧许飞别爱了](http://www.movie.hkepx.cn/movie/4609262.htm)
+- [宝宝等投喂勺子靠近瞬间嘴巴张最大](http://www.play.hengshemaoyi.cn/xiju/3517768.htm)
+- [业主搜索发现有 WiFi 名诅咒自家 8 岁孩子，怀疑是楼下邻居所为，该如何合法维权？](http://www.daogukj.com/1127111)
+- [董明珠回应不招留学生争议](http://www.daogukj.com/pldvwggd/)
+- [从5到24看载人航天之路](http://www.movie.hkepx.cn/xiju/1287269.htm)
+- [75岁正部级蔡赴朝被开除党籍](http://www.daogukj.com/unklghpc/)
+- [企业学习胖东来员工涨薪45%](http://www.daogukj.com/4404570)
+- [特朗普与民主党抽象乱斗](http://www.daogukj.com/wfqplasc/)
+- [他逃，他追，他插翅难飞？！](http://www.daogukj.com/grgritvr/)
+- [重庆小升初有内部选拔？不实](http://www.play.hengshemaoyi.cn/xiju/5771532.htm)
+- [《不小心捡了只猫咪》](http://www.movie.hkepx.cn/movie/3539496.htm)
+- [《后会友期》让许飞厉娜对质，却始终没厘清消息传递的关键环节，节目为何回避传话人的身份？传话人可能是谁？](http://www.play.hengshemaoyi.cn/kongbu/3079129.htm)
+- [全球首个乙肝功能性治愈新药中国获批](http://www.movie.hkepx.cn/xiju/3922759.htm)
+- [立陶宛敦促台当局认错](http://www.daogukj.com/ynpujsgi/)
+- [老人晚年幸福靠这些条件](http://www.movie.hkepx.cn/movie/2603972.htm)
+- [两子非亲生女方回应被指出轨丈夫堂哥](http://www.daogukj.com/9238608)
+- [斗鱼及陈少杰被执行超 1.9 亿，从巅峰到接连踩雷，斗鱼这些年衰落的核心原因是什么？](http://www.daogukj.com/xdtzeasn/)
 - [从世界经济版图看中国经济之韧](http://www.daogukj.com/2229169)
-- [男篮世预赛，中国男篮80-82 不敌沙特阿拉伯男篮，出线形式堪忧，如何评价本场比赛？](http://www.daogukj.com/pnnlzznp/)
+- [金价继续下跌 消费者购金热情高涨](http://www.daogukj.com/pnnlzznp/)
 - [两地通报女教授介入已婚副校长家庭事件，安大副校长付某、武大曾某某被免职，有哪些值得关注的信息？](http://www.movie.hkepx.cn/movie/1141317.htm)
-- [如何看待黎曼猜想证明已被压缩 99.5% 到 7.6 万行？](http://www.daogukj.com/3669738)
+- [U17世界杯男足小组赛，中国U17男足 8-0 斐济U17男足，如何评价本场比赛？](http://www.daogukj.com/3669738)
 - [一组数据看世界屋脊上的中国速度](http://www.play.hengshemaoyi.cn/xiju/2376292.htm)
-- [重庆小升初有内部选拔？不实](http://www.movie.hkepx.cn/xiju/8333303.htm)
-- [他逃，他追，他插翅难飞？！](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
-- [郑州胖东来还没开业周边商户已抢租](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
-- [三只松鼠致歉声明](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
-- [中国男篮80比82不敌沙特](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
-- [人才缺口超百万！又一批新职业来了](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
-- [湖北一网民微信群内造谣被处罚](http://www.movie.hkepx.cn/movie/7218961.htm)
-- [【镇魂街 第五季】你们带来的这片江山，我就先收下了【PV】](http://www.movie.hkepx.cn/xiju/0034458.htm)
-- [白小纯厉娜都拿不出证据](http://www.movie.hkepx.cn/movie/1373526.htm)
-- [安大副校长付某被免职](http://www.movie.hkepx.cn/movie/8174344.htm)
-- [董明珠回应不招留学生争议](http://www.movie.hkepx.cn/xiju/7049500.htm)
-- [中纪委连打三“虎”](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
-- [董明珠：某些车企就是瞎搞 该灭就灭](http://www.daogukj.com/1670030)
-- [网友爆料小米YU7车型前视摄像头集中故障，行车录像无法录制，前向防碰撞失效，是批次质量问题吗？](http://www.daogukj.com/4917906)
-- [吴 众](http://www.daogukj.com/jjbeajdp/)
-- [神23回地球](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
-- [中国六座城市跻身世界一线](http://www.daogukj.com/2644309)
-- [专家：黄仁勋复出风波还没结束](http://www.daogukj.com/2520362)
-- [向太自曝弟弟妹妹相继烧炭离世](http://www.daogukj.com/4354347)
+- [曝梁文锋身家攀升至 550 亿美元，成全球最富 AI 模型创始人，是真的吗？意味着什么？](http://www.movie.hkepx.cn/xiju/8333303.htm)
+- [无果而终：COP31气候谈判失败，各国阴阳怪气剑拔弩张](http://www.play.hengshemaoyi.cn/kongbu/1768746.htm)
+- [大肥鱼你真的是串麻了](http://www.play.hengshemaoyi.cn/kongbu/6639276.htm)
+- [东北老丈人搭大炕全村围观](http://www.play.hengshemaoyi.cn/xiju/1265931.htm)
+- [政府机关、事业单位带头过紧日子](http://www.play.hengshemaoyi.cn/xiju/9251918.htm)
+- [《复仇者联盟 5》首个幕后特辑小罗伯特·唐尼出镜，从钢铁侠到毁灭博士，漫威为何一直押宝RDJ？](http://www.play.hengshemaoyi.cn/kongbu/7439264.htm)
+- [怀孕本质是你一个人的事](http://www.movie.hkepx.cn/movie/7218961.htm)
+- [湖北一网民微信群内造谣被处罚](http://www.movie.hkepx.cn/xiju/0034458.htm)
+- [系统bug强制让我挂机，但这反而让我变的更强了！](http://www.movie.hkepx.cn/movie/1373526.htm)
+- [上海百亿养老集资骗局股东潜逃海外](http://www.movie.hkepx.cn/movie/8174344.htm)
+- [列车字头12个字母对应不同时速](http://www.movie.hkepx.cn/xiju/7049500.htm)
+- [新郎发言落泪 新娘大喊不要哭冷死了](http://www.play.hengshemaoyi.cn/kongbu/5673936.htm)
+- [三只松鼠致歉](http://www.daogukj.com/1670030)
+- [斯坦福学者与 AI 提出引力理论与量子力学统一的新理论，如何理解该事件？](http://www.daogukj.com/4917906)
+- [刘亦菲黑色短裙造型](http://www.daogukj.com/jjbeajdp/)
+- [赵松源回应多方外媒关注](http://www.play.hengshemaoyi.cn/xiju/7553203.htm)
+- [罕见回暖！这些地方有望穿回短袖](http://www.daogukj.com/2644309)
+- [哪个大学没名气但某领域顶尖](http://www.daogukj.com/2520362)
+- [魏建军直言很多车企靠国家补贴生存，拿到的补贴比车企盈利还多，该说法有依据吗？](http://www.daogukj.com/4354347)
 
 </details>
 
 ## 原始来源
 
-- [俄空天军副总司令被捕](https://www.baidu.com/s?wd=%E4%BF%84%E7%A9%BA%E5%A4%A9%E5%86%9B%E5%89%AF%E6%80%BB%E5%8F%B8%E4%BB%A4%E8%A2%AB%E6%8D%95&sa=fyb_news&rsv_dl=fyb_news)
+- [U17国足8-0斐济](https://www.baidu.com/s?wd=U17%E5%9B%BD%E8%B6%B38-0%E6%96%90%E6%B5%8E&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4d7cc4c9fb4ce2618d09 -->
+<!-- content-fingerprint: d911fe96674193a44a39 -->
