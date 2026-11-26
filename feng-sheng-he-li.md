@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 央视曝光3.8万余份孕妇血走私案，国安部警示孕妇血样走私或泄露我国遗传弱点，科学依据和风险具体是什么？
+# 厦航年利润7亿人民币，现在却突然订了74亿美元波音飞机，相当70 年利润，这笔账风险落在谁身上？
 
-> 来源：知乎热榜 · 排名：第 7 位 · 热度：210 万热度 · 分类：问答 · 更新：2026-11-26T13:03:18+08:00
+> 来源：知乎热榜 · 排名：第 7 位 · 热度：219 万热度 · 分类：问答 · 更新：2026-11-26T23:06:04+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“央视曝光3.8万余份孕妇血走私案，国安部警示孕妇血样走私或泄露我国遗传弱点，科学依据和风险具体是什么？”位列第 7 位，公开热度指标为 210 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“厦航年利润7亿人民币，现在却突然订了74亿美元波音飞机，相当70 年利润，这笔账风险落在谁身上？”位列第 7 位，公开热度指标为 219 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：孕妇血样承载着人类遗传基因关键信息，属国家严格限制进出口物品。然而，有人置法治红线于不顾，大量走私孕妇血样出境，直接威胁十四亿人口的生物安全。 11月25日，央视新闻披露，深圳海关缉私局2025年3月接到线索称，一辆白色车疑载大量孕妇血样，拟从深圳湾口岸出境用于非法胎儿性别鉴定。 经查，该车后备箱一只后装车载音响内，藏有527管密封血样，每管均附有境外检测机构的胎儿性别鉴定申请单。 从口岸现场截获这批血样开始，专案组历时近一年持续深挖，逐步摸清这个跨多省的地下网络，时机成熟后决定开展集中收网。2026年1月，深圳海关缉私局联合广州、江门、厦门等地缉私局出
+来源公开摘要显示：厦航2025年7.79亿元，现在突然订购50架波音737-8，目录价74亿美元，相当于以后70年全部利润 1. 全部交付后年折旧额估算高达12亿-19亿人民币，直接是当前净利润的2倍多。这还没算贷款利息和运营成本。 2. 目前厦航有息负债已达约307亿元，2022—2024年筹资现金流净额均为负，处于持续净还债状态。在利润薄、旧债未清时，再添几百亿购机融资，风险谁买单？ 3. 大笔投资买波音飞机的利润增长计划有数字吗？ 公告只有“转场机遇、完善网络”，无增量收入、利润、回收期测算。最终谁买单？ 是不是经营现金流加银行债权人，股东和国有资本兜底？厦航拟购买
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [吴 众](ru-huo-ru-tu.md)
-- [电影贺岁档片单来了](yi-gu-zuo-qi.md)
-- [蔡磊融资失败妻子放弃事业全职直播](yi-zi-qian-jin.md)
-- [巴铁航天员进中国空间站意味着什么](yi-fan-feng-shun.md)
+- [他逃，他追，他插翅难飞？！](ru-huo-ru-tu.md)
+- [周琦肘击对手被驱逐](yi-gu-zuo-qi.md)
+- [安大副校长付某被免职](yi-zi-qian-jin.md)
+- [董明珠回应不招留学生争议](yi-fan-feng-shun.md)
 
 ## 站内推荐
 
-- [如何看待美国陆军在爱荷华州就地受控引爆约 5 吨劣化叠氮化铅？这对人和环境的影响有多大？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [如何评价数学家Calegari认为黎曼猜想的证明过程只是从图书馆的书架上拿下来了一本书？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [【动画】可爱的猫尾草(3)](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [人民日报评“小学生只上半天学”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [初三男生被清华大学“预定”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [如何看待黎曼猜想证明已被压缩 99.5% 到 7.6 万行？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [业主搜索发现有 WiFi 名诅咒自家 8 岁孩子，怀疑是楼下邻居所为，该如何合法维权？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [魏建军直言很多车企靠国家补贴生存，拿到的补贴比车企盈利还多，该说法有依据吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [如何看待网警通报有人针对华为、鸿蒙、问界发布数百条不实评论，捏造“千亿营销”虚假信息被行政处罚？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [男篮世预赛，中国男篮80-82 不敌沙特阿拉伯男篮，出线形式堪忧，如何评价本场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [自信一点！你不是在追热点，是在创造热点！](http://www.play.hengshemaoyi.cn/xiju/6111090.htm)
-- [蔡磊已进入渐冻症终末期](http://www.daogukj.com/edzpadjo/)
-- [老戏骨田淼说徐若晗演戏不用心](http://www.movie.hkepx.cn/xiju/6105250.htm)
-- [怎么看 Anthropic 最新发现，直接研究大模型神经元更有价值，这会改变 AI 可解释性方向吗？](http://www.play.hengshemaoyi.cn/kongbu/1070558.htm)
-- [西游记里沙僧到底是什么动物？](http://www.play.hengshemaoyi.cn/kongbu/7084010.htm)
-- [各 地 人 刻 板 印 象：](http://www.play.hengshemaoyi.cn/kongbu/6978620.htm)
-- [西（部）游记 5](http://www.daogukj.com/ydopnvwq/)
-- [你没见过的豆豆父女](http://www.daogukj.com/ikvvgoqn/)
-- [我的姐妹叫阿虫](http://www.play.hengshemaoyi.cn/xiju/4780278.htm)
-- [如果有个超级大型的氪金网游，能不能解决一大部分人就业问题？](http://www.play.hengshemaoyi.cn/kongbu/1667187.htm)
-- [【仙剑奇侠传四】青鸾风起，共赴人间【动画PV】](http://www.daogukj.com/ruryuczo/)
-- [吴 众](http://www.play.hengshemaoyi.cn/xiju/2905183.htm)
-- [男子刚见义勇为高速救人，随后被一辅助巡航汽车撞后离世，肇事司机获刑1年9个月，如何解读这一判决？](http://www.play.hengshemaoyi.cn/xiju/5729760.htm)
-- [下课都不让说方言 还何谈留住乡愁](http://www.play.hengshemaoyi.cn/kongbu/8964859.htm)
-- [去了一趟纽约。](http://www.movie.hkepx.cn/xiju/2546414.htm)
-- [郭涛儿子回应进圈：想子承父业](http://www.movie.hkepx.cn/movie/4824208.htm)
-- [人民日报评“遇事就举报”](http://www.daogukj.com/9789170)
-- [“天津滨海新区试点免中考升学”不实](http://www.play.hengshemaoyi.cn/xiju/2235964.htm)
-- [【动画】可爱的猫尾草(3)](http://www.play.hengshemaoyi.cn/kongbu/0944708.htm)
-- [我 只 在 乎 你](http://www.daogukj.com/1702919)
-- [詹姆斯刷新最老三双纪录](http://www.movie.hkepx.cn/xiju/7626642.htm)
-- [王子璇文吉儿镜头](http://www.play.hengshemaoyi.cn/xiju/6504158.htm)
-- [“女版马尔福”爆火 华纳出手封禁](http://www.play.hengshemaoyi.cn/kongbu/0276729.htm)
-- [你是否支持在长途普速火车末尾加挂一节观景娱乐车厢用来缓解长时间坐车的疲劳？](http://www.play.hengshemaoyi.cn/xiju/8604336.htm)
-- [还我蒋欣脸颊肉](http://www.play.hengshemaoyi.cn/xiju/9791973.htm)
-- [律师谈梓渝隐私泄露者视频道歉](http://www.movie.hkepx.cn/movie/0865243.htm)
-- [呼和浩特盛乐国际机场正式通航](http://www.daogukj.com/2187991)
-- [如果一个月给你8000，但办公室永远只有你一个人，连说话的人都没有，你能坚持多久？](http://www.daogukj.com/awimddvt/)
-- [网友抵制王玉雯代言皮草](http://www.movie.hkepx.cn/xiju/8479317.htm)
-- [海军披露珠海航展阵容，现役主战舰艇、航母五件套、无人化装备等集中亮相，体现出我军怎样的作战体系与实力？](http://www.daogukj.com/8710264)
-- [普京会见托卡耶夫](http://www.movie.hkepx.cn/xiju/7852987.htm)
-- [国产可口可乐不再标生产日期，客服称新国标允许保质期 6 个月以上可只标「到期日」，怎样看待这一变化？](http://www.daogukj.com/9527639)
-- [安踏](http://www.movie.hkepx.cn/xiju/5317341.htm)
-- [男子花700万买房搜到诅咒孩子WiFi名](http://www.daogukj.com/rfjzvnft/)
-- [徐若晗方声明](http://www.play.hengshemaoyi.cn/kongbu/0835531.htm)
-- [于东来：郑州门店广场500万做雕塑](http://www.play.hengshemaoyi.cn/kongbu/5783653.htm)
-- [小学生流行起“纸质短剧”](http://www.movie.hkepx.cn/movie/2541017.htm)
-- [天下第一财神庙重新开放](http://www.daogukj.com/tdbkadsz/)
-- [外交部回应美国被曝将对中国等十几国加征关税，称反对以产能过剩为借口政治操弄，如何解读？美国到底图什么？](http://www.movie.hkepx.cn/movie/8640580.htm)
-- [多家机器人公司进入破产清算，两年近30家机器人公司倒闭，机器人赛道融资火热，为什么还会出现企业倒闭潮？](http://www.daogukj.com/5453849)
-- [妻子与蔡磊见面全程没说话](http://www.play.hengshemaoyi.cn/xiju/3894345.htm)
-- [第三代唐EV售价比预售价便宜近4万元](http://www.daogukj.com/hayaidza/)
-- [普京打包深圳炒菜上飞机](http://www.daogukj.com/ppbihxts/)
-- [新一代通信网建设实施方案来了](http://www.play.hengshemaoyi.cn/kongbu/7747218.htm)
-- [胡海泉辟谣炒股亏近1个亿](http://www.daogukj.com/8988221)
-- [梁文锋的人生简直是开挂了](http://www.play.hengshemaoyi.cn/xiju/0659400.htm)
-- [《狩》首曝PV&实机演示丨动作要秀，有狩就行！](http://www.movie.hkepx.cn/xiju/3713545.htm)
-- [神舟二十四号任务有哪些新看点](http://www.play.hengshemaoyi.cn/xiju/1948140.htm)
-- [陈吉宁落马5天前曾现身](http://www.movie.hkepx.cn/xiju/3130950.htm)
-- [【镇魂街 第五季】你们带来的这片江山，我就先收下了【PV】](http://www.movie.hkepx.cn/movie/0216360.htm)
+- [神23回地球](http://www.play.hengshemaoyi.cn/xiju/6111090.htm)
+- [董明珠：汽车产业害虫该灭就灭](http://www.daogukj.com/edzpadjo/)
+- [「画地为牢」正片播出，厉娜称许飞影响了自己的发展，和许飞沟通非常困难，她们之间的沟通到底有什么问题？](http://www.movie.hkepx.cn/xiju/6105250.htm)
+- [马斯克在深圳住的竟是蜜月房](http://www.play.hengshemaoyi.cn/kongbu/1070558.htm)
+- [全球首个乙肝功能性治愈新药中国获批](http://www.play.hengshemaoyi.cn/kongbu/7084010.htm)
+- [《我怎么又穿越了》](http://www.play.hengshemaoyi.cn/kongbu/6978620.htm)
+- [天津.赵大姑 厨子探店¥350](http://www.daogukj.com/ydopnvwq/)
+- [高市早苗获颁最佳着装奖遭群嘲](http://www.daogukj.com/ikvvgoqn/)
+- [曝梁文锋身家攀升至 550 亿美元，成全球最富 AI 模型创始人，是真的吗？意味着什么？](http://www.play.hengshemaoyi.cn/xiju/4780278.htm)
+- [支付宝加入华为乾崑生态](http://www.play.hengshemaoyi.cn/kongbu/1667187.htm)
+- [女生在七门学科中拿下四科第一](http://www.daogukj.com/ruryuczo/)
+- [他逃，他追，他插翅难飞？！](http://www.play.hengshemaoyi.cn/xiju/2905183.htm)
+- [白小纯厉娜都拿不出证据](http://www.play.hengshemaoyi.cn/xiju/5729760.htm)
+- [马天宇愿分一部分遗产给一位挚友](http://www.play.hengshemaoyi.cn/kongbu/8964859.htm)
+- [长得帅就要被网爆么?](http://www.movie.hkepx.cn/xiju/2546414.htm)
+- [董明珠：某些车企就是瞎搞 该灭就灭](http://www.movie.hkepx.cn/movie/4824208.htm)
+- [政府机关、事业单位带头过紧日子](http://www.daogukj.com/9789170)
+- [三只松鼠员工必须用鼠取名](http://www.play.hengshemaoyi.cn/xiju/2235964.htm)
+- [魏建军直言很多车企靠国家补贴生存，拿到的补贴比车企盈利还多，该说法有依据吗？](http://www.play.hengshemaoyi.cn/kongbu/0944708.htm)
+- [专家：黄仁勋复出风波还没结束](http://www.daogukj.com/1702919)
+- [如果一个月给你8000，但办公室永远只有你一个人，连说话的人都没有，你能坚持多久？](http://www.movie.hkepx.cn/xiju/7626642.htm)
+- [黄仁勋将于12月3日出席美国参议院听证会，证人名单上只有他一人，如何解读？](http://www.play.hengshemaoyi.cn/xiju/6504158.htm)
+- [车卖疯了 钱去哪了](http://www.play.hengshemaoyi.cn/kongbu/0276729.htm)
+- [如何评价《中华小当家》里小当家把朝天椒、蒜蓉和豆瓣酱加到通心粉里，并做成饺子，落败被盘古处决的剧情？](http://www.play.hengshemaoyi.cn/xiju/8604336.htm)
+- [市民花 750 元为空调移机，5 年后拆机才发现铜管被换成铝管，铜管和铝管有啥不同？还能维权吗？](http://www.play.hengshemaoyi.cn/xiju/9791973.htm)
+- [特朗普与民主党抽象乱斗](http://www.movie.hkepx.cn/movie/0865243.htm)
+- [神23航天员回家时间预计为凌晨时段](http://www.daogukj.com/2187991)
+- [越南直播卖货太抽象了](http://www.daogukj.com/awimddvt/)
+- [王忠林被罢免全国人大代表职务](http://www.movie.hkepx.cn/xiju/8479317.htm)
+- [重庆小升初有内部选拔？不实](http://www.daogukj.com/8710264)
+- [张亚飞曝厉娜录后会友期前很忐忑](http://www.movie.hkepx.cn/xiju/7852987.htm)
+- [网友爆料小米YU7车型前视摄像头集中故障，行车录像无法录制，前向防碰撞失效，是批次质量问题吗？](http://www.daogukj.com/9527639)
+- [湖北一网民微信群内造谣被处罚](http://www.movie.hkepx.cn/xiju/5317341.htm)
+- [武大教师曾某某被举报事件调查结果](http://www.daogukj.com/rfjzvnft/)
+- [我砸了理想的“车”，结果居然……](http://www.play.hengshemaoyi.cn/kongbu/0835531.htm)
+- [《不小心捡了只猫咪》](http://www.play.hengshemaoyi.cn/kongbu/5783653.htm)
+- [中国男篮80比82不敌沙特](http://www.movie.hkepx.cn/movie/2541017.htm)
+- [美媒为何关注中国8吨载重无人机](http://www.daogukj.com/tdbkadsz/)
+- [如何看待北大、清华在密云、通州新建校区而不落户雄安？](http://www.movie.hkepx.cn/movie/8640580.htm)
+- [两地通报女教授介入已婚副校长家庭事件，安大副校长付某、武大曾某某被免职，有哪些值得关注的信息？](http://www.daogukj.com/5453849)
+- [中国六座城市跻身世界一线](http://www.play.hengshemaoyi.cn/xiju/3894345.htm)
+- [华为长鑫硬刚三星SK海力士](http://www.daogukj.com/hayaidza/)
+- [花花独狼吃鸡](http://www.daogukj.com/ppbihxts/)
+- [城市轨道交通的万里版图](http://www.play.hengshemaoyi.cn/kongbu/7747218.htm)
+- [手刃身边人](http://www.daogukj.com/8988221)
+- [赵松源对阵摩洛哥 U17 梅开二度被外国网友称「中国哈兰德」，他的实力匹配这个称号吗？](http://www.play.hengshemaoyi.cn/xiju/0659400.htm)
+- [郑州胖东来还没开业周边商户已抢租](http://www.movie.hkepx.cn/xiju/3713545.htm)
+- [一组数据看世界屋脊上的中国速度](http://www.play.hengshemaoyi.cn/xiju/1948140.htm)
+- [遭举报的武大女教授已被免职](http://www.movie.hkepx.cn/xiju/3130950.htm)
+- [《英雄联盟电竞经理》宣布将于 27 年 1 月份停服，如何评价这款游戏的运营历程？](http://www.movie.hkepx.cn/movie/0216360.htm)
 
 </details>
 
 ## 原始来源
 
-- [央视曝光3.8万余份孕妇血走私案，国安部警示孕妇血样走私或泄露我国遗传弱点，科学依据和风险具体是什么？](https://www.zhihu.com/question/2109003777294295114)
+- [厦航年利润7亿人民币，现在却突然订了74亿美元波音飞机，相当70 年利润，这笔账风险落在谁身上？](https://www.zhihu.com/question/2108699823377589259)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 12a3936fb5114be4694a -->
+<!-- content-fingerprint: e0f32073e5e40ac0964e -->
