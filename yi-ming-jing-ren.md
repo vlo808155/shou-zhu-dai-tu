@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 长得帅就要被网爆么?
+# 如何看待蔡磊进入渐冻症终末期，其妻子称上次与蔡磊见面全程没有说话而是一直在哭？
 
-> 来源：哔哩哔哩热门 · 排名：第 8 位 · 热度：1555951 · 分类：搞笑 · 更新：2026-11-27T13:25:45+08:00
+> 来源：知乎热榜 · 排名：第 8 位 · 热度：267 万热度 · 分类：问答 · 更新：2026-11-27T23:28:20+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“长得帅就要被网爆么?”位列第 8 位，公开热度指标为 1555951，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待蔡磊进入渐冻症终末期，其妻子称上次与蔡磊见面全程没有说话而是一直在哭？”位列第 8 位，公开热度指标为 267 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：虽然我还没有因为长得帅就被网暴，但我觉得离那天不远了
+来源公开摘要显示：蔡磊已进入渐冻症终末期，其妻子称没办法接受他现在这样，更没办法接受人生和家庭就这样了，其上次与蔡磊见面全程没有说话，“一直在哭，根本就控制不住”（编辑：晓晓）蔡磊已进入渐冻症终末期，妻子段睿发声：没办法接受他现在这样，上一次见他，全程都没有和他说一句话，一直在哭
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [创业板指涨逾7% 科创50涨近10%](yi-jian-shuang-diao.md)
-- [A股又爆发](shou-zhu-dai-tu.md)
-- [三只松鼠就员工宿舍脏乱差致歉](wang-mei-zhi-ke.md)
-- [沈阳最帅保洁大叔宣布辞职，如何评价他的选择？他接下来可能会去干什么？](wen-ji-qi-wu.md)
+- [宠老头早午餐vlog有点高能量了](yi-jian-shuang-diao.md)
+- [个人认购大额存单起点调整为10万元](shou-zhu-dai-tu.md)
+- [曾经大胃王如今吃一口都奢侈](wang-mei-zhi-ke.md)
+- [武契奇称一旦绝食将不接受救治](wen-ji-qi-wu.md)
 
 ## 站内推荐
 
-- [巴基斯坦航天员随神舟二十四号进驻天宫，是否预示着美国、日本或者其他国家航天员今后可能也可以？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [没有门的院子，住了位身世离奇但很勤快的少年！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [【欢迎来龙餐馆】起锅开灶，好好吃饭](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [中国男篮不会打不了世界杯吧](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [“外卖界拼多多”来了吗](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [商务部开新闻发布会称机关单位带头过紧日子，透露了什么信号？可能有哪些影响？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [如何看待有人质疑老款问界M9使用圆线电机引发高价低配争议？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [狮子并非中国的产物，为何石狮子却成了中国的守门神？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [《白银之城》世界观PV | 童话的起笔](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [重磅！人民币存贷款利率管理规定发布](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [赖冠霖一下就get到了赵昭仪的愤怒](http://www.daogukj.com/fudrdubx/)
-- [沈阳最帅保洁大叔宣布辞职，如何评价他的选择？他接下来可能会去干什么？](http://www.daogukj.com/jnybznkv/)
-- [吓哭了！华山长空栈道是人爬的？和有山挑战天下第一奇险](http://www.daogukj.com/4844384)
-- [《明日方舟》SideStory「星星不愿入睡」活动宣传PV](http://www.daogukj.com/sgrsjaxr/)
-- [何 以 当 归 2](http://www.play.hengshemaoyi.cn/xiju/2709685.htm)
-- [特朗普：美国不需要中东石油](http://www.daogukj.com/2157977)
-- [清华北大等名校向师生发放 Token 额度，这会是新趋势吗？该如何引导学生合理使用这类资源？](http://www.play.hengshemaoyi.cn/kongbu/7420321.htm)
-- [赵昭仪曝当众被导演开黄腔](http://www.movie.hkepx.cn/xiju/8620011.htm)
-- [A股又爆发](http://www.play.hengshemaoyi.cn/kongbu/8118071.htm)
-- [许多年轻人为何开始“重新养父母”](http://www.daogukj.com/ybylltrh/)
-- [吴 众](http://www.play.hengshemaoyi.cn/xiju/7207629.htm)
-- [“MJ宇宙之最正能量的一集”](http://www.play.hengshemaoyi.cn/xiju/8320007.htm)
-- [东风着陆场准备迎接中外航天员返回](http://www.play.hengshemaoyi.cn/kongbu/8567673.htm)
-- [如何看待那些工作能力一般，却特别会向上管理的同事？](http://www.movie.hkepx.cn/xiju/6034585.htm)
-- [睡虎地秦简中记录了大量基层小吏的日常工作，先秦普通官吏的一天，到底和我们想象中有多大差距？](http://www.movie.hkepx.cn/xiju/6364290.htm)
-- [曝Viper拒绝BLG续约邀请](http://www.movie.hkepx.cn/xiju/0846089.htm)
-- [赵昭仪曝被导演开黄腔](http://www.daogukj.com/1651835)
-- [“电视回来了”观众才能回来](http://www.daogukj.com/amghneqm/)
-- [为什么植物大战僵尸现在还受欢迎，而愤怒的小鸟却很少有人玩了？](http://www.movie.hkepx.cn/xiju/4371729.htm)
-- [马天宇加回张萌微信](http://www.daogukj.com/gzlhbupb/)
-- [A股大科技“奇迹日”](http://www.daogukj.com/dhxrjyno/)
-- [老鼠钻女老师裤子视频不能一删了之](http://www.play.hengshemaoyi.cn/kongbu/0642618.htm)
-- [创业板指涨逾7%](http://www.play.hengshemaoyi.cn/xiju/9001524.htm)
-- [中国男篮不会打不了世界杯吧](http://www.movie.hkepx.cn/xiju/9522798.htm)
-- [冰箱里的肉千万别再泡水化冻了](http://www.play.hengshemaoyi.cn/xiju/7270146.htm)
-- [《绝区零》挽昼动画短片 | 最后的旅途](http://www.movie.hkepx.cn/xiju/6713581.htm)
-- [海康威视取消大小周遭员工抵制](http://www.movie.hkepx.cn/xiju/1107922.htm)
-- [国防部：敦促日方立即停止挑衅玩火](http://www.play.hengshemaoyi.cn/kongbu/1709616.htm)
-- [被大疆竞业范围震撼到了](http://www.daogukj.com/1746327)
-- [斗鱼及陈少杰被执行超 1.9 亿，从巅峰到接连踩雷，斗鱼这些年衰落的核心原因是什么？](http://www.movie.hkepx.cn/xiju/9443648.htm)
-- [三只松鼠就「员工宿舍环境脏乱差」致歉，称立即进行转移安置，怎样看待这一回应？员工权益该如何保障？](http://www.movie.hkepx.cn/movie/6311095.htm)
-- [厉娜被抵制](http://www.play.hengshemaoyi.cn/xiju/1238840.htm)
-- [东北人好像比别的地方更痴迷于始祖鸟、可隆、迪桑特这些高价低性价比运动服饰，为什么会这样？](http://www.daogukj.com/5649815)
-- [求职季 这些风险要避开](http://www.movie.hkepx.cn/movie/6082292.htm)
-- [今起电视开机广告没了](http://www.daogukj.com/7096702)
-- [没有门的院子，住了位身世离奇但很勤快的少年！](http://www.movie.hkepx.cn/xiju/6645727.htm)
-- [创业板指涨逾7% 科创50涨近10%](http://www.play.hengshemaoyi.cn/xiju/6625835.htm)
-- [如何评价《fx战士久留美》第九集？](http://www.daogukj.com/qkznereg/)
-- [女子称因年龄超40岁被酒店拒绝入住](http://www.movie.hkepx.cn/xiju/8695048.htm)
-- [如何看待高校校园 App 泛滥现象？智慧校园为何反而成了学生的手机负担？](http://www.play.hengshemaoyi.cn/xiju/6994271.htm)
-- [中国最大饺子IPO来了](http://www.play.hengshemaoyi.cn/kongbu/9150882.htm)
-- [高市早苗获颁最佳着装奖遭群嘲](http://www.movie.hkepx.cn/xiju/4430995.htm)
-- [直20T重磅首秀](http://www.play.hengshemaoyi.cn/xiju/0984127.htm)
-- [女子因超40岁被酒店拒办入住](http://www.play.hengshemaoyi.cn/kongbu/0936148.htm)
-- [千问贴脸劝许飞别再画地为牢](http://www.movie.hkepx.cn/xiju/8400822.htm)
-- [国常会“稳市” AH股集体飙升](http://www.daogukj.com/ogibyscz/)
-- [怎么看SemiAnalysis说，存储芯片吃掉了中国Q3 6.9%的GDP增量，如果降价相当于退税？](http://www.daogukj.com/1532292)
-- [杨毅：男篮最后3分钟操作太拙劣了](http://www.movie.hkepx.cn/xiju/9678115.htm)
-- [董明珠回应不招留学生争议](http://www.movie.hkepx.cn/movie/0181516.htm)
-- [胡歌刘涛新剧吻戏路透](http://www.movie.hkepx.cn/movie/7964895.htm)
+- [这部差点没拍成的剧 一出场就是王炸](http://www.daogukj.com/fudrdubx/)
+- [武契奇称一旦绝食将不接受救治](http://www.daogukj.com/jnybznkv/)
+- [如何评价懂车帝最新回应“尊界 V800 刹车踏板支架断裂”事件：公司内部仍在等待相关结果？](http://www.daogukj.com/4844384)
+- [《下一个是谁》第七季（6）](http://www.daogukj.com/sgrsjaxr/)
+- [是水，在撩拨心弦——伊莫S2赛季「鸣海拾音」12月10日正式开启](http://www.play.hengshemaoyi.cn/xiju/2709685.htm)
+- [赖冠霖对赵昭仪说自己剧组随便坐](http://www.daogukj.com/2157977)
+- [三只松鼠就「员工宿舍环境脏乱差」致歉，称立即进行转移安置，怎样看待这一回应？员工权益该如何保障？](http://www.play.hengshemaoyi.cn/kongbu/7420321.htm)
+- [如何看待韩媒爆料，韩国国税厅将向LPL韩援李某（疑似Tarzan）征收35亿韩元综合所得税？](http://www.movie.hkepx.cn/xiju/8620011.htm)
+- [个人认购大额存单起点调整为10万元](http://www.play.hengshemaoyi.cn/kongbu/8118071.htm)
+- [我讨厌我的子宫、我的月经和我的胸，讨厌一切女性特质，但没钱做手术，只能靠cosplay来填补内心](http://www.daogukj.com/ybylltrh/)
+- [顺直大改造S2EP2——顺直男和通讯录的恩怨情仇](http://www.play.hengshemaoyi.cn/xiju/7207629.htm)
+- [何 以 当 归 2](http://www.play.hengshemaoyi.cn/xiju/8320007.htm)
+- [第一次听说吃雪蛤直接抵制](http://www.play.hengshemaoyi.cn/kongbu/8567673.htm)
+- [为什么猫的颜色最多只有三种?](http://www.movie.hkepx.cn/xiju/6034585.htm)
+- [红军烈士后人终于找到先辈安息之所](http://www.movie.hkepx.cn/xiju/6364290.htm)
+- [“天才少女”傅园慧悄悄上岸了](http://www.movie.hkepx.cn/xiju/0846089.htm)
+- [【三角洲全角色/与天齐】⚡我本是天才少年😭👊🏻⚡](http://www.daogukj.com/1651835)
+- [369和Knight谈BLG新AD](http://www.daogukj.com/amghneqm/)
+- [又一家车企宣布停产燃油车](http://www.movie.hkepx.cn/xiju/4371729.htm)
+- [梅毒阳性育儿嫂手渗血时仍护理婴儿](http://www.daogukj.com/gzlhbupb/)
+- [在B站就能玩到的搜打撤游戏，点击即玩！【B站AI创造公开赛】](http://www.daogukj.com/dhxrjyno/)
+- [巴基斯坦航天员视频音轨被篡改](http://www.play.hengshemaoyi.cn/kongbu/0642618.htm)
+- [王兴称外卖行业已走到拐点](http://www.play.hengshemaoyi.cn/xiju/9001524.htm)
+- [《白银之城》世界观PV | 童话的起笔](http://www.movie.hkepx.cn/xiju/9522798.htm)
+- [BLG夺冠后小编大喊NICE！这样我们才能出专访](http://www.play.hengshemaoyi.cn/xiju/7270146.htm)
+- [A股大爆发](http://www.movie.hkepx.cn/xiju/6713581.htm)
+- [三只松鼠一夜整改反而让人唏嘘](http://www.movie.hkepx.cn/xiju/1107922.htm)
+- [董明珠当魏建军面数次训斥员工](http://www.play.hengshemaoyi.cn/kongbu/1709616.htm)
+- [多平台已下架纸质短剧](http://www.daogukj.com/1746327)
+- [厉娜前经纪人张阿瞳发文](http://www.movie.hkepx.cn/xiju/9443648.htm)
+- [马天宇 我都40了肯定有过亲密关系啊](http://www.movie.hkepx.cn/movie/6311095.htm)
+- [“新版九年级教材多处错误”不实](http://www.play.hengshemaoyi.cn/xiju/1238840.htm)
+- [中国标准化研究院发布十大最宜居城市，北京、济南、青岛排前三，怎样看待这份榜单？你心中的宜居城市是哪些？](http://www.daogukj.com/5649815)
+- [【欢迎来龙餐馆】起锅开灶，好好吃饭](http://www.movie.hkepx.cn/movie/6082292.htm)
+- [医保局工作人员直播间辱骂咨询者](http://www.daogukj.com/7096702)
+- [如何看待有人质疑老款问界M9使用圆线电机引发高价低配争议？](http://www.movie.hkepx.cn/xiju/6645727.htm)
+- [宠老头早午餐vlog有点高能量了](http://www.play.hengshemaoyi.cn/xiju/6625835.htm)
+- [科创板一天收复全年跌幅](http://www.daogukj.com/qkznereg/)
+- [假如篮球博主来宿舍打球](http://www.movie.hkepx.cn/xiju/8695048.htm)
+- [金价银价大涨](http://www.play.hengshemaoyi.cn/xiju/6994271.htm)
+- [我把Steam复刻搬进了B站游玩Toy【点击即玩】ToyToy【B站AI创造公开赛】](http://www.play.hengshemaoyi.cn/kongbu/9150882.htm)
+- [广电新规首日部分电视仍有开机广告](http://www.movie.hkepx.cn/xiju/4430995.htm)
+- [DECO*27 - Gesture feat. 初音未来](http://www.play.hengshemaoyi.cn/xiju/0984127.htm)
+- [厉娜重新跟你做朋友原话被删](http://www.play.hengshemaoyi.cn/kongbu/0936148.htm)
+- [美股纳指高开1.5% 闪迪涨超8%](http://www.movie.hkepx.cn/xiju/8400822.htm)
+- [“请所有股民 重视A股今天的大涨”](http://www.daogukj.com/ogibyscz/)
+- [孕妇生下裹着完整胎膜的宝宝](http://www.daogukj.com/1532292)
+- [3c](http://www.movie.hkepx.cn/xiju/9678115.htm)
+- [胡歌刘涛 吻戏](http://www.movie.hkepx.cn/movie/0181516.htm)
+- [外交部发言人笑着说祝大家周末愉快](http://www.movie.hkepx.cn/movie/7964895.htm)
 
 </details>
 
 ## 原始来源
 
-- [长得帅就要被网爆么?](https://b23.tv/BV11AyUz6E6h)
+- [如何看待蔡磊进入渐冻症终末期，其妻子称上次与蔡磊见面全程没有说话而是一直在哭？](https://www.zhihu.com/question/2109172404547228699)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3afdfe757a23c780867e -->
+<!-- content-fingerprint: 6ea90a6e7ef316bcd398 -->
